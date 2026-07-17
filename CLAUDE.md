@@ -8,18 +8,17 @@
 
 ```
 My Projects/
-├── projects/              # 独立项目代码，每个子目录一个项目
-│   ├── pdf2md/            PDF→Markdown 转换工具
-│   ├── text-tools/        文本处理（神学精炼 refine_theology.py 等）
-│   └── ocr-spell-check/   OCR纠错工具
-├── books/                 # 书籍/纯文档（按专题分类）
+├── projects/              # 项目代码，每个子目录一个项目
+│   ├── pdf2md/            PDF→Markdown 转换工具（pdf_to_library.py 主力管线）
+│   └── text-tools/        文本处理（神学精炼 refine_theology.py）
+├── books/                 # 书籍库（按专题分类）
 │   ├── 伊斯兰在中国/       核心研究资料（85+册，含游记與世界史）
-│   └── 亲爱的心灵/         亲爱的心灵系列（英译中+简繁双输出）
-├── data/                  # 模型文件库（EasyOCR / Piper TTS 等）
+│   └── 亲爱的心灵/         英译中+简繁双输出系列
+├── wiki/                  # LLM 知识库（系列/書庫/參考/概念）
 ├── audio/                 # TTS 音频输出
-├── wiki/                  # 知识库（已按项目分类：系列/ 書庫/ 參考/ 概念/）
-├── tools/                 # 系统辅助工具（g2pW、OCR校正管线等）
-├── .venv/                 # Python 虚拟环境（统一使用，Python 3.10）
+├── data/                  # 模型文件（本地占用，已排除在 Git 之外）
+├── _reading/              # 阅读笔记与 OCR 原始输出
+└── .venv/                 # Python 虚拟环境（统一使用，Python 3.10）
 ```
 
 ## 🐍 虚拟环境
@@ -46,6 +45,11 @@ My Projects/
 ### 文字转语音
 ```
 .venv/bin/edge-tts --voice zh-CN-YunjianNeural -f <文件.txt> --write-media audio/<输出>.mp3
+```
+
+### 提交与推送（日常）
+```
+git add -A && git commit -m "简要描述改动" && git push
 ```
 
 ### 播放音频
