@@ -1,0 +1,53 @@
+# Python
+__pycache__/
+*.pyc
+*.pyo
+.venv/
+venv/
+
+# Audio output
+*.mp3
+*.wav
+*.m4a
+!audio/.gitkeep
+
+# E-book output
+*.epub
+*.azw3
+*.mobi
+!books/*/*.md
+
+# macOS
+.DS_Store
+*.swp
+*.swo
+*~
+
+# IDE
+.vscode/settings.json.local
+.vscode_backup_duplicate_workspace/
+
+# Temp files
+/tmp/
+*.tmp
+*.temp
+books/_temp/
+
+# OS
+.DS_Store
+Thumbs.db
+
+# 暫存
+_openkb_temp
+_bak_ocr
+
+# Python
+__pycache__
+*.pyc
+.env
+.venv
+
+# Data / model files
+data/
+tools/g2pW/
+audio/*.mp3

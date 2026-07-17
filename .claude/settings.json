@@ -1,0 +1,17 @@
+{
+  "env": {
+    "ANTHROPIC_AUTH_TOKEN": "sk-abda8b2629684284a9ba83536d4bc363",
+    "ANTHROPIC_BASE_URL": "https://api.deepseek.com/anthropic",
+    "ANTHROPIC_DEFAULT_HAIKU_MODEL": "deepseek-chat",
+    "ANTHROPIC_DEFAULT_OPUS_MODEL": "deepseek-v4-pro",
+    "ANTHROPIC_DEFAULT_SONNET_MODEL": "deepseek-chat",
+    "ANTHROPIC_MODEL": "deepseek-chat"
+  },
+  "permissions": {
+    "defaultMode": "acceptEdits",
+    "ask": [
+      "Bash(rm *)",
+      "Bash(sudo *)"
+    ]
+  }
+}
