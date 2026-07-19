@@ -1,0 +1,161 @@
+# Islam and the West - a Historical Perspective
+
+> 来源: Islam and the West - a Historical Perspective.pdf
+> 提取于: iSlam/伊斯兰与现代·比较宗教/Islam and the West - a Historical Perspective.pdf
+
+Islam and the West: a Historical Perspective
+fpri.org/article/2003/05/islam-and-the-west-a-historical-perspective/
+
+This essay is based on a presentation to FPRI’s 2003 History Institute for Teachers on “The
+American Encounter with Islam,” May 3-4, 2003. Forty teachers from fourteen states
+participated in the conference, which featured lectures by seven distinguished scholars,
+among them Jeremy Black, Professor of History, University of Exeter (United Kingdom) and
+Senior Fellow of the Foreign Policy Research Institute. Especially for our teachers, we
+asked Prof. Black to include a few key bibliographic references to which the reader can turn
+for more information on selected topics.
+The use of historical evidence to provide rapid support for policy advice is all too easy in a
+crisis. At the same time, it is valuable to offer a historical resonance to current problems.
+This has certainly been the case over the last two years. A flood of works has appeared on
+the history of terrorism, Afghanistan, Iraq, and relations between Islam and the West. Some
+of the work has been of high quality but much has been superficial. This is understandable.
+Commercial opportunity plays a major role. There are also serious analytical problems.
+Centrality of the Conflict with the West? Not So.
+One of the most important relates to the need to distinguish between long-term perceptions
+of Islamic power and more short-term (but still pressing) developments. In particular, there
+has been a tendency to exaggerate the centrality of conflict, still more relations, with the
+Western world in Islamic history. This is at the expense of three different tendencies, first,
+the need for Islam to confront other societies, secondly the importance of divisions within
+the Islamic world itself, and, thirdly, the variety of links between Islam and the West. The
+
+1/5
+
+last point can be related, more generally, to modern revisionism on the multiple nature of
+Western imperialism, a theme I have probed in my “Europe and the World 1650-1830” (New
+York: Routledge, 2002).
+To turn to the first point, throughout its history, Islam has interacted not only with
+Christendom but also with other cultural areas. Our own concerns on the relationship
+between Christendom and Islam appear to be underlined by the map with its depiction of an
+Islamic world stretching into the Balkans and the Western Mediterranean. However, if the
+conventional map— an equal-area cartogram— is replaced by an equal-population
+cartogram (see my Maps and Politics, Chicago University Press, 1997), then a very different
+perception of Islam emerges. It becomes a religion not primarily of the Arab world but of
+South Asia: Indonesia, Pakistan, Bangladesh, India and Iran. In some respects there is a
+parallel with Christendom, which is now more prominent in the Americas and (increasingly)
+Africa than in Europe.
+This geographical reconceptualization is linked to a focus on different challenges than those
+from Christianity. In particular, the clash between Islam and Hinduism proved a major
+aspect of political tension in South Asia and this became more pronounced after the end of
+British imperial rule. Thus, Kashmir is a major faultline for many Muslims, while there is
+considerable concern about increasing Hindu militancy in India and the difficulties the
+Congress Party faces in maintaining a secular approach. In Central Asia, the challenge
+came as much from Chinese as from Russian expansion. Furthermore, like the Christians,
+for example in Amazonia, Islam competes with tribal beliefs, particularly in Indonesia. The
+importance of the eastern world of Islam is such that areas of conflict with the “West,” at
+least in the shape of Christendom, include the Philippines and Timor.
+To turn back to Islamic history is to be reminded of the persistence of conflict with nonChristian peoples and, indeed, its prominence for much of Islamic history. It is, for example,
+all too easy to present the medieval period in terms of the Christian Crusades, a theme that
+has recently been pushed back into prominence, and to suggest, as some Islamic
+polemicists have done, that modern Western pressures sit in this tradition. However, aside
+from the fact that the Crusades were also directed against “heathens” (in Eastern Europe),
+heretical Christians (such as Albigensians, Hussites) and opponents of the Papacy, when
+Saddam Hussein wished to emphasize the idea of a terrible foreign threat to Baghdad he
+referred not to earlier Christian attacks on Islam (nor to the British who seized the city in
+both World Wars), but to the Mongols. When Baghdad fell in 1258, to a Mongol army under
+Hulegu, reputedly hundreds of thousands were slaughtered. The Mongols indeed were far
+more important to the history of the thirteenth-century Islamic world than conflict with
+Crusaders in that period. Persia and Anatolia had already been overrun by the Mongols and
+in 1260 Hulegu captured Damascus. Thereafter, however, the Mongols were to be stopped
+in the Near East by the Islamic Egyptian-based Mamluks (see my War. An Illustrated World
+History, Sutton Publishing, 2003).
+
+2/5
+
+What Model of War?
+The sweeping initial successes of the Mongols demonstrated another point that is important
+to bear in mind when considering military relations between Christendom and the West,
+namely the danger of assuming that a Western model of warfare in the shape of Western
+forces, and later infantry focused on volley firepower, was dominant. In many respects, this
+is an anachronistic reading back of more modern conflict. South Asia provides a good
+example of this. The emphasis, in Western works, is on how Europeans sailed round Africa,
+arrived in Indian waters at the start of the sixteenth century, and then used infantry
+firepower to subjugate opponents (both Muslim and non-Muslim), with the British victory
+under Robert Clive over the Nawab of Bengal at Plassey in 1757 taking pride of place.
+The arrival of, first, the Portuguese, and then other Europeans, in the Indian Ocean and
+linked waters, especially the Red Sea and the Persian Gulf, did, indeed, greatly expand the
+extent of contact between Christendom and Islam, but the extent of the challenge should
+not be exaggerated. The Islamic world was able to mount a robust response: the
+Portuguese were repelled from the Red Sea and Aden in the early sixteenth century and
+driven from Muscat (1650) and Mombassa (1698) by the Omani Arabs. In India itself,
+assaults from across Afghanistan were for long more important than European moves to
+military history and political developments, particularly the Mughal conquest of the
+Sultanate of Delhi in the 1520s, the Persian invasion in the 1730s, at the expense of the
+Mughal empire, and that of the Afghans in the 1750s, culminating in the victory over the
+(Hindu) Marathas at Panipat in 1761 (see my War and the World. Military Power and the
+Fate of Continents 1450-2000, Yale University Press, 1998).
+This battle looked back to a long series of conflicts between cavalry armies that had a
+crucial impact on the Islamic world, for example the campaigns of Timur the Lame, which
+included the capture of Delhi (1398), Damascus (1401) and Baghdad (1401), and the defeat
+of the Ottoman Turks at Ankara (1402). This was a politics of force: Timur was brutal
+towards those who resisted, most vividly by erecting pyramids from the skulls of the
+slaughtered: possibly 70,000 when a rising at Isfahan was suppressed in 1388. Again, in
+the sixteenth and seventeenth centuries, the crucial fault-lines in the Islamic world divided
+the Ottomans from the Safavids of Persia and the latter from the Mughals of India. Their
+struggles were more important than those with Christendom. Thus, the Safavids were more
+concerned about Ottomans, Mughals, and Uzbeks (and finally succumbed in 1722 to
+Afghan attack), than the Portuguese, who were driven from Hormuz in 1622. Even along
+the traditional frontier with Christendom, there was little sign of Islamic failure until the loss
+of Hungary to the Austrian Habsburgs in the 1680s and 1690s. Thus, the Portuguese
+challenge in Morocco was crushed at Alcazarquivir in 1578, and European pressure there
+did not subsequently become serious again until the French advanced in 1844 from their
+new base in Algeria.
+
+3/5
+
+For the eighteenth and nineteenth century, it is possible to point to Christian advances,
+especially by the Russians in the Balkans and Central Asia, but it is necessary not to predate these. If the French conquered Algeria from 1830, the Spaniards had failed at Algiers
+in 1775 and 1784. If the British conquered Egypt in 1882, they had failed there in 1807 and,
+in the meanwhile, Egypt had been a dynamic power, expanding into Arabia (where the
+Wahhabis were defeated), the Near East, Sudan and the Horn of Africa: Egyptian forces
+took Equatoria (southern Sudan) in 1871, Darfur (western Sudan) in 1874, and Harrar (later
+British Somaliland), also in 1874. These dates are a reminder of the brevity of the period of
+Western dominance and the relatively recent period in which it began: Sudan was only
+conquered by the British in the late 1890s, with the crucial battle being fought at Omdurman
+in 1898. The continued importance of Ottoman-Persian rivalry into the nineteenth century
+also requires attention.
+Which Mattered More: Tensions with the West or Within Islam?
+Thus, the political, as much as the religious tensions within the Islamic world can be
+discussed as much more historically significant to Muslims themselves than the relatively
+recent Western ascendancy. And even this has its exceptions. If the war over the last halfcentury in which the most Muslims died, the Iran-Iraq war of 1980-88, was waged between
+Muslim powers, the situation has generally been also thus during Islamic history.
+Furthermore, there have frequently been alliances across confessional divides. Suleyman
+the Magnificent co-operated with the French against the Habsburgs in the 1530s. When the
+Portuguese were driven from Hormuz, Abbas I benefited from English co-operation. As
+imperialists, both the British, in India and Nigeria, and the Russians, in Central Asia, cooperated with some Muslim rulers and interests at the same time as they fought others.
+This is part of a more general process by which links between Muslim and Western polities
+— particularly political and economic— co-existed with rivalry. There is no reason why this
+should cease, although the nature of Islamic societies, with rapidly-growing, youthful
+populations, centerd on volatile urban communities, poses particular problems. Past
+experience suggests the need for political engagement as much as military strength. A
+good example of an authoritarian Islamic state that moved from political rivalry to cooperation is provided by Turkey, which refused to accept a peace settlement after World
+War One that included Greek rule over the Aegean coast and European troops in
+Constantinople. Under Kemal Ataturk, the Turks were able to impose their will after
+defeating the Greeks in 1922 and facing down the British the same year. This was the
+background to a long-term improvement in relations with the Western world, which also
+helped to contain continued Greek-Turkish animosity.
+A robust and pro-active approach to terrorism is necessary, but destroying bin Laden will
+only profit us so much if other radical, anti-Western Islamic organizations arise and flourish.
+To understand the challenge, it is necessary to offer informed judgment of the Islamic
+
+4/5
+
+worlds, and to avoid simplistic claims of immutable cultural clashes. The history and the
+reality are far more complex, and let it be said far more hopeful.
+Jeremy Black
+Jeremy Black is a Senior Fellow at the Foreign Policy Research Institute and a Professor of
+History at Exeter University in the UK. A prolific lecturer and writer, Black is the author of
+over 100 books and an expert on military, diplomatic, and cartographic history. The Society
+of Military History recognized Jeremy Black’s work in April 2008, presenting him with the
+Samuel Eliot Morison Prize for lifetime achievement.
+Related Event
+
+5/5
