@@ -1,0 +1,12 @@
+.venv/
+venv/
+_reading/
+audio/
+books/
+data/
+.git/
+.DS_Store
+*.mp3
+*.wav
+*.pdf
+*.epub
