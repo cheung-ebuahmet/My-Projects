@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 Rising For the Second Rakah
-Rising For the Second Rakah
 Get up for the second rakah, by clenching the fists and supporting the body with the
 hands while getting up (literally, “as one who kneads dough”).
 The Prophet (SAW) would clench his fists during prayer: supporting himself with his

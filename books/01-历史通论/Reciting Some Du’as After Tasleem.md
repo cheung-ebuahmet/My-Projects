@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 Reciting Some Du’as After Tasleem
-Reciting Some Du’as After Tasleem
 There are many du’as which Prophet Muhammad (SAW) used to say after Tasleem. Some
 of the du’as are mentioned below. Recite the following takbir aloud.
 “Allahu Akbar”

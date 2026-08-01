@@ -274,7 +274,6 @@ l "Weak."
 l "Abandoned (by the traditionists)."
 l "Liar, used to fabricate ahadith."5
 l
-l
 
 Reporters who have been unanimously described by statements such as the first two may contribute to a
 sahih ("sound", see later) isnad. An isnad containing a reporter who is described by the last two
@@ -356,7 +355,6 @@ these types of hadith, as well as mursal ahadith (which are discussed later). Ac
 613 mauquf ahadith,
 l 285 maqtu' ahadith, and
 l 228 mursal ahadith; a total of 1726 ahadith.6
-l
 l
 
 Among other collections, relatively more mauquf and maqtu' ahadith are found in Al-Musannaf of Ibn
@@ -657,7 +655,6 @@ l Those who are disparaged due to another reason apart from tadlis; their ahadit
 though they admit of hearing them directly. Exempted from them are reporters such as Ibn
 Lahi'ah, the famous Egyptian judge, whose weakness is found to be of a lesser degree. Ibn Hajar
 gives the names of 152 such reporters.40
-l
 l
 
 Tadlis, especially of those in the last three categories, is so disliked that Shu'bah (d. 170) said, "Tadlis is

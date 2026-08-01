@@ -73,8 +73,6 @@ I was kind
 I didn't get upset
 I didn't get anyone upset
 ___________________________
-___________________________
-___________________________
 TOTAL
 
 © Studio Arabiya Institute

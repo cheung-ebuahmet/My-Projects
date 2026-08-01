@@ -23,8 +23,6 @@ eyes : a sourcebook / Stephen J. Shoemaker.
 Description: Oakland, California : University of California Press, [2021] |
 Includes bibliographical references and index.
 Identifiers: LCCN 2020037017 (print) | LCCN 2020037018 (ebook) |
-ISBN 9780520299603 (cloth) | ISBN 9780520299610 (paperback) |
-ISBN 9780520971271 (epub)
 Subjects: LCSH: Islam—Origin. | Islam—History—To 1500—Sources. | Islam—
 Relations—Christianity—History—To 1500—Sources. | Christianity and
 other religions—Islam—History—To 1500—Sources. | Judaism—Relations—

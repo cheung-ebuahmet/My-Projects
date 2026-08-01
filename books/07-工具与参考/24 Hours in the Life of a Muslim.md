@@ -253,14 +253,12 @@ the teaching of the Qur'an or contrary to
 the Sunnah.
 
 10
-10
 
 Harun
 a
 Harun Y ahy
 Yahya
 
-11
 11
 
 24
@@ -272,7 +270,6 @@ Life of
 of aa Muslim
 Muslim
 
-12
 12
 
 Harun
@@ -306,7 +303,6 @@ Qur'an makes it possible for a person to live every hour of every
 day, and every moment of his life in a Paradise-like, peaceful environment far from the stress, worry and anxiety of this world.
 
 13
-13
 
 24
 24 Hours
@@ -335,7 +331,6 @@ that lead to faith." This may be defined as those facts that bring a
 person to faith, and at the same time cause faith to grow, develop
 
 14
-14
 
 Harun
 Harun Yahya
@@ -356,7 +351,6 @@ to be pondered. This is because a person is unconscious
 throughout the night and all he can remember from
 those long hours of sleep are some indistinct dreams that last
 
-15
 15
 
 24
@@ -388,7 +382,6 @@ can never be sure if we will meet with some kind of disaster or
 wake up in a healthy state.
 
 16
-16
 
 Harun
 Harun Yahya
@@ -415,7 +408,6 @@ day with the knowledge
 that Allah is testing him in
 this world.
 
-17
 17
 
 24
@@ -450,7 +442,6 @@ encountered moral failing in these kinds of people is that they are
 irritable, stressed and glum when they wake up.
 
 18
-18
 
 Harun
 Harun Yahya
@@ -479,7 +470,6 @@ may come at any moment, because of a traffic accident, an unexpected disease or 
 we said above, we must think about what we have to do to spend
 the day before us so as to win Allah's approval.
 
-19
 19
 
 24
@@ -521,7 +511,6 @@ overcome these imperfections and has made blessings such as soap
 and detergent available to us. Allah shows this to us in the Qur'an:
 
 20
-20
 
 Harun
 Harun Yahya
@@ -551,7 +540,6 @@ from the heavens for
 people to clean themselves and for their other
 needs.
 
-21
 21
 
 24
@@ -588,7 +576,6 @@ other verses Allah says that there are "pure companions" for those in the Garden
 25; Surah Al 'Imran: 15; Surat an-Nisa': 57)
 
 22
-22
 
 Harun
 Harun Yahya
@@ -601,7 +588,6 @@ about their appearance and their cleanliness when they are not in the presence o
 others. To find it normal to go around
 the house until evening unwashed
 
-23
 23
 
 24
@@ -638,7 +624,6 @@ them and bad things
 unlawful for them…
 (Surat al-A'raf: 157)
 
-24
 24
 
 Harun
@@ -677,7 +662,6 @@ the teachings of the Qur'an, live a
 good life in this world. Ignorant peo-
 
 25
-25
 
 24
 24 Hours
@@ -700,13 +684,11 @@ cleanliness they don't show the least laxity and they always do
 everything in their power to be clean and well-groomed.
 
 26
-26
 
 Harun
 Harun Yahya
 Yahya
 
-27
 27
 
 24
@@ -741,7 +723,6 @@ these raw materials
 would not exist.
 
 28
-28
 
 Harun
 Harun Yahya
@@ -771,7 +752,6 @@ often be injured by these kinds of
 small accidents. They are
 
 29
-29
 
 24
 24 Hours
@@ -797,7 +777,6 @@ Another quality given to the believer
 from the values taught by the Qur'an is mod-
 
 30
-30
 
 Harun
 Harun Yahya
@@ -821,7 +800,6 @@ come down to us:
 "Eat what you like, and
 wear what you like
 
-31
 31
 
 24
@@ -853,7 +831,6 @@ man went and did so, then returned. The Prophet (may Allah
 bless him and grant him peace) said, 'Is this not better than
 
 32
-32
 
 Harun
 Harun Yahya
@@ -877,7 +854,6 @@ for a person of faith, seeing these adornments—whether he possesses any or not
 Garden and desire even more to go there. A believer sees the pur-
 
 33
-33
 
 24
 24 Hours
@@ -899,7 +875,6 @@ finest silk and rich brocade, reclining there on
 couches under canopies. What an excellent reward!
 What a wonderful repose! (Surat al-Kahf: 30-31)
 
-34
 34
 
 Harun
@@ -923,7 +898,6 @@ his example, always goes about in clean, well cared-for
 and attractive clothes; he or she takes pleasure in this
 and by it hopes to win Allah's approval.
 
-35
 35
 
 24
@@ -953,7 +927,6 @@ Besides this, fire is a reminder for the believer in this life of
 the pains of the Fire. In describing in the Qur'an those who will go
 
 36
-36
 
 Harun
 Yahya
@@ -981,7 +954,6 @@ A person who thinks sincerely and without prejudice
 about the food we eat for
 
 37
-37
 
 24
 24 Hours
@@ -1007,7 +979,6 @@ But most people don't consider these things correctly that our Lord has given fo
 take them all for granted and don't realise just how valu-
 
 38
-38
 
 Harun
 Yahya
@@ -1026,7 +997,6 @@ men erect. Then eat from every kind of fruit and travel the
 paths of your Lord, which have been made easy for you to follow." From inside them comes a drink of varying colours,
 containing healing for mankind. There is certainly a Sign in
 
-39
 39
 
 24
@@ -1050,7 +1020,6 @@ chance. And this brings him closer to Allah.
 In addition, the absolute obedience of a tiny bee to our Lord is
 another fact leading to faith. The believer will understand that it is
 
-40
 40
 
 Harun
@@ -1081,7 +1050,6 @@ Another indication of
 Allah's supreme knowledge is
 
 41
-41
 
 24
 24 Hours
@@ -1110,7 +1078,6 @@ chicken with little awareness produces eggs
 every day and protects
 
 42
-42
 
 Harun
 Yahya
@@ -1127,7 +1094,6 @@ breakfast, come from plants. After the leaves of these plants have
 been put through certain processes, they become sweet-smelling
 liquids. The thousands of other kinds of plants that grow in the
 
-43
 43
 
 24
@@ -1159,7 +1125,6 @@ food. But a believer, whether or not he is prosperous, will always
 behave in a manner so as to win Allah's approval and will give
 
 44
-44
 
 Harun
 Yahya
@@ -1183,7 +1148,6 @@ blessings that will win him a reward in Allah's
 sight. Even if he is not prosperous, a believer will sincerely
 give thanks to Allah. In the
 
-45
 45
 
 24
@@ -1217,7 +1181,6 @@ pushes it between the teeth to be chewed. With its strong
 muscles, the jaw helps the teeth to chew while the eater
 
 46
-46
 
 Harun
 Yahya
@@ -1237,7 +1200,6 @@ about randomly. Every part is made exactly as required to achieve a certain goal
 marvellous Creation is from our Lord Who "created
 everything and determined it most exactly." (Surat alFurqan: 2). Allah has created all of these things in order
 
-47
 47
 
 24
@@ -1269,7 +1231,6 @@ unpleasant and upset the stomach. There is no
 doubt that tastes and the faculty that perceives
 them have been specially created for human
 
-48
 48
 
 Harun
@@ -1310,7 +1271,6 @@ and
 cause
 
 49
-49
 
 24
 24 Hours
@@ -1335,7 +1295,6 @@ extremely important facts even though they have consumed deliciously tasting and
 that have met their needs perfectly throughout their
 
 50
-50
 
 Harun
 Harun YYahy
@@ -1354,7 +1313,6 @@ balanced diet. He knows his body must have all the food it needs
 for the development of its 100 trillion cells and in order for it to
 renew itself and function properly. So, either for breakfast or at
 
-51
 51
 
 24
@@ -1381,7 +1339,6 @@ several places to the importance of
 water.
 
 52
-52
 
 Harun
 Yahya
@@ -1406,7 +1363,6 @@ Ghazali's Ihya Ulum
 ad-Din)
 
 53
-53
 
 24
 24 Hours
@@ -1430,7 +1386,6 @@ A believer sees the day before him as an opportunity to
 win Allah's love and approval and to attain the
 
 54
-54
 
 Harun
 Harun Yahya
@@ -1447,7 +1402,6 @@ Everyone who leaves home on the way to school or
 work encounters many people,
 things and events to think
 
-55
 55
 
 24
@@ -1468,7 +1422,6 @@ The sky's function as a "protected roof" comes from its atmosphere and this atmo
 vital functions so that human beings survive. The atmosphere filters out rays that come from space and are dangerous for living
 things; it vaporises both large and small mete-
 
-56
 56
 
 Harun
@@ -1494,7 +1447,6 @@ it? And the earth: how We stretched it out and cast firmly embedded mountains on
 kind to grow in it, an instruction and a reminder for every penitent human being. (Surah Qaf: 6-8)
 
 57
-57
 
 24
 24 Hours
@@ -1506,13 +1458,11 @@ of aa Muslim
 Muslim
 
 58
-58
 
 Harun
 Harun Yahya
 Yahya
 
-59
 59
 
 24
@@ -1545,7 +1495,6 @@ he behaves. For example, he will walk without exaggeration or display because Al
 tread…" (Surah Luqman: 19) A humble person obeys the command
 
 60
-60
 
 Harun
 Harun Yahya
@@ -1562,7 +1511,6 @@ think that the qualities they have are their own. These people who
 think that their beauty, wealth, knowledge and success belong to themselves become proud and arrogant.
 And because of this arrogance, they want to
 
-61
 61
 
 24
@@ -1604,7 +1552,6 @@ walk is a great blessing
 from Allah. But people
 
 62
-62
 
 Harun
 Harun Yahya
@@ -1622,7 +1569,6 @@ adornment. And He creates other things you do not know. (Surat
 an-Nahl: 7-8)
 It is He Who created all the species and gave you ships and livestock for you to ride. (Surat az-Zukhruf: 12)
 
-63
 63
 
 24
@@ -1652,7 +1598,6 @@ to Him Who has subjected this to us. We could never have done
 it by ourselves." (Surat az-Zukhruf: 13)
 
 64
-64
 
 Harun
 Harun Yahya
@@ -1674,7 +1619,6 @@ lives, not only for a single individual, but also for each of the billions
 of people on the earth. For someone who lives according to the
 teaching of the Qur'an, to think about this is a way for him to know
 
-65
 65
 
 24
@@ -1709,7 +1653,6 @@ must give to satisfying needs for food,
 shelter and health, they claim they have
 
 66
-66
 
 Harun
 Harun Yahya
@@ -1742,7 +1685,6 @@ pain and tragedy as tests of our patience, because Allah tests human
 beings throughout the day with various trials both big and small. So,
 
 67
-67
 
 24
 24 Hours
@@ -1764,7 +1706,6 @@ Whose hearts quake at the mention of Allah, and who are
 steadfast in the face of all that happens to them, those who establish prayer and give of what We have provided for
 them. (Surat al-Hajj: 35)
 
-68
 68
 
 Harun
@@ -1794,7 +1735,6 @@ of his earthly life according to the teachings of the Qur'an
 will not let his mind
 
 69
-69
 
 24
 24 Hours
@@ -1815,7 +1755,6 @@ attached to anything, remain suspended in thin air and perform
 manoeuvres with their delicate
 wings; that their wings are created so that they
 
-70
 70
 
 Harun
@@ -1838,7 +1777,6 @@ wonders of Creation such as these that surround
 them and are witnesses every moment to Allah's
 endless power.
 
-71
 71
 
 24
@@ -1879,7 +1817,6 @@ all hearts and eyes
 will be in turmoil. (Surat anNur: 36-37)
 
 72
-72
 
 Harun
 Harun YYahya
@@ -1913,7 +1850,6 @@ any house which pleases you, are dearer
 to you than Allah and His Messenger
 
 73
-73
 
 24
 24 Hours
@@ -1936,7 +1872,6 @@ maintaining the boundary He has set between what is lawful and
 unlawful. Allah has commanded believers that in doing business
 they should not abuse anyone's rights, they should give full measure and full weight with justice, and not diminish the value of peo-
 
-74
 74
 
 Harun
@@ -1971,7 +1906,6 @@ As in every sphere, so in trade and commerce, the Qur'an
 brings what is finest, easiest and most true into human life. In this
 
 75
-75
 
 24
 24 Hours
@@ -1995,7 +1929,6 @@ easy and he will consider that no enterprise will be successful, unless Allah wi
 win Allah's pleasure.
 
 76
-76
 
 Harun
 Harun YYahya
@@ -2014,7 +1947,6 @@ They made for him anything he wished: high arches and statues, huge dishes like 
 "Work, family of David, in thankfulness!" But very few of
 My servants are thankful. (Surah Saba': 13)
 
-77
 77
 
 24
@@ -2044,7 +1976,6 @@ thoughts and plans to this activity, and
 instead of seeking ways to please Allah
 Who created them, they try to find satisfaction in minor occupations such as shopping.
 
-78
 78
 
 Harun
@@ -2078,7 +2009,6 @@ control and there is a reason for the amount of provision that Allah
 chooses to give people. Allah draws our attention to this in the
 Qur'an:
 
-79
 79
 
 24
@@ -2118,7 +2048,6 @@ in the Qur'an, as mut for failing to see that their prosperity
 and wealth are a trial equal to
 
 80
-80
 
 Harun
 Yahya
@@ -2155,7 +2084,6 @@ to the teaching of the Qur'an knows
 that the blessings around him are a
 
 81
-81
 
 24
 24 Hours
@@ -2185,14 +2113,12 @@ neither extravagant nor mean, but take a stance mid way between
 the two." (Surat al-Furqan: 67) This verse sums up the wisdom a believer shows in the way he does his shopping.
 
 82
-82
 
 Harun
 Yahya
 Harun Y
 ahya
 
-83
 83
 
 24
@@ -2225,7 +2151,6 @@ the level of "bad" cholesterol
 and increase the level of
 "good" cholesterol.
 
-84
 84
 
 Harun
@@ -2260,7 +2185,6 @@ person who is communicating the teachings of the Qur'an looks physically
 strong and attractive he will have influ-
 
 85
-85
 
 24
 24 Hours
@@ -2278,14 +2202,12 @@ maintain a strong and healthy body. They cannot be lazy, lax
 or careless in this matter.
 
 86
-86
 
 Harun
 Yahya
 Harun Y
 ahya
 
-87
 87
 
 24
@@ -2327,7 +2249,6 @@ that he will give account in the afterlife of every
 moment he has spent in this world. For this reason, he spends every minute hoping only to
 
 88
-88
 
 Harun Yahy a
 
@@ -2358,7 +2279,6 @@ But as for anyone who desires the Hereafter, and strives for it
 with the striving it deserves, being a believer, the striving of
 such people will be gratefully acknowledged. (Surat al-Isra': 19)
 
-89
 89
 
 24
@@ -2396,7 +2316,6 @@ with humility, joy and enthusiasm, hoping that it brings
 him closer to Allah.
 
 90
-90
 
 Harun
 Yahya
@@ -2423,7 +2342,6 @@ Some people have a very limited concept of prayer thinking that it is sufficient
 obey a few of Allah's commands in the course of the
 day. But according to the Qur'an, worship is not limited only to religious duties like prayer, fasting, pilgrimage and giving sadaqah.
 
-91
 91
 
 24
@@ -2452,7 +2370,6 @@ commands of Allah in the
 Qur'an and for the com-
 
 92
-92
 
 Harun
 Yahya
@@ -2475,7 +2392,6 @@ wrong, and establish prayer and pay alms, and obey
 Allah and His Messenger. They are
 the people on whom Allah will
 
-93
 93
 
 24
@@ -2518,7 +2434,6 @@ If they had really desired to go out, they would have made
 proper preparations for it… (Surat at-Tawba: 46)
 
 94
-94
 
 Harun
 Yahya
@@ -2538,7 +2453,6 @@ peace. So, all these preparations and efforts have a special place in
 the daily life of that believer who is
 qualified and authorised to call others to Allah and His Messenger.
 
-95
 95
 
 24
@@ -2569,7 +2483,6 @@ When a person who lives by
 the values of the Qur'an
 considers these things,
 
-96
 96
 
 Harun
@@ -2608,7 +2521,6 @@ and night. Allah reveals this in a few verses:
 In the creation of the heavens and the earth, and the alternation of night and day, there are Signs for people with intelligence. (Surah Al 'Imran: 190)
 
 97
-97
 
 24
 24 Hours
@@ -2640,7 +2552,6 @@ mankind but most people do not show thanks.
 (Surah Ghafir: 61)
 
 98
-98
 
 Harun
 ahyaa
@@ -2670,7 +2581,6 @@ night prostrating and standing before their Lord. (Surat alFurqan: 64)
 Their sides eschew their beds as they call on their Lord in fear
 and ardent hope… (Surat as-Sajda: 16)
 
-99
 99
 
 24
@@ -2716,7 +2626,6 @@ A believer who lives according to the teachings of the Qur'an
 knows the value of this opportunity granted to him—perhaps his
 
 100
-100
 
 Harun
 ahyaa
@@ -2730,7 +2639,6 @@ Him alone in the
 stillness of the
 night.
 
-101
 101
 
 24
@@ -2756,7 +2664,6 @@ your final destination." (Surah Luqman: 14)
 
 Our Lord says in the Qur'an that we ought to behave well towards our parents:
 
-102
 102
 
 Harun
@@ -2795,7 +2702,6 @@ out of irritation and do not be
 harsh with them but speak to
 them with gentleness", Allah has
 
-103
 103
 
 24
@@ -2837,7 +2743,6 @@ their houses alone. If we think about this situation we will see that
 the reason for this problem lies in not living according to the teachings of the Qur'an.
 
 104
-104
 
 Harun
 ahyaa
@@ -2872,7 +2777,6 @@ in Islam and through
 having fear of and love
 for Allah.
 
-105
 105
 
 24
@@ -2912,7 +2816,6 @@ them back again. He is always aware that the
 blessings of this world are transitory and limited, that they test him and that they are only reflections of the real blessings of the Garden.
 
 106
-106
 
 Harun Yahya
 
@@ -2936,7 +2839,6 @@ given him and that they come only from Him. He does everything he
 can to give thanks to our Lord Who created these blessings and to
 show his appreciation and gratitude. In return for His countless blessings, he will always make every effort to give thanks by what he says
 
-107
 107
 
 24
@@ -2974,7 +2876,6 @@ filled with blessings. Continually,
 at every mo-
 
 108
-108
 
 Harun
 ahyaa
@@ -3002,7 +2903,6 @@ has received will not make him greedy, arrogant or haughty, Allah
 will give him even more blessings. This statement of Allah in the
 Qur'an speaks of this:
 
-109
 109
 
 24
@@ -3044,7 +2944,6 @@ use the blessings Allah
 has given them to win His
 
 110
-110
 
 Harun
 ahyaa
@@ -3070,7 +2969,6 @@ will attain their
 highest level.
 
 111
-111
 
 24
 24 Hours
@@ -3090,7 +2988,6 @@ Everything—endlessly flowing rivers, places
 of great scenic beauty, gardens of dazzling colours,
 human beauty, aesthetic compositions and amaz-
 
-112
 112
 
 Harun
@@ -3117,7 +3014,6 @@ wide as the heavens and the earth" (Surah Al 'Imran: 133); when
 he sees beautiful houses, he will think of "lofty chambers in the
 Garden, with rivers flowing under them", (Surat al-'Ankabut: 58);
 
-113
 113
 
 24
@@ -3146,7 +3042,6 @@ occasion for gratitude, whether he possesses any of them of not. At
 the same time, they are an important source of pleasure that will increase his longing for the Garden and his efforts to attain it.
 
 114
-114
 
 Harun
 ahyaa
@@ -3167,7 +3062,6 @@ are: to be well spoken of, to be respectable and important in their
 own right, to increase their material means and to live a good life.
 Throughout their lives they are constantly running after transient,
 
-115
 115
 
 24
@@ -3199,7 +3093,6 @@ such places to see the beauties of Allah's creation. With his special
 perception and understanding, a believer will notice the incomparable beauties of Allah's in every place and at every moment. The splendour of the stars at night and the
 
 116
-116
 
 Harun
 ahyaa
@@ -3226,7 +3119,6 @@ they are praised in the Qur'an. Believers take all prophets as examples and take
 do—to use every blessing that comes to
 them to please Allah.
 
-117
 117
 
 24
@@ -3264,7 +3156,6 @@ the course of daily life. For example, as a result of a misunderstanding or some
 a job on which someone has been struggling with a computer for
 
 118
-118
 
 Harun
 ahyaa
@@ -3290,7 +3181,6 @@ A person who begins his day
 with this in mind will rarely lose
 hope no matter what happens or
 
-119
 119
 
 24
@@ -3326,7 +3216,6 @@ damage by
 this action.
 
 120
-120
 
 Harun
 ahyaa
@@ -3361,7 +3250,6 @@ As Allah says, we do not know what is beneficial or harmful;
 but Allah knows. A person must make friends with and submit to
 Allah, the Most Merciful and the All-Compassionate.
 
-121
 121
 
 24
@@ -3402,7 +3290,6 @@ brought
 up
 
 122
-122
 
 Harun
 ahyaa
@@ -3424,7 +3311,6 @@ take control of his thoughts and actions if he loses a source of income, suffers
 similar circumstances. He will consider whether of not his behaviour is pleasing to Allah and the following thoughts may go
 through his mind:
 
-123
 123
 
 24
@@ -3456,7 +3342,6 @@ we have not the strength to bear! And pardon us; and forgive
 us; and have mercy on us. You are our Master… (Surat alBaqara: 286)
 
 124
-124
 
 Harun
 ahyaa
@@ -3481,7 +3366,6 @@ is in a place of testing to become closer to Allah, to mature and to
 embrace the teachings of the Qur'an. He is aware that Allah is
 training him in this way and preparing him for the endless blessings of the life to come.
 
-125
 125
 
 24
@@ -3526,7 +3410,6 @@ And Job when he called out to his Lord, "Great harm has afflicted me and You are
 (Surat al-Anbiya': 83)
 
 126
-126
 
 Harun
 Harun YYahy
@@ -3552,7 +3435,6 @@ and draw close to Him. And for the believer, every illness is a warning that the
 next world are
 close at hand.
 
-127
 127
 
 24
@@ -3592,7 +3474,6 @@ areas within it and a scorching heat that penetrates the
 cells. The Fire has the most disgusting food and drink.
 
 128
-128
 
 Harun
 Harun YYahy
@@ -3608,7 +3489,6 @@ these films cannot compare to the extreme filth and depressing environment of th
 much worse and more terrible than the very worst place we could
 imagine in this world.
 
-129
 129
 
 24
@@ -3645,13 +3525,11 @@ he will do the cleaning that has to be done, make up for his
 mistakes and not fall into the same error again.
 
 130
-130
 
 Harun
 Harun YYahy
 ahyaa
 
-131
 131
 
 24
@@ -3679,7 +3557,6 @@ We created you and then formed you and then We said to the
 angels, "Prostrate before Adam," and they prostrated—except
 for Iblis. He was not among those who prostrated. He (Allah)
 
-132
 132
 
 Harun
@@ -3717,7 +3594,6 @@ And those with faith are aware that their greatest enemy,
 satan, is always working; while they are trying to obey the commands of Allah as best they can, they are always wary of satan's
 games and tricks. They are awake to the apprehension and
 
-133
 133
 
 24
@@ -3758,7 +3634,6 @@ that satan is also under Allah's
 control and does not have the
 
 134
-134
 
 Harun
 Harun YYah
@@ -3791,7 +3666,6 @@ their trust in their Lord. He only has authority over those who
 take him as a friend and associate others with Allah. (Surat
 an-Nahl: 99-100)
 
-135
 135
 
 24
@@ -3832,7 +3706,6 @@ noise and wakes him up in the morning. He knows that he acts only
 by Allah's decree; Allah wanted him to wake up at that moment
 
 136
-136
 
 Harun
 Harun YYah
@@ -3855,7 +3728,6 @@ of a believer will be an example to others. The most important thing
 is that his behaviour is that which is praised in the Qur'an and he
 acts in a way that is pleasing to Allah.
 
-137
 137
 
 24
@@ -3896,14 +3768,12 @@ Allah's will and receive a great
 blessing from Allah in the Hereafter.
 
 138
-138
 
 Harun
 Yah
 Harun Y
 ahyyaa
 
-139
 139
 
 24
@@ -3940,7 +3810,6 @@ Patience in the
 Qur'an)
 
 140
-140
 
 Harun
 Yah
@@ -3972,7 +3841,6 @@ obtain it but those who have great good fortune. (Surah
 Fussilat: 34-35)
 
 141
-141
 
 24
 24 Hours
@@ -4001,7 +3869,6 @@ pay heed. The metaphor of a corrupt word is that of a rotten
 tree, uprooted on the surface of the earth. It has no stayingpower. Allah makes those who believe firm with the Firm
 
 142
-142
 
 Harun
 Harun YYah
@@ -4020,7 +3887,6 @@ the good character of the Messenger of Allah, may Allah bless him
 and grant him peace, and speaks to people with respect. In order to
 encourage his friends, he praises their good qualities that corre-
 
-143
 143
 
 24
@@ -4053,7 +3919,6 @@ good things to one another and, in this way, to make them enemies.
 When a negative word is spoken, satan immediately starts to introduce suspicions to pry each side apart. A person who feels uncomfortable because he has been addressed unpleasantly will be influ-
 
 144
-144
 
 Harun
 Yah
@@ -4076,7 +3941,6 @@ word is charity." (Bukhari and Muslim)
 "There is nothing heavier in the scales than good character."
 (Imam Ahmad and Abu Dawud)
 
-145
 145
 
 24
@@ -4117,7 +3981,6 @@ It is a quality of thoughtfulness to act in a way that will not
 make people uncomfortable. A person in a family situation who
 
 146
-146
 
 Harun
 Harun YYahy
@@ -4149,7 +4012,6 @@ would want to be in such
 places where there is no
 thought for Allah.
 
-147
 147
 
 24
@@ -4191,7 +4053,6 @@ When a host treats his guests coldly and
 with disregard for their feelings, certainly he
 
 148
-148
 
 Harun
 Harun YYahy
@@ -4207,7 +4068,6 @@ Messenger, may Allah bless him and grant him peace, and the behaviour of the rig
 fine conversation and hospitality, unity and cooperation can grow
 among people.
 
-149
 149
 
 24
@@ -4244,13 +4104,11 @@ they do not receive the greeting from people they regard as inferior in status t
 order to humiliate them. More seriously, such behaviour is regarded as normal in some circles.
 
 150
-150
 
 Harun
 Harun YYahy
 ahyaa
 
-151
 151
 
 24
@@ -4286,7 +4144,6 @@ realise that what he did was
 not pleasing to Allah and
 abandon this kind of behaviour.
 
-152
 152
 
 Harun
@@ -4324,7 +4181,6 @@ to use good language, and steadfastness to overcome anger directed at
 him. He knows that this is the kind of behaviour that pleases Allah
 Whose approval he hopes to win.
 
-153
 153
 
 24
@@ -4367,7 +4223,6 @@ to come and that in Allah's Presence value is measured in terms of
 behaviour that pleases Him.
 
 154
-154
 
 Harun
 Harun YYahy
@@ -4385,7 +4240,6 @@ A believer knows that all the blessings of this earthly life have
 been given to him only for a while for his use and as a test; he knows
 that negative traits like selfish greed and envy are wrong.
 
-155
 155
 
 24
@@ -4422,7 +4276,6 @@ who is not sure about the truth of a matter concerning someone else
 must think positively about them:
 
 156
-156
 
 Harun
 Harun YYahy
@@ -4439,7 +4292,6 @@ part of their test in this life and they can make mistakes, but when
 they become aware of their wrong behaviour, they take refuge in
 Allah's mercy and ask forgiveness.
 
-157
 157
 
 24
@@ -4465,7 +4317,6 @@ In the Qur'an, Allah definitely forbids people ridiculing others:
 You who believe! People should not ridicule others who may
 be better than themselves; nor should any women ridicule
 
-158
 158
 
 Harun
@@ -4494,7 +4345,6 @@ At the same time believers realise that the defects they see in
 one another are tests from Allah. For this reason they don't call attention to these defects, but compensate for them by acting positively. They carefully avoid the slightest action, facial expression or
 word that would suggest ridicule.
 
-159
 159
 
 24
@@ -4537,7 +4387,6 @@ greater reward for it in the afterlife. In the Qur'an, Allah shows us the
 exemplary behaviour in this regard of the Companions of our Prophet:
 
 160
-160
 
 Harun
 Harun YYahy
@@ -4558,7 +4407,6 @@ their act of self-sacrifice, they will not behave in order to be praised or
 singled out and they will try to make the other party not feel obliged
 because of the favour they have done.
 
-161
 161
 
 24
@@ -4595,7 +4443,6 @@ people will also benefit. For this reason they will never be disinterested obser
 will never ignore it by minding their own business and pretending they haven't seen anything.
 
 162
-162
 
 Harun
 Harun YYahy
@@ -4617,7 +4464,6 @@ or a close friend makes a mistake, he will openly admit it if the
 error caused harm to another person and he will do everything
 in his power to make restitution for the harm done.
 
-163
 163
 
 24
@@ -4642,7 +4488,6 @@ Reminder". It saves people from the ignorance in which they are
 sunk, their primitive way of thinking, stressful environments, negative character traits, baseless fears, perverse beliefs, and the torments of the Fire for which all these things are the causes. In place
 
 166
-166
 
 Harun
 Harun YYahy
@@ -4665,7 +4510,6 @@ at ease, in peace, happiness and justice.
 Despite this, and because they have turned their backs on true
 deen for the sake of small gains, worldly profit and human weakness, some people inflict great harm on themselves. For a human
 
-167
 167
 
 24
@@ -4707,7 +4551,6 @@ with good, it is they who will have the Ultimate Abode.
 (Surat ar-Ra'd: 20-22)
 
 168
-168
 
 Harun
 Harun YYahy
@@ -4718,7 +4561,6 @@ no knowledge except what You have taught us.
 You are the All-Knowing, the All-Wise."
 (Surat al-Baqara: 32)
 
-169
 169
 
 24
@@ -4745,7 +4587,6 @@ EVOLUTION?
 The theory of evolution is one of those mistaken ideas put forward by people who do not believe in the existence of Allah. It was
 
 170
-170
 
 Harun
 Harun YYahy
@@ -4765,7 +4606,6 @@ including yourself, has been formed by the coming together of millions of atoms.
 come together, and that living things thus came into being.
 According to this illogical claim, one day, a violent wind or a hurricane arose and these atoms all joined together.
 
-171
 171
 
 24
@@ -4807,7 +4647,6 @@ What would happen as a result of all this?
 Do you think that cherries, melons, strawberries, plums, vio-
 
 172
-172
 
 Harun
 Harun YYahy
@@ -4829,7 +4668,6 @@ such a professor's body.
 Atoms are lifeless. Can lifeless matter come together to produce a living, laughing, thinking being?
 Of course not; no living thing could ever emerge from that
 
-173
 173
 
 24
@@ -4869,7 +4707,6 @@ with an example: Think of a herd of deer, which are often attacked
 by wild animals. When that happens, the deer will start to run fast,
 
 174
-174
 
 Harun
 Harun YYahy
@@ -4891,7 +4728,6 @@ believe that such a herd of deer could gradually develop into another kind of an
 they are! No matter how fast a deer runs, or how far it extends its
 neck upwards, it cannot turn into another creature, a lion or a giraffe, for example. This can only happen in fairy tales. You probably all know the story about the frog that turns into a prince. The
 
-175
 175
 
 24
@@ -4921,7 +4757,6 @@ Random mutations, which evolutionists claim to develop living things, are always
 mutation has been observed so far. Quite the contrary, mutations always have
 harmful effects on living things as seen in these pictures.
 
-176
 176
 
 Harun
@@ -4953,7 +4788,6 @@ geological processes, in which case it is then called "amber." On
 occasions in the past, this resin trapped insects, as it flowed down
 the tree trunks. It then solidified, and the amber and the insects in-
 
-177
 177
 
 24
@@ -4991,7 +4825,6 @@ are called intermediate species in the process of so-called evolution. Again, ac
 them must have some vestigial or not yet fully formed body parts.
 
 178
-178
 
 Harun
 Harun YYahy
@@ -5019,7 +4852,6 @@ A picture of a crab living today.
 There is no difference between the
 two crabs, is there?
 
-179
 179
 
 24
@@ -5059,7 +4891,6 @@ show us that these creatures—just like all other living things—
 suddenly appeared during the Cambrian period, with all their fea-
 
 180
-180
 
 Harun
 Harun YYahy
@@ -5076,7 +4907,6 @@ possibly come into existence spontaneously by chance.
 
 This creature called a "trilobite" lived in the Cambrian era.
 
-181
 181
 
 24
@@ -5119,7 +4949,6 @@ land: where would it get lungs from? Furthermore, it has no idea
 of what a lung even is!
 2. Fish do not have a kidney system like ours, but they would
 
-182
 182
 
 Harun
@@ -5164,7 +4993,6 @@ their books and magazines they portrayed this fish as proof of
 their theory. They thought that the coelacanth had long since be-
 
 183
-183
 
 24
 24 Hours
@@ -5197,7 +5025,6 @@ deep water. It wasn't a transitional form as evolutionists wanted
 us to believe. It was a real fish. Many more evolutionists' false
 ideas have since been exposed!
 
-184
 184
 
 Harun
@@ -5246,7 +5073,6 @@ t
 of
 
 185
-185
 
 24
 24 Hours
@@ -5285,7 +5111,6 @@ and half-mouths, and their fossils should have been found, but no
 such creature has ever been located among the many fossils on
 
 186
-186
 
 Harun
 Harun YYahy
@@ -5318,7 +5143,6 @@ were attached, as other flying birds.
 3. Archaeopteryx cannot be the ancestor of all birds, because
 fossils of birds that are older than it have been found.
 
-187
 187
 
 24
@@ -5353,13 +5177,11 @@ think, rejoice and take decisions, is intelligent, can establish civilizations a
 One Who has given all these features to human beings.
 
 188
-188
 
 Harun
 Harun YYahy
 ahyaa
 
-189
 189
 
 24
@@ -5382,7 +5204,6 @@ Allah created human beings with different languages and with different races and
 This variety is a wonderful blessing.
 
 190
-190
 
 Harun
 Harun YYahy
@@ -5400,7 +5221,6 @@ sure he replied: "When an apple falls off a tree, it falls to the
 ground. It doesn't stay in the air." That meant that there is a force
 pulling the apple to the ground, a force called "gravity."
 
-191
 191
 
 24
@@ -5442,7 +5262,6 @@ not well informed about this topic, they are prone to believe what
 evolutionists say.
 
 192
-192
 
 Harun
 Harun YYahy
@@ -5476,7 +5295,6 @@ Consequently, we can see that the fossils evolutionists portray as proof of huma
 This means that half–human, half-ape creatures have never existed.
 
 193
-193
 
 24
 24 Hours
@@ -5508,7 +5326,6 @@ Cats and dogs listen to and follow orders, like a person. What
 would you think if someone said that human beings were descended from dogs, parrots, or the octopus? You see, there is no
 difference between this ludicrous idea and the stories that evolutionists fabricate.
 
-194
 194
 
 Harun
@@ -5545,7 +5362,6 @@ We must therefore be grateful to Allah for each moment of
 our lives. In everything that we enjoy and love, we must remember Allah, and say, "O Allah I am forever grateful to you for all
 
 195
-195
 
 24
 24 Hours
@@ -5566,7 +5382,6 @@ hears and answers every
 prayer.
 
 196
-196
 
 Harun
 Harun YYahy
@@ -5577,5 +5392,4 @@ thanks to our Lord Who created us, the world
 and all the blessings it contains. And knowing that Allah is always with us, and that
 He sees us and listens to us at every moment, we must always be on our best behavior.
 
-197
 197

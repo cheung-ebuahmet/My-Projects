@@ -191,9 +191,6 @@ Z
 ‫ا‬
 ‫ِن‬
 ِ
-ِ
-ِ
-ِ
 al-nari
 
 adhaba
@@ -309,21 +306,14 @@ Duas From Quran - Word By Word Translation, Transliteration And Corpus In Englis
 
 ۡ
 َ
-َ
-َ
-ۡ
 ۡ
 َ
 َۡ َُ َ َ$َ
 ۡ َ َۡ َ $
 ۡٗ
 َ
-َ
-َ
 $
 ۡ
-َ
-َ
 َ
 ‫ا‬mÅِ‫ ِمل علينآ إ‬Ä vw‫ تؤاخِ ذنآ إِن نسِ ينآ أو أخطأنا ۚ ربنا و‬vw ‫ربنا‬
 
@@ -593,7 +583,6 @@ $ َۡ
 َ $ َ$َ
 ۡ
 َ
-َ
 ُ
 َ
 $
@@ -719,13 +708,8 @@ Those who say, "Our Lord, indeed we have believed, so forgive us our sins and pr
 َ
 ۡ
 َ
-َ
-$
 $
 ۡ
-ۡ
-ۡ
-َ
 َ
 ُ
 َ
@@ -733,7 +717,6 @@ $
 َ ‫نا ب َمآ أ‬$ ‫ب َنآ َء َام‬$ ‫َر‬
 َ‫ٱلر ُسول فٱكتبنا م َع ٱلش ٰـهدِ ين‬
 $ ‫ت َوٱت َبعنا‬
-ِ
 ِ
 al-shahidina
 
@@ -954,7 +937,6 @@ indeed [You]
 Our Lord
 
 َ
-َ
 ٖ‫أنصار‬
 ansarin
 
@@ -978,9 +960,6 @@ $ َ$$
 ُ ّ َ ْ ُ َ ۡ َ َٰ ۡ
 $‫امنا‬
 ۡ
-َ
-َ
-َ
 َ
 َٔ‫ك ۡم فَـ‬
 ٗ
@@ -1036,7 +1015,6 @@ Our Lord
 َ ‫ب‬πw‫ا ذنوبنا وك ِف ۡر عنا سيـٔات ِنا وت َوفنا مع ٱ‬dَ V ‫ربنا فٱغ ِف ۡر‬
 ‫ار‬
 ‫ر‬
-ِ
 ِ
 
 so we have believed
@@ -1253,7 +1231,6 @@ send down
 Our Lord
 
 َ
-َ
 َ ّ َٗ َ َ
 ۡ
 َBCِ‫ٱلر ٰـزق‬
@@ -1409,7 +1386,6 @@ https://quranwbw.com/duas
 َ
 َBC‫ ٱلۡ َفٰتح‬hُ æۡ ‫نت َخ‬
 َ
-َ
 ۡ
 َ
 ‫ قومِنا بِٱ«∆ ِق وأ‬BC‫ربنا ٱفتح بيننا وب‬
@@ -1472,11 +1448,9 @@ Our Lord, decide between us and our people in truth, and You are the best of tho
 ۡ
 $
 َ
-َ
 ۡ
 َ ‫ا َوت َوف َنا ُم ۡسلِم‬hٗ i‫ب َنآ أفرغ عل ۡي َنا َص‬$ ‫َر‬
 BC
-ِ
 ِ
 mus'limina
 
@@ -1590,17 +1564,10 @@ And save us by Your mercy from the disbelieving people."
 ُ َ َُ َۡ َ $ َ$َ
 َ
 ۡ
-ۡ
-َ
-َ
 َ
 ُ
 $
 ۡ
-َ
-َ
-َ
-َ
 َ
 ُ
 Zِ[ ٖ‫ء‬Œۡ œ ‫ِ مِن‬ù‫ ٱ‬opq Àٰ Ãûü ‫ وما نعلِنۗ وما‬ÀÃِ û ‫ربنآ إِنك تعلم ما‬
@@ -1665,7 +1632,6 @@ Our Lord!
 َ
 $
 َ
-َ
 ِ‫ ٱلسمآء‬Zِ[ vw‫ِ و‬
 ‫—ض‬πw‫ٱ‬
 al-samai
@@ -1695,7 +1661,6 @@ Our Lord, indeed You know what we conceal and what we declare, and nothing is hi
 َ $ َ ُ َۡ ۡ ّ َ
 ۡ$َََ َ$َ $ُّ
 ُ
-َ
 َ
 ٰ
 ‫ۚ ربنا وتقبل دعآ ِء‬Œِ”‫ مقِيم ٱلصلوة ِ ومِن ذرِي‬Œِ“‫ب ٱجعل‬
@@ -1800,7 +1765,6 @@ Our Lord, forgive me and my parents and the believers the Day the account is est
 ۡ ‫ر ّب‬$
 ٗ‫ا‬hæِ‫ َصغ‬Z÷‫ب َيا‬$ ‫ۡ ُه َما َك َما َر‬ÖÜَ ‫ٱر‬
 ِ
-ِ
 saghiran
 
 rabbayani
@@ -1831,8 +1795,6 @@ small."
 18:10
 
 ٗ َ َ َ َۡ ۡ ََ ۡ ّ َ َ َٗ ۡ َ َ ُ$
-َ
-َ
 َ
 ‫ا مِن أم ِرنا رشدا‬dV ‫ة وهيِئ‬ÖÜ‫بنآ ءات ِنا مِن ^]نك ر‬$ ‫َر‬
 rashadan
@@ -2276,7 +2238,6 @@ Indeed, it is evil as a settlement and residence."
 َ ‫تق‬$ ‫ٱج َع ۡل َنا ل ِۡل ُم‬
 ۡ ‫ب َنا َه‬$ ‫َر‬
 ِ ِ
-ِ ِ
 ِ
 ٖ
 25:74
@@ -2511,8 +2472,6 @@ And admit them
 
 َ َ $ ۡ $ُّ َ ۡ َََۡ
 ۡ
-ۡ
-َ
 َ
 ُ
 ُ ‫وأزوٰجهم وذري ٰـتِه ۚم إنك أنت ٱلعزيز ٱ«∆َك‬
@@ -2712,7 +2671,6 @@ I do
 ََ ُ َ َ ٗ َ ََ ۡ َ
 ّ َ َ َۡ ُ ُۡ ّ ٓ $ ّ ُ
 ۡ
-ۡ
 Zِ÷®‫ك و‬öVِ‫ تبت إ‬Zِ÷ِ‫ۖ إ‬Œِ”‫ ذرِي‬Zِ[ Zِ‘ ‫ٰه وأصلِح‬ê‫أعمل صٰلِحا ت ۡرض‬
 َBC‫م َِن ٱل ۡ ُم ۡسلِم‬
 ِ
@@ -2784,18 +2742,15 @@ Our Lord
 ٗ
 $
 ّ
-ّ
 ْ
 ٞ
 $
-َ
 َ
 ُ
 $
 َ
 َ àÊِ ‫قُلُوب َنا غِ¨´ ل‬
 ٌ‫رحِ يم‬$ ‫ِين َءامنوا َربنآ إنك َر ُءوف‬
-ِ
 ِ
 rahimun
 
@@ -2845,8 +2800,6 @@ put not in our hearts [any] resentment toward those who have believed. Our Lord,
 
 َ
 ۡ
-َ
-َ
 َ
 َ َۡ َ َۡ$ََ َ َۡ َ َ$ $
 ۡ

@@ -308,7 +308,6 @@ worship Allah SWT alone.
 
 Sensitivity
 َ
-َ
 ْ َ‫ﻋ‬
 ٍ َ ‫ﻦ أَﻧ‬
 ‫ﻲ‬

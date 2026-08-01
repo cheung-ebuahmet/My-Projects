@@ -135,7 +135,6 @@ A
 QUALITY
 QUANTITY
 TIME
-TIME
 <
 y K.
 -
@@ -908,7 +907,6 @@ Figure 1. Muhammed’s family tree
 
 QUSAY
 
-T
 T
 
 Let’s start with Qusay.

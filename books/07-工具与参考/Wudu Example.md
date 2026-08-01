@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 Wudu Example
-Wudu Example
 Performing Wudu
 1. Make niyyah for wudu
 2. “Bismillah”

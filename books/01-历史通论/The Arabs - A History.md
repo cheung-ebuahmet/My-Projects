@@ -28526,7 +28526,6 @@ Arafat addresses, 1974
 diplomatic efforts
 Geneva Conference, 1973
 Resolution
-Resolution
 United Nations Emergency Force (UNEF)
 United Nations Security Council
 Resolution

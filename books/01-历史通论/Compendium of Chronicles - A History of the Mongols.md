@@ -2814,8 +2814,6 @@ wherever he is”
 
 ashughlu [ankle]
 ashughlu
-ashughlu
-ashughlu
 
 Texts have ‫ اوج‬ūj. The Russian translators (JTSL 1/1:89, note 3) suggest emendation to ‫ ارﰽ‬örki ‘billy goat.’ However, since all the other totem animals are birds, and the Ottoman translator (JTYZ) even translates as ūj qūsh ‘ūj
 bird,’ there may be some connection with ‫ اوﭼﯽ‬avchi ‘hunter.’
@@ -58576,7 +58574,6 @@ a regimental band of drums and clarions; the sounding of drums at certain times 
 JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 narin (Neria)
-narin (Neria)
 na’ur (nego*)
 nemäri (nemerI)
 nökär (noik*)
@@ -58934,7 +58931,6 @@ ordering, organization, particularly military (< ieseeeO) (207, D§1794).
 ulaghchi
 uljamishi
 ulus (folo_)
-ündür (foindo*)
 ündür (foindo*)
 urugh (foro))
 

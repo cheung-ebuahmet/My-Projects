@@ -26,8 +26,6 @@ is available from the Library of Congress.
 First Da Capo Press edition 2007
 Reprinted by arrangement with Weidenfeld &
 Nicolson, a division of The Orion Publishing Group
-ISBN-13: 978-0-306-8I585-0
-ISBN-IO: 0-306-8I585-0
 Published by Da Capo Press
 A Member of the Perseus Books Group
 www.dacapopress.com
@@ -15905,7 +15903,6 @@ Thought (New Haven, CT, 1992),
 PP·233-9·
 54. C. F. Robinson, Empire and Elites
 
-1
 1
 
 I

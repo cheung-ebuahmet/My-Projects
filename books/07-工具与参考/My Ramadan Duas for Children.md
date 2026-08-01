@@ -43,7 +43,6 @@ bārakta `alā 'Ibrāhīma wa `alā 'āli 'Ibrāhīma, 'innaka ḥamīdum-majīd
 ‫ﱠ‬
 ْ
 ِ
-ِ
 "O Allah, bestow Your favor on Muhammad and on the family of
 "I
 seek
@@ -68,7 +67,6 @@ warḥamhum.]
 "O Allah, bless them in what You have provided for them, and forgive
 them and have mercy on them." (Muslim 3/1615, Hisn al-Muslim 182)
 Dua for someone who gives you drink or offers it to you
-َ
 َ
 ّ
 ‫ﻖ ﻣَ ﻦ ﺳﻘﺎﻧﻲ‬

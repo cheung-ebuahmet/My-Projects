@@ -25984,7 +25984,6 @@ mäning yolumda ölgänlärning altı akhta atı hech kimer-
 säsiz
 tizgin
 basa
-basa
 yürür.
 Altısını
 ham
@@ -62332,7 +62331,6 @@ manders
 of
 ten
 thousand,
-thousand,
 and
 hundred, shahnas of provinces, falconers, leop-
 ard keepers, equerries, arms bearers, provision-
@@ -71000,7 +70998,8 @@ Jibu s/ Otchi Noyan 276, 281
 Jila s/ Shiktür Noyan (Jalayir) 68
 Jilanchi s/ Toghan Buqa (Jalayir) 
 68
-Jimgim (真金	 Zhēnjīn) s/ Qubilai 
+Jimgim (真金	
+ Zhēnjīn) s/ Qubilai 
 Qa’an (Tol.) 865, 915, 919f, 
 925f, 928f, 945–47
 Jinanch (Bäkrin) 142, 621
@@ -75385,7 +75384,8 @@ Balghasun, Aqbaligh of Cathay,
 the modern Zhengding (正定) at 
 38º 8′ N 114º 34′ E) 447, 455, 
 786, 951n
-Zhōngdū (中都,	 “Jungdu,” Peking, 
+Zhōngdū (中都,	
+ “Jungdu,” Peking, 
 Khanbaligh) 180, 184, 447–53, 
 639, 873, 900–2, 909, 915f, 921
 Zhǒnggē (冢哥) 454

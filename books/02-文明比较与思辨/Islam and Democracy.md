@@ -40,7 +40,6 @@ Esposito, John L.
 Islam and democracy / John L. Esposito, John O. Voll.
 p. cm.
 Includes bibliographical references.
-ISBN 0-19-510296-7; 0-19-510816-7 (pbk.)
 1. Islam and state. 2. Democracy—Religious aspects—Islam. 3. Islamic
 countries—Politics and government. I. Voll, John Obert, 1936- . II. Title.
 JC49.E76 1996

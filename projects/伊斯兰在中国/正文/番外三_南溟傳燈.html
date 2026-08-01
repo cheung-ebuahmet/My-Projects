@@ -1,0 +1,273 @@
+<!DOCTYPE html>
+<html lang="zh-TW">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>集名 — 天方東漸錄</title>
+<style>
+  /* ========== 字體導入 ========== */
+  @import url('https://fonts.googleapis.com/css2?family=Noto+Serif+SC:wght@400;600;700&family=Noto+Sans+SC:wght@300;400;500&display=swap');
+
+  /* ========== 全域重置 ========== */
+  * { margin: 0; padding: 0; box-sizing: border-box; font-style: normal; }
+
+  /* ========== 基底 ========== */
+  body {
+    font-family: 'Noto Serif SC', 'Songti SC', 'SimSun', serif;  /* 正文襯線 */
+    background: #f3efe8;   /* 淺牙色底，宋卷紙感 */
+    color: #2d2a24;        /* 墨褐字 */
+    line-height: 1.9;
+    font-size: 17px;
+  }
+
+  /* ========== 頂端裝飾線 ========== */
+  .top-bar { height: 2px; background: #4a3f38; opacity: 0.3; }
+
+  /* ========== 主容器 ========== */
+  .container { max-width: 720px; margin: 0 auto; padding: 48px 40px 64px; }
+
+  /* ========== 系列標頭區 ========== */
+  .series-label {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 6px;
+    color: #8b7b6e; text-align: center; margin-bottom: 6px; font-weight: 400;
+  }
+  .episode-number {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; color: #b0a69a;
+    text-align: center; letter-spacing: 3px; margin-bottom: 28px;
+  }
+
+  /* ========== 主標題 ========== */
+  h1 {
+    font-size: 30px; font-weight: 700; text-align: center; letter-spacing: 8px;
+    color: #2d2a24; margin-bottom: 44px; line-height: 1.6;
+  }
+
+  /* ========== 開篇名言（epigraph）========== */
+  .epigraph {
+    text-align: center; margin: 0 auto 44px; padding: 20px 28px;
+    border-top: 1px solid #d4cdc0; border-bottom: 1px solid #d4cdc0;
+    max-width: 560px; font-size: 16px; color: #6b6258; line-height: 1.9;
+  }
+  .epigraph .attribution {
+    display: block; margin-top: 8px; font-size: 13px;
+    color: #b0a69a; letter-spacing: 1px;
+  }
+
+  /* ========== 紀年表（timeline）========== */
+  .timeline {
+    background: #ece7df; padding: 20px 28px; margin-bottom: 44px;
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; line-height: 2; color: #5a524a;
+  }
+  .timeline-title {
+    font-weight: 500; color: #7a6b5e; margin-bottom: 6px;
+    font-size: 12px; letter-spacing: 3px;
+  }
+  .timeline-entry { display: flex; gap: 10px; }
+  .timeline-year { font-weight: 600; color: #4a3f38; min-width: 3em; }
+
+  /* ========== 正文段落 ========== */
+  .body-text p {
+    margin-bottom: 1.2em;   /* 段落間距 */
+    text-indent: 0;          /* 不縮排，左對齊 */
+    text-align: left;
+  }
+
+  /* ========== 雙空行分段（敘事呼吸）========== */
+  .body-text .section-break { height: 1.2em; }
+
+  /* ========== 強調 ========== */
+  .body-text strong, .body-text b { font-weight: 600; color: #2d2a24; }
+
+  /* ========== 引用塊（古文/引文）========== */
+  .body-text blockquote {
+    margin: 1em 0 1.2em 0; padding: 8px 20px;
+    border-left: 2px solid #c4b8a8;  /* 細左線 */
+    font-size: 15px; line-height: 1.9; color: #5a524a; text-indent: 0;
+  }
+  .body-text blockquote strong { color: #4a3f38; font-weight: 600; font-style: normal; }
+
+  /* ========== 詩歌穿插（短句節奏）========== */
+  .poem {
+    text-align: center; margin: 1.5em 0;
+    font-size: 16px; line-height: 2.2; color: #7a6b5e;
+  }
+  .poem span { display: block; }
+
+  /* ========== 結尾三段式 ========== */
+  .closing-landmark p { margin-bottom: 1.2em; }
+  .closing-reflection { margin-top: 1.2em; }
+  .closing-quote { margin-top: 1.2em; }
+
+  /* ========== 徵引書目 ========== */
+  .references {
+    margin-top: 48px; padding-top: 28px; border-top: 1px solid #d4cdc0;
+  }
+  .references h2 {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 4px;
+    color: #b0a69a; font-weight: 400; margin-bottom: 16px;
+  }
+  .references ol { list-style: none; padding: 0; }
+  .references li {
+    font-size: 13px; line-height: 1.8; color: #8b7b6e;
+    margin-bottom: 3px; padding-left: 1.5em; text-indent: -1.5em;  /* 懸掛縮排 */
+  }
+
+  /* ========== 響應式（手機）========== */
+  @media (max-width: 600px) {
+    .container { padding: 28px 20px 48px; }
+    h1 { font-size: 22px; letter-spacing: 4px; margin-bottom: 32px; }
+    body { font-size: 15px; }
+    .timeline { padding: 14px 18px; }
+    .epigraph { padding: 14px 18px; font-size: 14px; }
+  }
+</style>
+</head>
+<body>
+
+<!-- ███████████████████████████████████████ -->
+<!-- 頂端裝飾線 -->
+<!-- ███████████████████████████████████████ -->
+<div class="top-bar"></div>
+
+<div class="container">
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 系列標頭區 -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="series-label">天方東漸錄</div>
+  <div class="episode-number">番外三</div>
+  <h1>南溟傳燈：南洋華人回回尋蹤</h1>
+
+  <!-- #################################### -->
+  <!-- 如果沒有紀年表，刪除 timeline 整塊     -->
+  <!-- ########### 可選區：紀年表 ########### -->
+  <div class="timeline">
+      <div class="timeline-title">▎本集故事跨越的西元紀年</div>
+      <div>1405 鄭和首航——船隊中的回回官兵和通事踏上南洋</div>
+      <div>1409 鄭和在錫蘭（斯里蘭卡）立三語碑——中文、波斯文、泰米爾文並列</div>
+      <div>1413 回回通事馬歡隨鄭和第四航，後撰《瀛涯勝覽》</div>
+      <div>1424 福建漳州人馬永良（Ma Yong Liang）受命充當爪哇滿者伯夷王國與明朝之間使節，長達七十五年</div>
+      <div>1433 最後一次下西洋結束——部分回回官兵留居滿剌加、爪哇未歸</div>
+      <div>1450s 閩南回商在爪哇北岸以Lasem、Japara、Tuban為中心形成華人穆斯林聚落</div>
+      <div>1500s The Ling Sing（Telingsing）定居Japara，後被視為爪哇華人穆斯林聖墓之一</div>
+      <div>1786 檳城開埠——英國吸引華南回民商人</div>
+      <div>1856 杜文秀在雲南大理起義——建立平南國，自稱Sultan Sulayman</div>
+      <div>1873 杜文秀失敗——大批雲南回民逃往緬甸，Panthay社群形成</div>
+    </div><!-- 每條一行，格式：-->
+    <!-- <div class="timeline-entry"><span class="timeline-year">0000</span> 事件描述</div> -->
+  </div>
+
+  <!-- #################################### -->
+  <!-- 如果沒有開篇名言，刪除 epigraph 整塊 -->
+  <!-- ######### 可選區：跨界名言 ########## -->
+  <div class="epigraph"><p>「唐人（華人）流寓其地，娶其女，生子多隨唐俗，亦有從其教者。」</p><span class="attribution">—— 《明史·卷三百二十五·滿剌加傳》，明代正史對華人與馬來穆斯林通婚的記載</span></div>
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 正文開始                                  -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="body-text">
+    <p>印尼中爪哇，三寶壟（Semarang）。海港城市的北岸有一座廟——三寶廟（Kelenteng Sam Po Kong），相傳是鄭和船隊當年的登陸地。廟的正殿供奉着鄭和塑像，香火鼎盛；而在廟宇範圍內，還有一座小小的偏殿——面向麥加的清真寺。同一個人，兩座廟。鄭和是回回，他率領的艦隊中有阿訇，有從泉州出發的回回水手。他們踏上爪哇的土地後，有人在這裡娶了當地妻子，從此不再回到福建。五百年後，他們的後裔有的走進華人廟宇燒香，有的走進清真寺禮拜——同一條血脈，在同一座廟宇裏，走向了兩個方向。</p>
+    <p>鄭和本名馬和。他的祖父和父親都曾朝覲麥加，擁有「哈只」的榮銜。明軍征雲南時他被俘入宮為太監，獲永樂帝信任，賜姓鄭，命為下西洋正使。這位回回太監率領的艦隊穿越印度洋直達東非。在斯里蘭卡（錫蘭），他立了一塊三語石碑——1409年2月15日，中文一面讚佛，波斯文一面讚安拉，泰米爾文一面讚毗濕奴。同一塊碑，三種文明、三種祈禱並列，今存科倫坡國立博物館，已被聯合國教科文組織列入世界記憶名錄。</p>
+    <p>鄭和船隊中有兩位回回通事。一位是馬歡，浙江人，精通波斯語和阿拉伯語。他隨船隊三次下西洋，將沿途見聞寫成《瀛涯勝覽》。另一位是郭崇禮，也是回回。他們在1413年一起隨鄭和第四航出發。在滿剌加（馬六甲），馬歡記錄了當地的伊斯蘭面貌——「國王、國人皆從回回教門」；在爪哇，他記下了華人與當地人雜居的狀況。</p>
+    <p>船隊每次抵達南洋港口，停留數月等候季風。在此期間，一些回回官兵留在當地，娶了馬來或爪哇穆斯林女子為妻。子女隨母信仰伊斯蘭——這是華馬通婚在南洋最早的系統性起點。</p>
+    <p>明代正史《明史·卷三百二十五·滿剌加傳》對通婚有明確記載：</p>
+    <p>「那自國王以至下戶，皆遵伊斯蘭教門……唐人（華人）流寓其地，娶其女，生子多隨唐俗，亦有從其教者。」</p>
+    <p>三句話交代了三層事實：滿剌加是一個伊斯蘭國家；華人男性在此定居並與當地女子通婚；下一代在兩個文化之間——有些保持了華人習俗，有些隨母親皈依了伊斯蘭。這段文字出現在明代官方史書中，說明這種現象在明廷眼中已經普遍到值得記載的程度。</p>
+    <p>關於華人在南洋的活動，明末張燮《東西洋考》亦有系統記錄。張燮根據歷代典籍與當時海商的口述，遍錄西洋各國的山川、物產、貿易稅則與華人定居狀況。他在爪哇卷中寫到華商「以數百人聚落，間有入回回教者」——與《明史》形成佐證：華人下南洋不是個別現象，而是整個港口網絡中的結構性移民。</p>
+    <p>滿剌加——今天的馬六甲——在十五世紀是東南亞最重要的貿易樞紐。鄭和將其作爲中轉站，在此修建倉儲和船塢。馬六甲華人清真寺（Masjid Cina Melaka）墓園中，至今保留明代回回墓葬的墓碑，碑上中文與阿拉伯文並列。</p>
+    <p>在爪哇北岸，明朝與滿者伯夷（Majapahit）王國之間往來頻繁。福建漳州人馬永良（Ma Yong Liang）是一個代表性人物——他是華人穆斯林，在1424年至1499年間多次充當爪哇國王派往明朝的使節。1439年，他請求永樂帝允許返回漳州故里修建祖先祠堂；1447年，他被指控協助暹羅使節搭乘其船赴爪哇，最終獲判無罪。馬永良的名字在中文史料中被記載為「馬用良」或「馬永良」，同時期的荷蘭東方學者在整理印尼華人檔案時發現了他的活動記錄——一個華人穆斯林，在爪哇與中國之間來回穿梭長達半個世紀，本身就是華馬通婚與華人穆斯林網絡的證據。</p>
+    <p>至於爪哇北岸的Lasem（拉森）、Japara（查柏拉）、Tuban（杜板）一帶，華人回商的活動更為密集。荷蘭學者de Graaf和Pigeaud在其合著《Chinese Muslims in Java in the 15th and 16th Centuries》（1984年）中，利用三寶壟華人廟宇檔案和井里汶（Cirebon）華人記錄，重建了這些港口城市的華人穆斯林聚落形成過程。研究發現，最早的華人穆斯林移民多為來自福建漳州和泉州的回商——他們不是大規模集體遷徙，而是以個人身份經商到此，娶當地爪哇穆斯林女性、生子、置業。他們的後代形成了一個獨特的社群：Jawa Tionghoa。</p>
+    <p>其中一位被當地人奉為聖墓（kramat）的華人穆斯林——The Ling Sing（Telingsing）——十五世紀定居Japara，至今其墓葬仍受朝拜。他的名字在爪哇被轉寫為「Kyahi Telingsing」，被視為將伊斯蘭傳入爪哇北岸的先驅之一。此外，Tan Sam Tjai的名字出現在井里汶華人廟宇的牌匾上，其墓碑（1765年）至今仍受當地人供奉。</p>
+    <p>這些華人穆斯林的顯著特徵是姓氏與教名並存。荷屬東印度公司的戶籍登記中，他們被歸入「Vreemde Oosterlingen」（東方外僑），但與純華人不同的標誌是：不吃豬肉。東印度公司的官員報告中反覆以「不吃豬肉」作爲判定華人是否已「入回教」的標準。</p>
+    <p>對於這個社群在十五世紀的狀況，存在一份無可替代的直接證據——它是華人穆斯林自己留下的。明宣德八年（1433年），回回通事馬歡隨鄭和第七次下西洋歸國後，在《瀛涯勝覽》中記錄了爪哇的社會結構：</p>
+    <p>「國有三等人：一等回回人，皆是西番各國為商，流落此地，衣食諸事皆清致；一等唐人，皆是廣東、漳、泉等處人竄居是地，食用亦美潔，多有從回回教門受戒持齋者；一等土人，形貌甚醜異，崇信鬼教。」</p>
+    <p>三等人。回回人是來自西亞的穆斯林商人，唐人是來自廣東和閩南的華人，土人是當地原住民。而華人——唐人中——「多有從回回教門受戒持齋者」——很多人已經改信了伊斯蘭，受戒持齋。這是在歐洲人到達爪哇之前半個多世紀，一位華人穆斯林親眼所見的、爪哇北岸的族群格局。馬歡是回回，他的眼睛注意到了唐人的宗教歸屬——他不是在記錄一件新鮮事，他記錄的是一種他早已習以為常的現象。</p>
+    <p>在馬來半島，更深刻的融合機制在運作——「Masuk Melayu」（成爲馬來人）。在馬來傳統中，一個人只要改信伊斯蘭、講馬來語、遵循馬來習俗，就被接納為馬來人，不論血統出身。娶了馬來妻子的華人男性面對巨大的同化引力：子女在伊斯蘭學校學馬來語，在社區被視為馬來人。幾代之後，華人姓氏融入馬來名字——「陳」→Tan→Tan Sri，「林」→Lim→融爲父名系統。</p>
+    <p>但華人穆斯林對姓氏的執着同時構成另一股反向拉力。同一姓Tan的家族，可能一半是清真寺的常客，另一半在華人宗祠燒香。他們的中文姓氏成爲一條線索，從泉州穿過南海，在異鄉維繫着一個跨洋的親屬網絡。</p>
+    <p>荷蘭與英國在殖民地推行甲必丹制度（Kapitan Cina），為華人穆斯林提供了結構性角色。巴達維亞（今雅加達）的So Bing Kong（蘇鳴崗）是首任華人甲必丹（1619年），他在城外開墾蔗田、修建道路，同時資助清真寺和華人廟宇。Kapitan Cina的墓碑上，中文官銜旁往往刻着阿拉伯文經句。</p>
+    <p>華人穆斯林在南洋的故事不僅發生在鄭和時代。十六世紀初，歐洲人來了——他們帶着火炮和商船，也帶着尋找東方基督教盟友和香料的夢想。而與他們同行的，仍舊是華人穆斯林。</p>
+    <p>1517年正德十二年，葡萄牙使節皮萊資（Tomé Pires）率領第一支葡萄牙赴華使團抵達廣州。他們是歐洲大航海時代第一個正式踏上中國土地的使團——是塞凱拉（Sequiera）在馬六甲登陸九年之後，阿爾布開克征服馬六甲六年之後。廣東按察司僉事顧應祥在海道副使汪鋐進京時代管海道，親自在懷遠驛審視了這批來客。他在《靜虛齋惜陰錄》中記錄了對葡萄牙人的第一印象：「人皆高鼻深目如回回狀」。在他的筆下，這些來自遙遠歐洲的陌生人，長得和回回差不多。</p>
+    <p>這個觀察準確，但不全面。葡萄牙人當然不是回回——但使團中確實有一個回回：火者亞三（Khoja Hasan）。他是使團的通事（翻譯官），一個華人穆斯林。關於他的出身，史料沒有留下完整的記錄。從他的名字——「火者」是波斯語Khwāja的音譯，意為「先生」或「主人」，多用於中亞和波斯穆斯林——推測他很可能來自中亞、西域或與回回商業網絡有密切聯繫的家庭，長期在馬六甲經商，精通馬來語和波斯語，被葡萄牙人僱用為翻譯。顧應祥還記下了另一件事：葡萄牙人被要求去光孝寺學習天朝禮儀三天，第一日跪左腿，第二日跪右腿，第三日纔磕頭——這些禮節，很可能就是火者亞三教給他們的。他知道該怎麼做，因為他本身就是華人。</p>
+    <p>使團獲准入京。打破僵局的關鍵因素是龍涎香——永樂以降鄭和船隊的香料供應鏈中斷後，明朝宮廷長期短缺這種用於祭天和製香的名貴香料，廣東布政使吳廷舉因此「不拘年分，至即抽貨」，為《大明會典》未載的葡萄牙使團打開了缺口。火者亞三在北京見到了正德皇帝——這位熱衷於異域玩樂的年輕皇帝對葡萄牙人帶來的物品發生了濃厚的興趣。使團在會同館停留了一年多。但1521年正德駕崩，嘉靖即位，局勢逆轉。新政權追究前朝外交「失體」的責任，火者亞三和皮萊資一同被捕。火者亞三在廣州被問罪處死。皮萊資則死於廣州獄中——他的最後一本日記，從此佚失。</p>
+    <p>火者亞三的故事是歐洲人進入中國時，華人穆斯林仍在扮演中介角色的最後證據。在鄭和的時代，他們是帝國艦隊的通事；一個世紀後，他們成了歐洲探險家的通事。世界在變，但他們的角色沒有變——總是在兩個世界之間。他的死也標誌着一個時代的結束：此後兩百年間，華人穆斯林不再是中國與外部世界之間的主要語言橋樑——耶穌會士、外國傳教士和歐洲商人接管了這個角色。但華人穆斯林在南洋的擴散從未停止。</p>
+    <p>十五至十九世紀，另一條平行敘事在雲南與緬甸之間展開。</p>
+    <p>「走夷方」是雲南人的說法——越過邊境，進入夷人（緬甸、老撾、泰國）的地界經商。雲南回民自清代初期就沿着這條路線前往緬甸，在曼德勒、仰光、東枝一帶形成聚落。緬甸人稱他們為「Panthay」——語言學家認爲此詞源自撣語「Pang hse」，意爲「回回」。</p>
+    <p>1856年，杜文秀在雲南大理發動起義。史丹佛大學歷史學家David Atwill在其專著《The Chinese Sultanate: Islam, Ethnicity, and the Panthay Rebellion in Southwest China, 1856-1873》（2005年）中，對這場起義進行了最全面的學術分析。他的核心論點是：這場起義並非單純的漢回衝突，也非以伊斯蘭爲旗幟的宗教戰爭——它獲得了雲南各族群（白族、彝族、傣族等）的廣泛支持，杜文秀的口號是「安漢反清」，目標是驅逐滿洲統治，而非排斥漢人。Atwill指出，將起義簡化爲「回亂」是後來清廷和西方敘事共同製造的雙重神話。起義前夕，雲南人口從1775年的約四百萬增至1850年的約一千萬，其中漢族移民佔了絕大多數——土地、礦權、商業利益的競爭使族群關係急劇緊張。1856年昆明發生針對回民的大規模屠殺，由滿族官員Shuxing'a下令執行，成爲起義的直接導火線。雲貴總督恆春在回民聯軍圍攻昆明時絕望自殺（1857年7月）。</p>
+    <p>1873年，清軍攻陷大理。杜文秀服毒後被斬首，頭顱以蜂蜜保存送往北京。清軍隨後對滇西回民進行大規模屠殺，數以千計的平民遇害。大批倖存者翻越高黎貢山逃入緬甸，形成Panthay社群的真正起點。Atwill的Epilogue（「叛亂的餘波」）描述了逃亡者在緬甸撣邦和曼德勒地區定居的過程——他們憑藉茶葉、棉花、絲綢的跨境商隊貿易，在數十年內重建了經濟生活。逃亡路線從大理出發，經騰越（騰衝）出境，到緬甸臘戍，再到曼德勒；如果繼續向南，則到仰光；向東轉入泰國，則在清邁落腳。</p>
+    <p>值得注意的是，Panthay清真寺的建築風格至今保持着中國特色：中式飛簷斗拱，喚拜塔修成閣樓，漆成紅柱綠瓦。從外觀看更像一座關帝廟。雲南回民到了緬甸，把信仰藏在建築最熟悉的形式裏。曼德勒的Panthay清真寺至今中文牌匾高懸，阿拉伯文經文刻在門楣上。</p>
+    <p>五百年過去了。</p>
+    <p>今天在浙江義烏的國際商貿城，很容易遇到來自馬來西亞、印尼、緬甸的華人回商——說着夾南洋口音的中文，帶着陳、林、李、黃這些姓氏。來自緬甸的Panthay商人沿着滇緬公路北上，到昆明採購茶葉和日用百貨——與當年祖先逃亡的方向正好相反。</p>
+    <p>從泉州到滿剌加，從滿剌加到爪哇，從爪哇到緬甸，從緬甸回中國——他們的足跡寫成一部沒有署名的歷史，像鄭和那塊三語石碑一樣，三種祈禱同存於一石。</p>
+    <p><strong>鄭和以回回之身率領中原艦隊，馬永良以華人穆斯林之名往返爪哇與明朝之間，杜文秀以漢家子弟的身份建立伊斯蘭政權——這三個人的共同點不是信仰，而是他們都拒絕在兩個身份之間做選擇。從十四世紀到二十一世紀，南洋華人回回告訴我們的事實非常簡單：一個人的身份從來不需要只選一邊。</strong></p>
+  </div><!-- /body-text -->
+
+  <div class="references">
+    <h2>徵 引 書 目</h2>
+    <ol>
+      <li><strong>《明史·卷三百二十五·列傳第二百一十三》滿剌加傳</strong>（清·張廷玉等）——「唐人流寓其地，娶其女，生子多隨唐俗，亦有從其教者」，華馬通婚正史核心史料</li>
+      <li><strong>馬歡《瀛涯勝覽》（1433年）</strong>——回回通事親歷記錄，記爪哇社會「三等人」（回回人、唐人、土人），唐人「多有從回回教門受戒持齋者」；天方國記麥加禮拜寺</li>
+      <li><strong>費信《星槎勝覽》（1436年）</strong>——鄭和隨行通事記錄，可與馬歡互補</li>
+      <li><strong>鞏珍《西洋番國志》（1434年）</strong>——第三位隨行者的記錄，補充船隊組織細節</li>
+      <li><strong>張燮《東西洋考》（明萬曆年間）</strong>——明代西洋各國風土、貿易與華人定居情況的系統記錄，記爪哇華商「間有入回回教者」</li>
+      <li><strong>Galle Trilingual Inscription（鄭和錫蘭三語碑，1409年）</strong>——UNESCO世界記憶名錄，科倫坡國立博物館藏</li>
+      <li><strong>顧應祥《靜虛齋惜陰錄》（明嘉靖）</strong>——記1517年葡萄牙使團在廣州，「人皆高鼻深目如回回狀」；火者亞三為華人穆斯林通事</li>
+      <li><strong>金國平、吳志良〈一個以華人充任大使的葡萄牙使團——皮來資和火者亞三新考〉</strong>（《行政》第十六卷，2003年）——火者亞三生平研究，利用葡語和中文史料重建</li>
+      <li><strong>H.J. de Graaf & Th.G.Th. Pigeaud, *Chinese Muslims in Java in the 15th and 16th Centuries*（Monash Papers, 1984）</strong>——利用三寶壟與井里汶華人檔案重建爪哇北岸華人穆斯林聚落史；包含Ma Yong Liang、The Ling Sing、Tan Sam Tjai等具體人物</li>
+      <li><strong>David G. Atwill, *The Chinese Sultanate: Islam, Ethnicity, and the Panthay Rebellion in Southwest China, 1856-1873*（Stanford University Press, 2005）</strong>——Panthay起義最全面的學術分析</li>
+      <li><strong>Andrew Forbes, *Panthay: Chinese Muslims in Burma</strong>*——Panthay社群的英文權威研究</li>
+      <li><strong>Claudine Salmon, *Chinese Muslims in Java*（書評，載JSEAS, 1987）</strong>——對de Graaf & Pigeaud專著的系統評介</li>
+    </ol>
+  </div>
+
+</div><!-- /container -->
+
+
+<!-- ███████████████████████████████████████ -->
+<!-- 版權聲明                                    -->
+<!-- ███████████████████████████████████████ -->
+<div style="max-width:720px;margin:0 auto;padding:16px 40px 36px;border-top:1px solid #e0d8cc;font-family:'Noto Sans SC',sans-serif;font-size:11px;color:#b0a69a;text-align:center;line-height:1.8;">
+  <p>本文由 <strong style="color:#8b7b6e;"><a href="https://thestillway.hyvorblogs.io" target="_blank" style="color:#8b7b6e;text-decoration:none;border-bottom:1px dotted #c4b8a8;">澹然</a></strong> 書寫。</p>
+  <p>歡迎轉載、轉發與繁轉簡使用。分享時請保留作者與出處連結。</p>
+  <p style="margin-top:4px;">✦ 走入島嶼一隅的深處閱讀：thestillway.hyvorblogs.io</p>
+</div>
+
+</body>
+</html>
+
+
+<!-- ============================================================ -->
+<!--                    使用說明                                   -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--   ▸ 所有正文在 <div class="body-text">...</div> 內               -->
+<!--   ▸ 關鍵結構：                                                    -->
+<!--       <p>段落</p>                    一般段落                      -->
+<!--       <div class="section-break"></div>   雙空行分段（敘事呼吸）      -->
+<!--       <blockquote>...</blockquote>        引用塊（古文引文）         -->
+<!--       <strong>...</strong>                粗體強調                   -->
+<!--       <div class="poem">...</div>         詩歌穿插                  -->
+<!--   ▸ 結尾三段式：closing-landmark + closing-reflection + closing-quote -->
+<!--   ▸ timeline / epigraph 為可選，不用即刪                           -->
+<!--   ▸ 配色一律用 palette 中的色碼，不引入新色                        -->
+<!--                                                                  -->
+<!-- ============================================================ -->
+
+
+<!-- ============================================================ -->
+<!--  配色一覽（宋代風）                                           -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--  背景底色     #f3efe8  淺牙色，宋卷紙感                          -->
+<!--  主文字色     #2d2a24  墨褐                                      -->
+<!--  深輔助色     #4a3f38  深檀木（年份、頂端線）                     -->
+<!--  中輔助色     #8b7b6e  鼠灰棕（系列名、徵引書目）                 -->
+<!--  淺輔助色     #b0a69a  枯茶色（集號、出處）                      -->
+<!--  引用文字     #5a524a  棕灰                                      -->
+<!--  邊框線       #d4cdc0  米灰                                      -->
+<!--  紀年底色     #ece7df  淺米                                      -->
+<!--                                                                  -->
+<!-- ============================================================ -->

@@ -8274,7 +8274,6 @@ Bukhârî, “Maghâzî”, 15; Wâqidî, al-Maghâzî, I, 182; Ibn Sa’d, at-T
 Sûrat-ul-Anfal, 8/58.
 Sûrat-u Âl-i ‘Imrân, 3/12.
 Ibn Sa’d, at-Tabaqât, II, 29.
-Ibn Sa’d, at-Tabaqât, II, 29.
 
 199
 
@@ -15994,7 +15993,6 @@ household members called him, he replied by saying “Yes”.”399
 399
 
 Ibn Maja, “Zuhd”, 16; Hâkim, al-Mustadrak, II, 506; Ibn Sa’d, at-Tabaqât, I, 371; Bayhaqî, Shu’ab-ul-îmân, VI, 289.
-Qâdî Iyâd, Shifâ-i Sharîf, s, 116.
 Qâdî Iyâd, Shifâ-i Sharîf, s, 116.
 Shamsaddîn Shâmî, Subulu’l-Hudâ, VI, 7.
 

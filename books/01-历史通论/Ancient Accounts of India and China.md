@@ -3398,7 +3398,6 @@ pf this Idol, and layj it is drelTed in red Leather, and
 has rwo great PeUrE for Eyes.' The Emir who was Lord
 eftlusCity* in die Days g i ^bnl/eda, received the Of- •
 ‘
-‘
 „
 fcriiiM
 
@@ -17211,7 +17210,6 @@ idvanccs of the
 ' ,iame,
 I
 z
-o
 o
 .b
 men are, ,

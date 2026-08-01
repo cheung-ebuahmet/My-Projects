@@ -93,8 +93,6 @@ Those Required to Pay Zakat
 
 Those who satisfy the following conditions are required to pay the Zakat:
 •
-•
-•
 
 Muslims who own a minimum amount of extra wealth (referred to as Nisab)
 beyond the necessities of life, such as food, clothing, places of residence, means
@@ -503,7 +501,6 @@ fast)."
 
 The Essential Elements of The Fast
 •
-•
 
 •
 
@@ -520,8 +517,6 @@ thread (light) of dawn appears to you distinct from the black thread
 
 *The Recommended Acts of the Fast
 •
-•
-•
 
 Eating the Suhur meal, which is a breakfast (eating and drinking) eaten during the
 latter part of the night until dawn with the intention of fasting.
@@ -533,8 +528,6 @@ http://www.islambasics.com
 
 *Acts Disliked During the Fast
 
-•
-•
 •
 
 Exaggerating while rinsing the mouth and cleaning the nose is disliked during
@@ -589,9 +582,6 @@ http://www.islambasics.com
 
 •
 •
-•
-•
-•
 
 •
 
@@ -623,10 +613,6 @@ this day also (i.e. lath Muharram).
 
 *Days That the Muslims Are Forbidden to Fast
 •
-•
-•
-•
-•
 
 During the days of the two 'Eids (i.e. the festivals of the Day of the Sacrifice on
 the lath day of Thul-Hijjah, and the Day of Breaking the Fast on the 1st day of
@@ -642,10 +628,6 @@ The woman should not fast while her husband is present except with his
 permission, excluding the obligatory fast of Ramadhan.
 
 *When is Fasting Discouraged
-•
-•
-•
-•
 •
 
 Fasting the Day of `Arafah for those who are performing Hajj and standing at

@@ -25,7 +25,6 @@ Ali, Kecia.
 Marriage and slavery in early Islam / Kecia Ali.
 p. cm.
 Includes bibliographical references and index.
-ISBN 978- 0- 674- 05059- 4 (alk. paper)
 1. Marriage (Islamic law) 2. Concubinage (Islamic law)
 3. Slavery (Islamic law) I. Title.
 KBP542.35.A45 2010

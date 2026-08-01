@@ -1,16 +1,10 @@
-## 第1页
-
 His; tory c 的
 1m GET nmTh
 
 Fro 和 L且耻有过避o NiGtZSseh 已
 
-## 第2页
-
 The History of lslam
 in German Thought
-
-## 第3页
 
 Routledge Studies in Cultural History
 
@@ -84,8 +78,6 @@ From Leibniz to Nietzsche
 
 lan AlImond
 
-## 第4页
-
 The History of lslam
 
 in German Thought
@@ -97,8 +89,6 @@ lan Almond
 
 本 ar   r&Francis Croi
 York London
-
-## 第5页
 
 First published 2010
 by Routledge
@@ -127,12 +117,7 @@ marks, and are used only for identification and explanation without intent to in
 
 A catalog record has been requested for this book.
 JISBN10: 0-415-99519-1 (hbl)
-ISBN10: 0-203-86728-9 (ebk)
 
-ISBN13: 978-0-415-99519-1 (hbk)
-ISBN13: 978-0-203-86728-0 (ebko)
-
-## 第6页
 
 Contents
 
@@ -196,8 +181,6 @@ Scplesgel tpe 有istoria1: Tslaza as Sig1ica2t Variaple
 94
 98
 
-## 第7页
-
 Vi Cozte7zats
 6 Hegel and the Disappearance of Islam
 五egel azazd tbje to1-Ezrobpea11: So71ze C1itical Fa11tetOOT7RS
@@ -227,7 +210,6 @@ Apozt tpe 4Aztjpor
 Jadex
 
 08
-08
 
 11
 
@@ -256,8 +238,6 @@ Jadex
 201
 203
 
-## 第8页
-
 Acknowledgments
 
 A number of people have helped in the reading and commenting of vari-
@@ -277,12 +257,6 @@ in PMLA4A 123, no. 1 (January 2008); Chapter 8 first appeared in Cer71z0712
 Tie azd Letters 56, no. 1 (2003), and then in a revised form in my own
 book Tpe Nezm Oriezatalists: Postztodeyz71a Rebpyese1atatiozs oF Jslazzaz Fro7z7a
 Bazxdrilard io Foxcaxit (LI B. Tauris, 2007).
-
-## 第9页
-
-
-
-## 第10页
 
 Introduction
 
@@ -321,8 +295,6 @@ more Sensitive awareness of the process of compartmentalization was nec-
 essary ifthe simultaneity of differing beliefs in the same thinker was to be
 addressed effectively. Instead of seeing thinkers as collections of reasonably
 coherent, gradually self-modifying beliefs and opinions, located around a
-
-## 第11页
 
 2 Tpe History of Jslazza zzz Ger11aa1t Tpozxgpt
 
@@ -372,8 +344,6 @@ ing Persian and Arabic, absorbing countless books on Arabs and Muslim
 culture, did not prevent him from ultimately seeing the Muslim world as
 a Satanic phenomenon. Rather than seeing a prejudiced and biased Orien-
 talist tradition which poisoned the innocent curiosity of the literary and
-
-## 第12页
 
 Jatrodzctiom 3
 
@@ -426,8 +396,6 @@ tians, and yet “to our endless shame, he lets Christians live under him with
 
 more ease and freedom than Christians do7”.
 
-## 第13页
-
 4 Tpe History ofJslazza zzz Ger11aa1t Tpozxgjt
 
 In the German-speaking lands at that time, contact with and awareness
@@ -478,8 +446,6 @@ the library and read a couple of books about the Turks. What particularly
 concerned many German thinkers was the emergence of 'the Eastern Ques-
 tion', a nineteenth-century diplomatic term for an ongoing crisis: the state
 
-## 第14页
-
 Jatrodzctioz 5
 
 of Christians (Greek Orthodox and Armenian) living under Ottoman rule，
@@ -523,8 +489,6 @@ how people can be moved to tears at the plight of suffering children in Tpe
 天ite Rz1z1ten and yet still support the bombing of Afghanistan一has been
 the driving force behind the writing of this melancholy book.
 
-## 第15页
-
 1 Leibniz, Historicism and the
 Plague of Islam
 
@@ -567,8 +531,6 @@ basic inability to reconcile the three separate (albeit porous) identities his
 work presents us with: Leibniz the political thinker, Leibniz the Christian
 apologist and Leibniz the early Enlightenment seeker of origins.? The rest
 of this chapter will try to show how the agreements, tensions and conflicts
-
-## 第16页
 
 工eipzazz, istoyicis11t da11d tpe Plagxe of Tslaxzz 7
 
@@ -621,8 +583,6 @@ Nevertheless, any such attempt to argue for an unambiguously negative
 Tepresentation of Islam in Leibniz's work fnds itself complicated by three
 Problematic counterpoints. The first of these is Leibniz's epistemological
 
-## 第17页
-
 8 Tpe History ofJslazza zz Germ1aa1t Tpozxgjt
 
 Subtlety一a sophisticated awareness of the extent to which human beings
@@ -672,8 +632,6 @@ ally, colour and calibrate our own understanding of Leibniz's response to
 “Turcis et Tartaris”. As these four alternative frameworks suggest different
 evaluations of Leibniz's own thoughts on Islam, it might be worthwhile to
 spend a moment briefly considering each one in turn.
-
-## 第18页
 
 工eipzazz, istoyzicis11a da11d tpe Plagzxe of Jslazz 9
 
@@ -725,8 +683,6 @@ its ransacking during the Thirty Years” War only served to emphasize the
 German“dearth of texts and teachers of Arabic”up to 1650 (Toomer).5
 Amongst the Oxford/Campbridge renaissance of Arabic studies in the
 
-## 第19页
-
 10 了Tpe History ofJslaxzzz za Ger71aa12 Tpozxg1t
 
 Seventeenth century, the figure of Edward Pococke (1604-1691) emerges as
@@ -776,8 +732,6 @@ clopaedia project, his parallel Lullian interest (at the same time as Kircher
 andKuhlmann) in an artificial language, his reading of Kabbalists such as
 Van Helmont, not to mention Leibniz's faintly Rosicrucian belief that the
 
-## 第20页
-
 工ezbztzz, 再istoyicis11t d11d tpe Plagxe of Tslaxzz 11
 
 wisdom inherent in the mystery of the numbers“came from the Orient to
@@ -825,8 +779,6 @@ Praises how untouched Germany is by hurricanes and earthquakes (unlike
 “Asia and Southern Europe”36); Germany may not have any oranges, but
 it doesn't have any Scorpions either一in any case, Leibniz adds， our own
 apples taste much sweeter than any India could send us. Mixed in with a
-
-## 第21页
 
 12 了pe History of Jslazza zz Ger11aa1t TPpozxgp
 
@@ -876,8 +828,6 @@ would educate the“common man”(Sge71zeijze Ma1z7jz) out of their desire for
 “animal drunkenness and card playing”(p. 84) and give them a better
 understanding of their war- and peacetime duties. Patriotism, for Leibniz，
 is an expression of intelligence, not a subjugation of it. In this national
-
-## 第22页
 
 工eipzazz, istoyicis11t d1td tpe Plagre of Jslaxzz 13
 
@@ -930,8 +880,6 @@ Orient” than the Ottomans (12zjpil Oyiezztipas . .1icet ijz po7tzpa11U 011N1U0
 1711Dellizs一Marx would make the same mistake two hundred years later),
 we fnd the author of the Egyptiaz Plaz, bereft of the Lutheran consolation
 
-## 第23页
-
 14 了Tpe History of Jsiazza zz Ger11aa1a Tpozgpt
 
 of a Hidden Hand, trying to understand ten years later how such Turkish
@@ -980,8 +928,6 @@ inability to fully grasp all the dimensions of temporality. Just as the unen-
 lightened peasant Leibniz wished to educate“thinks no further than they
 see”and deems all“histories to be the same as fairytales”(p. 84)，Leib-
 nizs Muslims一he remarks on several occasions一fnd themselves equally
-
-## 第24页
 
 工eipzazz, istoyicis11ta d11d tpe Plagzxe of Jslazz 15
 
@@ -1033,8 +979,6 @@ Series of texts written during the most crucial period in the possible Mus-
 lim domination of Europe, the result is a strangely secular analysis of the
 enemy一Leibnizs Turks, one almost feels, could quite easily be replaced by
 
-## 第25页
-
 16 了Tpe History of Jslara zz Ger11aa1a 了pozgjt
 
 Visigoths or barbarians with no great disturbance to the text, so little does
@@ -1085,8 +1029,6 @@ Sadorial reports.5 The conscious use of history in the Plazz as a pragmatic
 tool of legitimation is also striking.“This project”Leibniz tells us,“has
 always been attractive to the greatest and wisest men as the sole means of
 
-## 第26页
-
 工eipzazz,， istoyzicis11t d1td tpe Plagre of Jslazz 17
 
 re-establishing [7restaz7i7tdz71zz] the interests of Christianity in the Orient?.5
@@ -1134,8 +1076,6 @@ over possibility, development over stasis, an ontology whose universe sees
 happiness as“a perpetual progress to new pleasures and new perfections?(P.
 204j, it is not diffticult to imagine how Leibniz might see the expansion of
 cujture to be the expansion of consciousness.
-
-## 第27页
 
 18 了Tpe History of Jsiaza zz Ger11aa1a 了Tpozgjt
 
@@ -1185,8 +1125,6 @@ Wesaw in the previous section how every time Leibniz encountered the faith
 and followers of Islam and its cultures in a political context, the Muslim
 Other was either demonized or, at the very best, transformed into a quali-
 tyless，adversarial abstract一a faceless Turk. We also saw how mnutually
-
-## 第28页
 
 工eipzazz, istoyicis11t G11d tpe Plagzxe of Jslaxzz 19
 
@@ -1238,8 +1176,6 @@ Muslims] and have heard their false opinions and errors, and in order
 that they may give praise to Our Lord God . . .工. . . wish to exert my-
 self to the utmost in fnding a new method and new reasons by which
 
-## 第29页
-
 20 了Tpe History of Jslaxzza zz Germ1aa1t 了pozxgpt
 
 those in error might be shown the path to glory without end and avoid
@@ -1288,8 +1224,6 @@ campaigns (as good as“the victories of a great monarch”) in the propaga-
 tion of the Christian faith一an evangelical device, moreover, indebted in no
 small part to medieval Christendom's most renowned anti-Islamic apolo-
 gist' it is difficult not to see Islam, in the form of the encroaching pressure
-
-## 第30页
 
 工eipzaiz, 本istozicis11a Gd1td tbe Plagrze of Jslaxzz 21
 
@@ -1342,8 +1276,6 @@ North Africa, choosing rather to blame the indigenous Christianity there
 (<ifthe Nubians . . . have lost their faith, it is due more to the faults of their
 Pastors than any love of Mahomet?80). This reluctance to acknowledge
 
-## 第31页
-
 22 了Tpe Bistory of Tsiazza zz Ger11a011 了Tpozgjt
 
 anything remotely good about Islam一and the consequent decision to
@@ -1392,8 +1324,6 @@ of one's own. Nevertheless,，by the time we reach the Tpeodicy (1710)，
 Leibniz'xs approach is generally more positive, although the clause-induc-
 ing “even” still persists:
 
-## 第32页
-
 工eipzaziz, 下istoyzicis11a d1td tpe Plagre of Jslaxzz 23
 
 Even Mahomet in time did not stray from these important teachings of
@@ -1440,8 +1370,6 @@ It is good to study the discoveries of others in such a way that allows
 us to detect the source of their inventions and to make them in some
 Sense OU Own. And I wish authors would give us the history of their
 discoveries and the process by which they arrive at them.”0
-
-## 第33页
 
 24 了Tpe History of Jslazza zzz Gez11aa1t TPpozxgp
 
@@ -1493,8 +1421,6 @@ tion the Turk's possible kinship with Kalmucks and Scythians一effectively
 Sideline any interest in the Turk as a political contemporary. For Leibniz，
 the genealogy of Mohammed and the identity of Ibn Khallikan become
 
-## 第34页
-
 工eipztzz,， Histoyzicis11t d1td tpe Plagre of Jslaxzz 25
 
 more important than the Sultan's intent in Transylvania or the size of his
@@ -1543,8 +1469,6 @@ hand, and Greek, Roman and Western ones on the other”.101 The Muslim，
 Previously so inept at history, now becomes an important correlating factor
 in the verification of the past, a supplier of“powerful evidence of truth?”
 (ibid.). The desire to have a translation of the Koran made by a lay scholar，
-
-## 第35页
 
 26 了Tpe History of Jslaxzza zz Ger11aa1t 了pozxgp
 
@@ -1596,8 +1520,6 @@ of Persia also contains many words close to German . .. One could
 explain all these things concerning the origins of peoples, if one knew
 well the nations of Scythia from Poland up to China, and in order to do
 
-## 第36页
-
 工eipztzz,， istoyzicis11t d1td tpe Plagre of Jslaxzz 27
 
 this, I propose, that we try to obtain the pater 11osten in the languages
@@ -1648,8 +1570,6 @@ of Turkish/Arab historians，the positive，anti-idolatrous elements within
 Islam and the ethnolinguistic proximity of Arabic and Turkish not merely
 to German, but also to the hypothetical primordial tongue. This movement
 
-## 第37页
-
 28 了Tpe History of Jslazza zz Ger11aa1t TPpozxgp
 
 from eternal foe to philological source is no sea-change, nor does it repre-
@@ -1665,8 +1585,6 @@ Scripture, would ultimately problematize Leibnizxs simplistic Picture of the
 “Mohammedan' faith. A consecration of the origin, a fdelity to U7spyrza7z-
 ge1, would dilute, though never quite remove, Leibniz's historically inher-
 ited antipathy to Islam.
-
-## 第38页
 
 2 ant, Islam and the Preservation
 of Boundaries
@@ -1711,8 +1629,6 @@ it would appear, disorients; when it appears out of its natural place, when
 it moves unexpectedly from the“remote”(das Ezatferztere) to invade the
 near and present (gege1tt0lijftigj, the result can only be perplexity. Beneath
 this upsetting of what Kant calls“a certain order”in the communication
-
-## 第39页
 
 30 了Tpe History ofJsjarz za Geyz1aa12 TPpozxgHt
 
@@ -1764,8 +1680,6 @@ Whatever the empire may have been, it is now in decay. In introducing
 the reader to his project for a new“critical inquiry into the faculty of rea-
 Son . . .as well as the extent and limits of this science”(ibid., p. 5), a late
 
-## 第40页
-
 天Ga11 Tslazza da11d tpe Preservatioz of Bozzadazies 31
 
 Roman feel creeps into the passage, a desire to restore Some former glory to
@@ -1813,8 +1727,6 @@ truth, are labouring under a delusion with regards to their true identity.
 Both share an Oriental aversion to good,，Protestant hard work-一4A7pe芝
 being a word which appears again and again throughout the text, the hard
 work of scholarship and reason juxtaposed against the mystical ease of the
-
-## 第41页
 
 32 了pe Histozy of Jsiazza zz Ger71aa1a 了pozgpt
 
@@ -1866,8 +1778,6 @@ Scpzoiyz71ze7:
 This person is actually a madman with an allegedly incommunicable
 inspiration and a great understanding with the divine forces. Human
 
-## 第42页
-
 天Ga1z Tsla11a 11d tpe Preservatioz of Bozzadaries 33
 
 natureknows no greater deception . . . when the outbreak (4Azsbyrxcp) is
@@ -1916,8 +1826,6 @@ cable inspiration”一lies by virtue of its sublimity outside contestation，
 circumventing rational debate by constantly appealing to the unthink-
 able, inducing in the enraged rationalist the very sense of "helplessness”
 Kant would later attribute to the dynamical sublime.
-
-## 第43页
 
 34 了Tpe History o太Jslazza zzz Gez1aa1z TPporxgjpt
 
@@ -1969,8 +1877,6 @@ Beazatijaul axzad tpe Suplizze, we are assured that“the inhabitant of the OFri
 ent . . . has no concept of the morally beautiful, which can be united with
 [the moral impulsel, he loses even the worth of the sensuous enjoyment, and
 
-## 第44页
-
 天Ga1z Tsla11a da11d tpe Preservatio1z of Bozzadaries 335
 
 his harem is a constant Source of unrest”, stressing once again the constant
@@ -2018,8 +1924,6 @@ them by their poz7zis. It is interesting, and by no means inconsistent, that
 paradisal sex is offered alongside the mystical annihilation of selfhood
 as examples of the“monstrosities”unrestricted speculation (led by taste)
 would impose upon reason. The description Kant offers for such mystical
-
-## 第45页
 
 36 了Tpe History of Jslazzz za Ger1aa72 Tpozg1t
 
@@ -2071,8 +1975,6 @@ life”and the“harlotry”of the Koran30 with their asceticism，fanatical
 courage and religious devotion,;l Kant's emphasis on a sensual faith is
 undermined elsewhere by a very different version of Islam一one more to do
 
-## 第46页
-
 天Ga11 Tsla1za 011d tbe Pyeservatio1z or Boztzzdaries 37
 
 with harsh severity and“devotional practices . . . of a fierce kind”(6:184)
@@ -2121,8 +2023,6 @@ tical concepts and the“moral good”) until we arrive at zeRatb the Muslim
 equivalent of the tithe. Here Kant encounters a problematic similarity and
 produces the same kind of "almost” (js Luther had to fnd in dealing
 
-## 第47页
-
 38 了Tpe History of Jslaxzz zz Cer1aa72 了Tpozg1t
 
 with the “Mohammedans”predestination and iconoclasm: Islam momen-
@@ -2170,8 +2070,6 @@ collapse and compensation”3? (or what Yu Liu has termed“the crisis-and-
 recovery mechanism”of the Cryiigze40)一Kant's treatment of the sublime
 is generally understood to be problematic to some varying degree. How-
 ever, What is absent in these responses to the Kantian sublime, particularly
-
-## 第48页
 
 天Ga1z Tsla1zza ad1zd tjpe Preservatio1z of Bozzadaries 39
 
@@ -2224,8 +2122,6 @@ ous three-way struggle emerges between imagination and the feeling of the
 sublime一for the sublime, we should recall, is no Place or name, but above
 all the judgement of a sensation一and between reason and the imagination.
 
-## 第49页
-
 40 了Tpe History of Jsiaza zz Ger71aa1 了Tpozxgpt
 
 This tension explains the agonistic tone which pervades Sections 23 to 29，
@@ -2273,8 +2169,6 @@ stones on top of one another) are piesented only obscurely, and hence
 their presentation has no effect on the subject's aesthetic judgmenti;
 and if one gets too close, then the eye needs some time to complete the
 apprehension from the base to the peak, but during that time some of
-
-## 第50页
 
 天G1坟Tsla1z1za Gd11d tpe Pyeservatioz of Boztadaxries 41
 
@@ -2324,8 +2218,6 @@ intelligibility or purpose in a phenomenon. In the paragraph immediately
 following the example of the pyramids, Kant writes:“An object is mon-
 strous (Usgepexer) 让 by its magnitude it nullifies the purpose that con-
 stitutes its concept”. The crucial significance of this relationship between
-
-## 第51页
 
 42 Tpe History of Jslazza zz Ger11aa1z TPpozxgjt
 
@@ -2377,8 +2269,6 @@ of the subject一they do not stop at the merely sensible. Otherwise such agi-
 tations would constitute nothing more than the“enjoyment”that“Orien-
 tal voluptuaries fnd so appealing when they have their bodies thoroughly
 
-## 第52页
-
 天Ga1t Tsla1a da11d 态e Pyreseruvatio1z o Bozzadaries 43
 
 kneaded, as it were, and have all their muscles and joints gently squeezed
@@ -2426,8 +2316,6 @@ within the two faiths creates a Space which excites the imagination of their
 believers. Kant's proper response to this一not necessarily to Supply icons
 and other rituajlistic trappings to puncture the vacuum and pre-empt the
 overactive imagination，but rather check and moderate the enthusiasm 让
-
-## 第53页
 
 44 了Tpe History of Tslazz zz Ger1aa12 了pozg1t
 
@@ -2479,8 +2367,6 @@ tion of thinking as being knowledge of the object.
 
 一Crigze of Prre Reasoz, A 396353
 
-## 第54页
-
 天Ga1t Tsla1za da11d 态e Pyreseruvatio1z o Bozzadaries 45
 
 In this chapter，we have been trying to defamiliarize a latent topography
@@ -2531,8 +2417,6 @@ about Shiia Islam and the pilgrimasge site of Mecca, of how Turks sit and
 Arabs recite poetry, knowledge which elsewhere only ever slips through the
 wall of Kant's abstract prose in minor allusions or incidental footnotes. In
 
-## 第55页
-
 46 了Tpe Histozy of Jsiaza zz Ger71ta1 了pozgpt
 
 comparison with the rest of Kant's critical project一which“abstracts from
@@ -2582,8 +2466,6 @@ ple apart from the Europeans do and which proves the narrow mental-
 ity of all the others) they would perhaps make the following divisions，
 after showing the imperfections in their characters:
 
-## 第56页
-
 天Ga1tt Tslazza da12d 切e Preseruvatio1z or Borzzadaxies 47
 
 1. Land of fashions (France) 2. Land of moods (England) 3. Land
@@ -2632,8 +2514,6 @@ recalls a time in the not too distant past when“a large part of Europe”was
 under foreign dominion. Of course, Kant's brief gesture here belongs to an
 established eighteenth-century tradition of imaginary Oriental viewpoints，
 Montesquieu's Peysiaz Letters and others. Moreover, the examples Kant
-
-## 第57页
 
 48 了Tpe istory of Jslazza zzz Gezm1aa1t TPozxgp
 
@@ -2685,8 +2565,6 @@ ish travellers here is by no means as explicit, and yet the passage is still
 remarkable for its latent externality; with its Turkish renaming of Poland
 and England, it constitutes one of the few moments in Kant's oeuvre where
 
-## 第58页
-
 天Ga1t Tsla1za da11d tpe Preservatio1z of Bozzadaries 49
 
 the Orient is allowed to gaze back, and indeed name what it gazes upon.
@@ -2737,8 +2615,6 @@ imputed to him, which however are not true. After the death of Hatice
 he married Ayse, a daughter of Abubekr. Of his journey through the
 Seven heavens. The people of Medina began to follow him, and he fled
 
-## 第59页
-
 350 了Tpe History of Jslara zz Ger71aa1a 了pozgjt
 
 there from persecution, which he suffered from the government of Me-
@@ -2787,8 +2663,6 @@ of Islam，what Kant himself had elsewhere called“a great adventure”一
 underlines Kant's main aim in this section: to reduce Islam to three para-
 graphs in a book, to expose the origins of a proud faith as the workings of a
 small, feudal cult, engineered by a gifted, charismatic leader with delusions
-
-## 第60页
 
 天G11太Tslaz1a Gd11d tpe Preservatioz of Bozzadazies 51
 
@@ -2840,8 +2714,6 @@ we have learnt to consider footnotes differently, even if this is particularly
 true in the case of Kant and his “mere” appendices; nor is it simply a point
 of remarking, once again, how the eighteenth-century project of modernity
 
-## 第61页
-
 352 了Tpe History of Jslaza zz Ger11aa1a 了pozgjt
 
 had its origins in a very European desire for separation, had its conditions
@@ -2856,8 +2728,6 @@ it can inflict upon the order of reason. The paucity of attention Kant showed
 towards Mohammed and“Mohammedanism”, ultimately, represented the
 most comfortable way of keeping those“swarms”outside the ordered, free，
 rational space of his philosophy.
-
-## 第62页
 
 3 Herders Arab Fantasies
 
@@ -2903,8 +2773,6 @@ This juxtaposition of two Mohammeds, however一one a cunning deceiver，
 the other a“pure”source of aid and inspiration一is not merely of bio-
 graphical interest, another handy reference for Herder scholars to colour
 the history of a familiar rivalry. Herders two Prophets point the way to
-
-## 第63页
 
 54 了Tpe History of Jslazz za Ger1aa12 了Tpozg1t
 
@@ -2957,8 +2825,6 @@ century, presents his somewhat sympathetic treatment of the Muslim OFri-
 ent as unusual but by no means without precedent. The travelogues Herder
 had to rely on ranged quite widely from the blatantly biased 'travellers' tale”
 
-## 第64页
-
 五erder's A7aD Fazatasies 355
 
 to the more measured account which, if not free from a European perspec-
@@ -3006,8 +2872,6 @@ losophy and thereby lost their spirit, for example, or a reference to the Arab
 lexicographer who counted four hundred words for "misery"” 8 Sometimes
 he is self-mocking and light-hearted一as in when, in a letter to Hamann，
 he calls himself a Turkish camel driver, or addresses the Orientalist Carsten
-
-## 第65页
 
 56 了Tpe History of Jsiaza zz Ger11aa11 了Tpozxgpt
 
@@ -3058,8 +2922,6 @@ ences, for the good of the citizen and the heart of men.
 
 一Die Azsgiessz1zg des Geistes2
 
-## 第66页
-
 五erdey's 47aD Fazatasies 357
 
 It would be wrong to try and isolate Herder's Christian faith，or to Pre-
@@ -3107,8 +2969,6 @@ His Koran made such an impression on [the Arabsl]，because it con-
 tained so many sublime placesi it couldn't, therefore, have been any-
 thing other than heaven-sent. Mohammed appointed himself on this
 basis and challenged all to competition: because he excelled [all around
-
-## 第67页
 
 358 了Tpe History ofJsiaza zz Cer11aa11 了pozgpt
 
@@ -3158,8 +3018,6 @@ somehow wiong. When we follow the two-page description of Moham-
 med in the Jdeez, and its emphasis on the eloquence，physical beauty
 (<a youth of beautiful form”355) and powerful imagination (glxjpezd ...
 
-## 第68页
-
 五erder's 4A7ap Fazatasies 59
 
 了Ppaztasie) of the Prophet，we realize that an aesthetic acknowledgment
@@ -3206,8 +3064,6 @@ knotty plot?38 would be able to accomodate all manner of explanations
 for the success of Christianity、 What is also noticeable，however, is a
 Very Protestant Distazzziert7zg from the abuses of an increasingly Cath-
 olic/Orthodox past，a determinedly Lutheran redescription of Islam's
-
-## 第69页
 
 60 了Tpe History ofJslazzz za Ger71aa112 了Tpozxg1t
 
@@ -3259,8 +3115,6 @@ of Papal Rome, which is held almost single-handedly responsible for the
 “Barbary of the Occident', the persistence of the Dark Ages and the syn-
 onymy of scholarship with “sorcery and blasphemy"”4 Herder tells us:
 
-## 第70页
-
 万erdeys 47ab Faxzatasies 61
 
 In this I almost prefer Mohammed to the Pope and the Saracens to
@@ -3308,8 +3162,6 @@ Project of European decentring. Herder's mistrust of what he termed
 gaze away from Europe towards a Muslim Orient he, in some moments
 at least，was happy to affrm and praise over and against its Catholic
 neighbour.
-
-## 第71页
 
 62 了pe Histozy of Jslazza zz Ger11aa12 了pozgjt
 
@@ -3360,8 +3212,6 @@ national character which has remained“unchanged for millenia”.?2 When
 Herder the poet writes, it has to be said, the Arabs lose the rings in their
 noses and begin to speak in couplets.
 
-## 第72页
-
 五erdey's 47ap Fazaztasies 63
 
 In his thoughtful study on the place of Africa in Herder's thought，
@@ -3410,8 +3260,6 @@ tion of an Arab-Spanish love of life and its effect on Europe，one which
 will lend an irony to Nietzsche's own remark in Tpe A7zticpyzist a century
 later, that Moorish Spain“is more closely related to zs at bottom”.” The
 critique of European inwardness Herder expressed in his regular references
-
-## 第73页
 
 64 了Tpe History of Jslazza zzz Ger11aa1z Tpozxgjt
 
@@ -3464,8 +3312,6 @@ On this point, defenders of Herder will cite his belief in the incommen-
 surability of the historical moment (“no two moments in the world are
 the same?6)，his emphasis on the Heraclitean nature of the timeline and
 
-## 第74页
-
 五erdey's 41aD Fazatasies 65
 
 chronology, not to mention the untranslatability of specific cultural instances
@@ -3514,8 +3360,6 @@ dent of history, combing the world's cultures in search of exezzajpla for great
 national/ethnic consciousnesses of the past, Herder was explicit in his belief
 that the rise of Islam was an event German nationalism could learn from.
 In the rather Leibnizian Jadea Jor tpe First Patyriotic Jastitzte (1788), we are
-
-## 第75页
 
 66 了Tpe History ofJslazzz za Ger71aa12 Tpozxgpt
 
@@ -3566,8 +3410,6 @@ tons possessed a_ version of their own Koran，Herder's gaze towards the
 Orient mixes envy with regret, whilst stopping short of politically locating
 the contemporary political hope of Europe in the example of Islam and the
 
-## 第76页
-
 瑟erdeyrs 4A7aD Faztasies 67
 
 Arabs. Although the Arab world in the Jadeezz is clearly seen as the reinvigo-
@@ -3617,8 +3459,6 @@ in Europe”in the Jadeez,， where a glowingly positive account of the Arabs
 ful for our continent?%) is immediately followed by a brief paragraph on
 the Turks:
 
-## 第77页
-
 68 了Tpe History of Jslara zz Cer71aa1a 了pozg1t
 
 The Turks, a Vo人R originating out of Turkestan, are still alien to Eu-
@@ -3666,8 +3506,6 @@ wereforakind ofabiding evil in Herder' thought. There is a very Lutheran
 frustration here, one which Herder himself, having invested so much posi-
 tivity elsewhere in Islam as a poetic/political phenomenon，was unable to
 resolve as Luther had， with an appeal to apocalyptic hermeneutics and a
-
-## 第78页
 
 五erder's 4A7aD Fazzatasies 69
 
@@ -3718,8 +3556,6 @@ frst major German thinker to view Islam as a phenomenon in its own right，
 and not merely as a theophanic aberration or a minor heresy. What the case
 of Herder also reveals, however, is exactly how ambiguous the benefits of
 
-## 第79页
-
 70 了Tpe Bistory of Jslazza zz Ger11aa1a 了Tpozgjt
 
 an empirically grounded historicism was for the non-European. If Kant's
@@ -3769,8 +3605,6 @@ lime tapestry，Europe's threat and salvation一constituted no progressive
 Veyarpeitz7ag but rather the persistent murmur of a collection of passionate，
 distinctive, ultimately discordant voices.
 
-## 第80页
-
 4 和eeping the Turks Out of Islam
 Goethe's Ottoman Plan
 
@@ -3814,8 +3648,6 @@ employ in order to prevent his political misgivings concerning the Muslim
 world from interfering with the poetical and spiritual energy he was con-
 tinually investing in it. This analysis, inevitably, will also have something to
 contribute to the more familiar debates concerning the essence of Goethe's
-
-## 第81页
 
 72 了Tpe History ofJslaxzz za Gez11aa12 TPpozxgHt
 
@@ -3865,8 +3697,6 @@ Goethe could write of the contempt of Mohammedans (Mapozmazetazey一
 not Turks) for anyone who thinks differently than they do, and of their
 cruelty to European slaves, does suggest a strange multiplicity of registers
 in Goethe's work.1 Although there is a general sense of terrible Turks
-
-## 第82页
 
 天eebizzg tpe JayrRs Ox of Tsiaxzz 73
 
@@ -3918,8 +3748,6 @@ newspapers on a regular basis for news of“the advances of the Greeks?”.1
 There are two reasons, however,， why simply citing Tirkenkriege and the
 Ottoman oppression of Greeks and other insurgents are not sufficient in
 
-## 第83页
-
 74 Tpe History ofJslazza zz Ger11aa1t TPpozxgjt
 
 themselves to explain Goethe's overwhelmingly negative picture of the
@@ -3968,8 +3796,6 @@ himself, a Homeric comparative study of the Turkic epic“Oghuz” Little
 of this appears to have had any significant influence on Goethe's Turkish
 attitude, neither in the“common foe of Europe and Asia”we encounter
 in the Notes, nor in the desire to“drive the Turks out of Europe”，which
-
-## 第84页
 
 天eebizzg tpe TarRs Op of Jslazz 75
 
@@ -4020,8 +3846,6 @@ thesis that the Cyclops myth“must have come over from the Asiatics to the
 Greeks”.2 To be fair, Diezxs ideas are So outlandish that the poet's silence
 may have been just as much due to embarrassment as consternation.
 
-## 第85页
-
 76 了Tpe History of Jslaxzza zz Germ1aa1t TPpozxgp
 
 And so the question arises: what maneuvers did Goethe's love of the Ori-
@@ -4068,8 +3892,6 @@ then the Turks were seldom anything much more than“wild hordes?”.3
 Even in the Dizvaz, the only example of Turkish creativity named is the
 comic sage of folk tales and rustic wit Nasreddin Hoja, safely on the lower
 end of any Aristotelian ladder. This fnitude and quotidian triviality of
-
-## 第86页
 
 天eebzizzg tpe TarRs Op of Tslazz 77
 
@@ -4118,8 +3940,6 @@ against the Turk) or taverns with names such as “The Turk's Head' Words
 Such as 声jRRejtzejz (to act like a barbarian) or ia7Relza (to stagger drunkenly)
 were Still widely used, and Tiirk was also a popular name for dogs.2 To a
 limited degree, this colloquial semantic ubiquity of the Turk would in part
-
-## 第87页
 
 78 了Tpe Bistory of Jslara zz Ger11aa1a 了Tpozgjt
 
@@ -4170,8 +3990,6 @@ Uper die gebildete We ... Goethe could quite clearly have written
 “throughout the Christian world”，particularly since the ones who were
 falling in their thousands were Uzacpyristez，and yet something made
 
-## 第88页
-
 天eebizzg tpe ToyrRs Orz of Tsiaxzz 79
 
 Goethe choose the word gepildet一cultured，erudite，literally “Shaped
@@ -4220,8 +4038,6 @@ chip away and reduce their Power . . .
 
 一Goethe in conversation with Friedrich von Miiller，
 November 18, 1824
-
-## 第89页
 
 80 了Tpe History of Jsiaza zz Cer11aa11 了pozgpt
 
@@ -4272,8 +4088,6 @@ Ottoman Empire. Each text reveals a different facet of Goethe's animosity
 towards the Turks, and even some indications of development. The sketches
 concerning the“Battle of Cesme”, taking from the biography of the painter
 
-## 第90页
-
 天eebzizzg je TryRs OzUt of Jsliazz 81
 
 Philipp Hackert,，were written in 1811, a good three years before that fate-
@@ -4322,8 +4136,6 @@ Greece, maintains its unequivocally negative portrayal of the Turk, even if
 any physical descriptions of the Pasha and his men remain eerily, almost
 apophatically absent from the text,. Equally absent is religioni the 五eldezz-
 jieder follow“The Battle of Cesme”in their near-complete deletion of any
-
-## 第91页
 
 82 了Tpe History ofJslazza zz Germ1aa1t TPpozxgp
 
@@ -4375,8 +4187,6 @@ knew alot more about the“common foe of Europeand Asia” than hehad a
 decadeearlier. In Diez's two-volume DezRzozyrdigReitezz which Goethe had
 read “from beginning to end”(vo1z A7zzjazg Dis zu Ezade dzrcpi), he would
 
-## 第92页
-
 天eebizzg tpe TayrRs Ox of Tsiaxzz 83
 
 have repeatedly encountered emphasis after emphasis on the humanity of
@@ -4426,8 +4236,6 @@ With such maneuvers, Goethe tries to reconcile his conviction of the utter
 despotism of the Turk with the new level of complexity the treatment of the
 Fanariots demanded.
 
-## 第93页
-
 84 了Tpe History ofJsiaza zz Ger11aa1 了pozgpt
 
 In one sense, the increase in sophistication of Goethe's treatment of the
@@ -4476,8 +4284,6 @@ ance on Reiske一the standard Saidesque Position that European writers
 and poets were fed by their sources (What Orientalists . . . made avail-
 able, the literary crowd exploited”55). The selectivity with which Goethe
 made poetic use of Diez's Turkish writings，whilst never allowing them
-
-## 第94页
 
 天eebizzg tpe JayrRs Ox of Tsiaxzz 85
 
@@ -4529,8 +4335,6 @@ in their interpretation of the commandment“Love thy enemy”. If Augus-
 tine had“abolished the differences concerning God, neighbour and enemy
 from the perspective of love?4!一that is to say, we are required to love our
 
-## 第95页
-
 86 了Tpe History of Jslazza zz Germ1aa1t2 TPpozxgp
 
 enemies as we love God一then with Aquinas the New Testament obligation
@@ -4579,8 +4383,6 @@ his death，was couched in exclusively spiritual terms:“My dear child . . .
 even 寺Iwanted to name [the divinel, like a Turk, with a hundred names, it
 would still not be enough and faced with such infinite characteristics I still
 wouldnt have said anything”.55 Clearly, the separation of these spiritual
-
-## 第96页
 
 天eebizzg tpe TaxrRs Ozt of Jsiaxzz 87
 
@@ -4631,8 +4433,6 @@ tians died in their thousands”, Goethe may have felt embarrassed at being
 unable to share the indignation of a man he otherwise admired. If Diez?s
 examples made any impression on the poet, they certainly had no effect;
 
-## 第97页
-
 88 了Tpe History of Jslazza zz Ger11aa1t TPpozxgp
 
 Goethe's “terrible”(jzrcptparez) Turks, and all their later appearances in
@@ -4650,8 +4450,6 @@ the Europeans'” erroneous convictions of their backwardness, one wonders
 whether the Orientajlist ever realized the melancholy truth that, for all the
 volume of his pleas and passion of his convictions, he was in reality writing
 to no one but himself.
-
-## 第98页
 
 5 Friedrich Schlegel and the
 Emptying of Islam
@@ -4696,8 +4494,6 @@ sual Mohammedan conceptions of heaven are the correct ones”.: Although
 the brief burst of enthusiasm Schlegel felt for the Muslim Orient in the
 years 1798-1802 (Schlegel was in his late twenties) gradually petered onut，
 his references to it did not disappear，bnut rather mnutated and developed
-
-## 第99页
 
 90 Tpe History o太Jslazza zz Gez1aa1z TPporxgjt
 
@@ -4749,8 +4545,6 @@ example, as a kind of laboratory where“the irreducibility of interruption
 in movement”can be displayed and experimented with.0 However we View
 the fragment一as modern lament for a lost whole or proto-deconstructive
 
-## 第100页
-
 Fyiedyricp Scplegel azazd tpe Eaptyzizzg of Jslazz 91
 
 affirmation of ironyl2 the fact remains that Schlegels dedication to them
@@ -4799,8 +4593,6 @@ As far as I am concerned, the aim of my literary project is to write a
 new Bible, and to walk in the footsteps of Mohammed and Luther.
 
 一Schlegel to Novalis, October 20, 17981
-
-## 第101页
 
 92 了Tpe Bistory ofJslazzz za Geyz1aa12 TPpozxgpt
 
@@ -4852,8 +4644,6 @@ Hindus from their Muslim masters, declared Mohammed to be of Satanic
 Provenance and Islam to be “against all culture (Bildrzzzg)”21 Schlegel could
 still refer to the persistence of Arabic words in Spanish as similar to those of
 
-## 第102页
-
 Friedyicp Scpiegel azad tpe Ezzazptyizg of Jslazxz 93
 
 Latin in Italian, and was still able to argue for Arab fairy tales as the most
@@ -4904,8 +4694,6 @@ VoR”， writes Schlegel)“mnust live their poetry, like Arabs and Indians?.23
 After all, had not Goethe defined the arabesque as the“tasteful bring-
 ing together of diverse objects in order to ornament the inner walls of a
 
-## 第103页
-
 94 了Tpe Bistory ofJslarzz za Gez1aa12 TPpozxgpt
 
 building”?2? Schlegels own significant association of wit (Witz) with bond-
@@ -4954,8 +4742,6 @@ of Kant's 4A7ztbjrobpology, in which he claimed the text's essential value lay
 in its contribution to the science of “Kantology”, had appeared in the 1799
 edition of the 4Azjpexzaezz1t. Not only did Schlegel use specific terms such as
 天ezz1t (seed) and Race, he also appeared to follow Herder's notion of V6IRer
-
-## 第104页
 
 Friedyicp Scplegel azzd tpe Ezzaptyizzg of Jslazzz 95
 
@@ -5006,8 +4792,6 @@ Arabs. Chivalric customs in Spain are given a Gothic, rather than Arab，
 Sourcei the Turks，whose sciences and arts for Schlegel were“not of the
 slightest worth”, have their love of poetry reattributed to a“Persian of
 
-## 第105页
-
 96 了Tpe History of Jslaxzz za Ger71aa72 Tpozg1t
 
 even Gothic origin?; by 1811 the“Uzens”and“Pechens”are declared to
@@ -5056,8 +4840,6 @@ as Opposed to the living, organic outgrowth of the Arab nation. This fnal
 version of Islam, which Schlegel produced towards the very end of his life，
 appears (to borrow Hegels near perfectly contemporaneous description)
 to be truly“cleansed of any nationalism?”, a kind of anonymous, untitled
-
-## 第106页
 
 Friedyicp Scplegel azzd tje Ezzaptyizzg of Jslazza 97
 
@@ -5109,8 +4891,6 @@ passionately believed in “the dispersal of European culture throughout
 the world” 一it is diffcult not to see Schlegels doubt in the existence of
 “European languages”as quite unsettling,，an example once again of the
 
-## 第107页
-
 98 了Tpe History of Jslaxzz zz Ger71aa72 了Tpozg1t
 
 philologist's ideological settings being disturbed by the implications of
@@ -5158,8 +4938,6 @@ This powerful fantasy of a medieval Christian continent，at one with
 itself，worshipping the same true faith from St. James to St. Petersburg，
 accounts for some of the reductions, adjustments and omissions the Mus-
 lim world underwent in Schlegel's historical reconstructions. Particularly
-
-## 第108页
 
 Friedyicp Scplegel azazd tpe Eaptyzizzg of Jslazzz 99
 
@@ -5211,8 +4989,6 @@ force. The watershed years of 1802-1804 provide both positive and nega-
 tive versions of this function. Before his turn to Catholicism，Schlegel's
 interest in Islam as a possibly incomplete and unactualized“progressive
 
-## 第109页
-
 100 了Tpe History of Jsiaza zz Ger71ta1 了pozxgpt
 
 religion”reflects the centrality of Mohammed and Arab history in Schle-
@@ -5261,8 +5037,6 @@ and gradually encroaching darkness,，a melancholy chronicle of how the
 Present-day catastrophe of reformation，revolution and disbelief came to
 be. Unsurprisingly, Schlegel's later remarks tend to link together Moham-
 med, Luther，Robespierre and Napoleon as key sequential fgures in this
-
-## 第110页
 
 Friedyicp Scplegel azad tpe Exzajptyzizag of Jsiaxz 101
 
@@ -5316,8 +5090,6 @@ of European history will bring. The scholar who, many years earlier, had
 
 once praised Lessing's“infinite contempt for the letter”,71 was now devoting
 
-## 第111页
-
 102 Tpe History of Jslazza za Geyr11aa12 TPpozxgpt
 
 himself to an equally infinite worship of the number. The medieval echo of
@@ -5369,8 +5141,6 @@ of “Mohammedan”cultures.
 Another strange moment lies in the bizarre use of the Islamic calendar in
 Schlegel's otherwise wholly Christian calculations to fnd the beginning of
 
-## 第112页
-
 Friedyicp Scplegel azzd tpe Ezaptyi1zzg of Jslaz 103
 
 the new Christian epoch, a gesture which seems to suggest Something far
@@ -5421,8 +5191,6 @@ tianity, a peripheral source of information which might enhance and aug-
 ment our knowledge of the Christian tradition. The idea，however,， that
 the Arabic term 100i一more So than its Hebrew equivalent, 10rVz11z一may
 
-## 第113页
-
 104 了Tpe History of Jslaxza zi2 Germaa1z Tpoxgpt
 
 explain (erRlyrezz) for us more fully the mission of Christ does bring Chris-
@@ -5471,8 +5239,6 @@ fies the kind of diffticulties Schlegel would have in reining in his keen sense
 of philological inquiry, but also partially undermines the standard refrain
 Schlegel employed to explain away Islam's similarities to Christianity as
 mere loans,2 an absence of“originality”. Suggesting the Koran may help
-
-## 第114页
 
 Friedyicp Scplegel azzd 态e Ezaptyi1zzg of Jslazz 105
 
@@ -5523,8 +5289,6 @@ Christianity than [simply] being based on the oneness of God and a
 (false) holy book, even more so than its recognition of Christ and Mo-
 Ses as prophetsi that is precisely why it is much more pernicious than
 
-## 第115页
-
 106 Tpe History of Jslaxzza zj2 Ger1aa1z TPpoxg有tt
 
 pagan anti-Christianity. The nearer, the more similar, the more closely-
@@ -5574,8 +5338,6 @@ world would create for his demonization of 站.
 There are implications a study of the Tslaxzazpzlad in Schlegel may have for
 the larger question of how much influence an epoch's scholarship can have
 
-## 第116页
-
 Fyiedyicp Scplegel azad tpe Ezzaptyizg of Jslazxz 107
 
 on its intellectual mainstream. 9Schlegel's conviction of the worthlessness
@@ -5624,8 +5386,6 @@ of the aesthetic in the late Schlegel一a primacy of the image,， an almost
 artistic dedication to a very particular iobos, which would forever keep the
 Scholar's keener philological suspicions in check.
 
-## 第117页
-
 6 Hegel and the Disappearance of Islam
 
 and so Goethe turned to the Orient and with his Dizazz delivered a
@@ -5668,8 +5428,6 @@ SOME CRIIICAL FRAMEWORKS
 
 The classic image of Hegel as an infinitely systematic philosopher, sweep-
 ing up the manifold contingencies and particularities of world history into
-
-## 第118页
 
 五egel azazd tpe Disapjbpeayraxtce of Jslazz 109
 
@@ -5721,8 +5479,6 @@ post-dating of) its Christian rival would forever create problems for Hegel.
 Others, concentrating more on Hegels literary endeavours, see within the
 thinkers admiration for Persian poetry a form of compromise，as Hegel
 
-## 第119页
-
 110 了pe History of Jslazzaz jz Germaa1t 了pozxgpt
 
 allows poets such as Rumi and Hafiz a tentative place alongside Goethe on
@@ -5773,8 +5529,6 @@ to be contradicted by their actual treatment. Critics such as Beiser see Some
 of the reductionist views on non-Europeans in Hegel as the unfortunate
 lapse of an otherwise commendable thinker一a failure on Hegel's part, so
 
-## 第120页
-
 万egel azazd tipe Disapbpeara1zzce of Jslaxz 111
 
 to speak, to be truly Hegelian and translate his own commitment to con-
@@ -5823,8 +5577,6 @@ clearly we see in this nation the terrible consequences of their neglect?.16).
 The schoolboy Hegel refers to the“rawness of [the Turks"] character”, and
 yet does not blame this backwardness on their “natural ability”, but rather
 on the State's attitude towards that crucial word for Hegel, Bildzzzg. Hegels
-
-## 第121页
 
 112 了Tpe Bistory of Jslaxzz za Geyz1aa12 TPpozxgpt
 
@@ -5877,8 +5629,6 @@ views on the Ottomans by another. Naturally, we have no way of knowing
 whether Hegel ever even glanced through the book, apart from the fact that
 it sat on his library shelf for an uncertain number of years.
 
-## 第122页
-
 万egel azad tpe Disapjbpeaxra1zce of Jslazz 113
 
 One historian whose work Hegel did know was the Swiss scholar and
@@ -5927,8 +5677,6 @@ and fell in love with Christian maidens，spent four weeks of infatuation
 with them and then had them killed before moving on to the next.23 It was
 as if Hegel had absorbed the symbolic content of Gibbon, so to speak, but
 left out the minutiae.
-
-## 第123页
 
 114 Tpe Bistory ofJslaza zj2 Ger11aa1z Tpozxgpt
 
@@ -5980,8 +5728,6 @@ the purposes of our own chapter, three points are of relevance: firstly (and
 most Signifcantly), the considerable level of coverage given under Hegel's
 editorship to events in the Ottoman world. In some issues一such as Apri
 
-## 第124页
-
 万egel azazd tpe Disappeaya1zce of Jslazz 115
 
 6一news reports concerning Turkish events took up over palr of the paper.
@@ -6031,8 +5777,6 @@ ion of the Ottomans，however (in 1802 he considered the“Turkish Sul-
 tan”to be the head of“an unrestricted despotism”30) did not produce an
 overwhelmingly diabolical picture of the Turk in his newspaper一on the
 contrary, Some of the articles Hegel chose to reproduce in the Bazzpersge7
-
-## 第125页
 
 116 Tpe History of Jslazza zj2 Germ1aa1t Tpozgjt
 
@@ -6084,8 +5828,6 @@ the end of the Russo-Iurkish war.3 In the very last year of his life (1831)，
 Hegel criticised the English treatment of Irish Catholics with the reproach
 that“even the Turks have mostly allowed their Christian/Armenian/Jewish
 
-## 第126页
-
 万egel azazd tpe Disapjbpeaxrazace of Jslazz 117
 
 Subjects the use of their churches”.33 Hegels writings may well have been
@@ -6135,8 +5877,6 @@ is “beyond”; the 7zegative of representation”.33 Emptiness,，abstraction 
 negativity: three qualities shared by both Kantian and Islamic resistance
 to representation. For the third time (after Herder's Prussian prophet and
 Goethe's Koranic categorical imperative) Kant and Islam are brought
-
-## 第127页
 
 118 Tpe History of Jslazza zj2 Germ1aa1z Tpozxgjt
 
@@ -6188,8 +5928,6 @@ Given that Hegel often considered Bavaria“Barbaria”, the remark is ironic
 (when Schelling gave a lecture there on his philosophy in 1807, Hegel said it
 waslikeproducing wineintheArabian desert44). However,forallhis critique
 
-## 第128页
-
 五egel azazd tpe Disabjpeaya1ace of Jslazz 119
 
 of Kantian-Fichtean“monochromatic formalism”,” Hegel the Enlighten-
@@ -6239,8 +5977,6 @@ is primarily metaphysical, not humanitariani; the reproachable futility of
 the Crusades lay in its ignorance of the fact that“the definite embodiment
 it was seeking was to be looked for in subjective consciousness alone, and in
 
-## 第129页
-
 120 了Tpe History of Tslaza zz Ger71aa1a 了pozgpt
 
 Do external object”(ibid.). Hegels Crusaders, effectively, were looking for
@@ -6288,8 +6024,6 @@ Niethammer, even relates a strange dream his wife had:
 
 she dreamt she found herself in a huge camp just outside Paris,，full
 of wild soldiers，Cossacks, Prussians, all mixed together. She was ter-
-
-## 第130页
 
 万egel azazd tpe Disapjbpeaya1zce of Jslazz 121
 
@@ -6341,8 +6075,6 @@ and reform in mind.
 Whenever Hegel's bourgeois fears came to the fore in his treatment of
 Islam, he gave a political twist to the Islamic version of Kantian formalism
 
-## 第131页
-
 122 了Tpe History of Jslazzz zz Ger71aa12 了pozxgpt
 
 and abstraction he had already formulated, radicalizing it further still and
@@ -6392,8 +6124,6 @@ indifferent to this social fabric, and rushes on in the ceaseless whirl of
 fortune ... on this boundless sea there is a continual onward move-
 ment; nothing abides frm.55
 
-## 第132页
-
 五egel azazd tipe Disabpbpearazzce of Jsiazjz 123
 
 In the lectures on the history of philosophy,， where Hegel essentially com-
@@ -6439,8 +6169,6 @@ moments we found in Leibniz and Kant一Muslims sometimes as enemies
 of Progress, sometimes as enemies of Christ一are not as clearly separable in
 Hegel. For Hegel, the doctrine of the Trinity was itself a moment of prog-
 ress in the development of the World-Spirit, a“life-process . . .in which
-
-## 第133页
 
 124 了Tpe History of Jsiaza 112 Ger71ta1 了pozgpt
 
@@ -6491,8 +6219,6 @@ ment of Islam' having come after Christianity, an early affrmation of the
 need to convert“Jews and especially Mohammedans”(and even an ironic
 speculation that the“Turkish Kaiser”could become Popej, not to mention
 an awareness of how“Christian chivalry”was responsible for “driving out
-
-## 第134页
 
 五egel azazd tipe Disabpeara1zce of Jsiazz 125
 
@@ -6545,8 +6271,6 @@ the hierarchy of the three religions:
 The One of the Orient is much more the One of Judaism, which, com-
 Pleted in Islam [zzz Tslaza vollexadeil, becomes the religion of the Orient.
 
-## 第135页
-
 126 了Tpe History of Tslaza zz Ger11aa1a 了pozgjt
 
 Known as this One, as inwardly determining itself in Christianity, it is
@@ -6594,8 +6318,6 @@ Precedents in Goethe, Schlegel and above all, Herder?
 
 To a limited extent，Hegels Romantic approach to the Mnuslim
 world was in convergence with his other discursive identities一those of
-
-## 第136页
 
 五egel azazd tipe Disabpeara1zce of Jsiazjz 127
 
@@ -6647,8 +6369,6 @@ to take place, as a whole variety of different adjectives一“monstrous?”
 (ztgepezier) and“noble”(edle),“enthusiasm”(Begeisterz1zg) and“fanati-
 cism” (Fazaatis1t2Us)一Seem to pull Hegel in different directions， One
 
-## 第137页
-
 128 了Tpe History of Tsiaza zz Ger11aa12 Tpozgpt
 
 moment，we have a religion whose“energy . . . enters into secular life
@@ -6699,8 +6419,6 @@ tion of the Muslim world goes in precisely the opposite direction. In his
 appreciation of the Persian poets Rumi and Hafz, Hegel follows Goethe
 (and departs from Herder and Schlegel) in a striking acknowledgment of
 
-## 第138页
-
 五egel azazd tipe Disabppearazzce of Jslazz 129
 
 Muslim poetry's relevance for present-day poetics. The general scheme of
@@ -6749,8 +6467,6 @@ acknowledged for Hegel. The realm of poetry，unlike those of economy，
 history or theology, was a relatively safe one, where a foreign culture might
 be allowed to share a moment of teleological influence without too many
 problematic implications.
-
-## 第139页
 
 130 了Tpe Bistory ofJslaxzza zj2 Ger1aa12 Tpoxgpt
 
@@ -6801,8 +6517,6 @@ casian race as against that of the Negro. Caucasians，Georgians，etc，
 are descended from the Turks, and it is amongst these peoples that the
 fnest Species are to be found. The finest colour is that in which what
 is internal is most visible, the colour which is determined outwards，
-
-## 第140页
 
 五egel azazd tipe Disabpbpeara1zzce of Jsiazz 131
 
@@ -6857,8 +6571,6 @@ a purveyor of Kzltay to the North African coast. Islam, in other words，
 is helping Africa to move into history一from the ahistorical darkness in
 which Hegel had notoriously placed it. As we Saw in the first chapter, this
 
-## 第141页
-
 132 Tpe History of Jslazza za Ger11aa12 TPpozxgpt
 
 gesture is also Leibniz's一the Leibniz who could acknowledge Islam's help
@@ -6908,8 +6620,6 @@ as Rumi, Nisami and Firdusi in and out of analyses flled with a whole
 variety of references to European literature. On one page of the aesthet-
 ics lectures, for example, in a discussion on the relative symbolical value
 of the organic and non-organic in art, a line from Firdusi is quoted in the
-
-## 第142页
 
 五egel azazd tjpe Disapjbpeayraztce of Jslaz 133
 
@@ -6961,8 +6671,6 @@ reader of Kant/Fichte/Schelling and than it did for the reader of Goethe/
 different bibliographies and the landscapes and feelings each one brought
 with them. A thinker is never, of course, merely the sum of what s/he reads，
 
-## 第143页
-
 134 了Tpe History of Jsiaza zz Ge771ta1 了pozgpt
 
 nor are philosophers ever simply steered mnemonically by their libraries.
@@ -6970,8 +6678,6 @@ As a means of understanding the lexical memory (or amnesia) of a certain
 moment, however, a consideration of the multiple libraries Hegel carried
 around in his head might help us understand how he could write such dif-
 ferent things about his Moygezzlazzd at different times.
-
-## 第144页
 
 7 Marx the Moor
 
@@ -7017,8 +6723,6 @@ to a Muslim country (Algeria) in the fnal months of his life.! The cumula-
 tive intimacy of such minutiae does force us to consider, once again，what
 it means to say a thinker thought x or y about a particular subject. In the
 case of Marx, who could call Turkey“a compact . . . mass of Mussulman
-
-## 第145页
 
 136 Tpe History of Jslaxzza zj2 Ger1aa1z TpoxgHit
 
@@ -7071,8 +6775,6 @@ War was certainly a factor in this awakening of Marx's interest in the Otto-
 mans一in one 1853 letter, he tells Engels how the whole "Eastern questiom”
 is“complete Greek to me [ist Ma Spa1zazscj”，but promises at the end to
 
-## 第146页
-
 Marx tpe Moor 137
 
 “have a look at a couple more books about Turkey, there's a whole stack of
@@ -7121,8 +6823,6 @@ Powerful allies [Britain and France]. She has risen to the height of the
 occasion一they have cowered beneath it. She has rejected the demands
 of her hereditary foe [Russial, not with braggadocio，but with grave
 and worthy earnestness and dignity.
-
-## 第147页
 
 138 了Tpe History of Jslaxzza z2 Gerzaa1z TpoxgHt
 
@@ -7174,8 +6874,6 @@ of injustice for the innocence of the exploited native and an occasional
 frustration with the false European conviction of their savagery,， a dis-
 taste towards Christianity as a state religion一and Empire'xs use of it as a
 
-## 第148页
-
 Marx tpe Moor 139
 
 legitimator of rule一also comes to the fore. Whether it is in both Russia
@@ -7224,8 +6922,6 @@ a reaction, an apparent return to the old and the simple.
 
 H开Marx spoke about Muslims as noble victims in his anti-imperialist voice，
 and even sought to combat Western charges of primitivism in his own
-
-## 第149页
 
 140 Tpe History of Jslazza za Geyr11aa12 TPpozxgpt
 
@@ -7281,8 +6977,6 @@ in shameless arrogance，pretentiousness，and cruel Moloch-propitia-
 
 tion-rage against the“lower races”.
 
-## 第150页
-
 Marx tpe Mooy 141
 
 Marx's indignation is very much the anger we have just been examining一a
@@ -7330,8 +7024,6 @@ tering resistance from the teleologist whose very understanding of progress
 was assisted by the imperialism under attack. The two voices brought with
 them different vocabularies一if the former saw Muslims as“innocent”and
 Victims of“arrogance”, the latter saw them as“degenerate”, childlike and
-
-## 第151页
 
 142 了Tpe Histozy of Tsiazza zz Ger71aa1a 了pozgpt
 
@@ -7382,8 +7074,6 @@ stumbling block, Marx moves back and away from the empirical particu-
 larities of his critique of Empire (his objection against the Russian murder
 of Turkish prisoners of war， his moral indignation of the British/French
 
-## 第152页
-
 Marx tpe Mooy 143
 
 betrayal of their Ottoman allies) to the "bigger picture'” of the wider aims
@@ -7433,8 +7123,6 @@ Muslims (and thereby undermine in a more general way the epistemological
 credibility of various institutional mouthpieces一British newspapers/Ger-
 man academics/Tsarist diplomats), and secondly, a more anthropological
 
-## 第153页
-
 144 Tpe History of Jslaxzza zj2 Ger1aa12 TPpoxgHt
 
 interest in the economic and social structures both of Islam, and of Muslim
@@ -7483,8 +7171,6 @@ Print media, apart from offering some of the most striking examples of his
 humour, forms almost a 工eitzzotir in itself, a careful distancing from the
 unreflective "patriotism” and imperialist xenophobia of his day. A superior
 knowledge of Muslim culture and history一not to mention Christianity”s
-
-## 第154页
 
 Marx tpe Mooy 145
 
@@ -7536,8 +7222,6 @@ manly，life-loving religion，Herder's proto-nationalism，the early Schle-
 gels model for a new modernity (not to mention a modern thinker such
 as Foucault's celebration of Shiia Islam as a“political spirituality”).48
 
-## 第155页
-
 146 了Tpe History of Jslazza zi Ger11aa12 Tpozxgpt
 
 Nevertheless, the rematks infuse Marx”s Islam with an air of opportu-
@@ -7587,8 +7271,6 @@ the Marx obsessed with development saw the caravan-robbing Turks as
 obstacles to those real sources of civilization and progress in Ottoman Tur-
 key, the Greeks, Marx the researcher saw no difference between the two，
 
-## 第156页
-
 Marx tpe Moor 147
 
 the Ottoman Turk simply being a fusion of Turkish tradition and“Byzan-
@@ -7635,8 +7317,6 @@ ing”of one's chosen target takes us back to Luther's Miinzer, Kant's Ana-
 baptists, Herder's Kant, Hegels Robespierre and forward in a different way
 to Nietzsche's Plato一the calculated decision to evoke a particular series of
 infamous associations in the exoticising of a certain target.
-
-## 第157页
 
 148 了Tpe History of Jslazzz zz Ger1aa72 了Tpozgpt
 
@@ -7685,8 +7365,6 @@ which makes no rapprochement whatsoever to either religion; or, seeing the
 Church of England as fundamentally reactionary in its divine celebration
 of social inequity，Marx might critically reconsider what kind of “injus-
 tice" the “iezaa are Supposed to practice, to see if it has any relation to his
-
-## 第158页
 
 Marx tpe Mooy 149
 
@@ -7737,8 +7415,6 @@ attacks on conservative naivete and bourgeois Russophilia，does suggest
 that in certain moments at least, even an“Arab by birth”could become a
 “Frenchman?”. If Marx the researcher saw the Muslim world as an entity
 
-## 第159页
-
 150 Tpe History of Jslaxzza z2 Gerz1aa12 TPpoxgHt
 
 which could only teach Europe as a passive object of study, through what
@@ -7778,8 +7454,6 @@ and fnal chapter, moving from one European outsider to another, we shall
 consider how closely Marx's dilemma一how to write about the enemy of
 one' enemy一resembled Nietzsche's own collections of sympathies, preju-
 dices, fantasies and spontaneous solidarities with non-Europe.
-
-## 第160页
 
 8 Nietzsches Peace with Islam
 
@@ -7827,8 +7501,6 @@ any of his other books.
 Nietzsche's fervent reading of Orientalist texts seems to underline this
 interest in Islam: Palgraves“Reise in Arabien”in German translation
 (1867-1868), Wellhausen's SRizze7z zad Voyarbpeitezz (1884)4 Max Miiller's
-
-## 第161页
 
 152 Tpe History of Jslaza z2 Ger1aa1z TPpoxgpt
 
@@ -7880,8 +7552,6 @@ sympathies with a more distant culture. Heine comes to mind as the most
 obvious example of how such cultural claustrophobia can metamorphose
 into a longing for the Orient:
 
-## 第162页
-
 和iietzscpe's Peace 1Witjp Jslaz 153
 
 Ifnd all things German to be repulsive . . . everything German feels to
@@ -7931,8 +7601,6 @@ Germanic，Japanese nobility，Homeric heroes，S$candinavian vikings
 
 It is interesting to see what kind of part Islam and Islamic cultures play in
 Nietzsche's history of yesse7zztipae1zt-一where the weaker，life-denying，non-
-
-## 第163页
 
 154 了Tpe History of Jslaxzza zi2 Ger1aa1z TPpoxgHt
 
@@ -7985,8 +7653,6 @@ that adeep man . . . can think about women only like an Oriental”.20 Not
 surprisingly“Mohammedanism” is also praised for knowing the true posi-
 tion of women:
 
-## 第164页
-
 和iietzscpe's Peace Witjp Tslaz 155
 
 Mohammedanism, as a religion for men, is deeply contemptuous of the
@@ -8034,8 +7700,6 @@ have been interested in the possibility of Islam possessing a secret, funda-
 mentally amoral premise一the idea recurs again in Tpe Gay Sciezzce, this
 time not with a medieval militant group but an eighteenth-century Arabian
 sect, the“Wahhabis”:
-
-## 第165页
 
 156 Tpe History of Jslazza za Geyr11aa1z Tpoxgpt
 
@@ -8085,8 +7749,6 @@ Saw Islam more often than not as a faith which refuses to be ashamed of
 “manly” instincts Such as lust, war and the desire to rule over others (Islam
 is,， after all,“the product of a ruling class”30). This resolve to extol the
 advantages of the Muslim faith at the expense of Christianity culminates
-
-## 第166页
 
 和iietzscjpes Peace Initip Tsiazaz 157
 
@@ -8138,8 +7800,6 @@ of references from the early eighties onwards, to Islam and the desire to see
 Eastern lands? If the answer to this question must lie in the negative, it is
 Probably because Nietzsche Says very little about what Islam is, but only
 
-## 第167页
-
 158 了Tpe Bistory of Jslazza zi Ger11aa12 Tpozxgpt
 
 what it is 1ot Nietzsche's Islam is ultimately vacuous: a constructed anti-
@@ -8187,8 +7847,6 @@ is grammatical: the presence of a regularly used first- and second-person
 singular in Indo-European and Semitic languages facilitates the notion of
 persozal obligation just as much in Stoicism and Kantian idealism as it
 does in Islam and Christianity. This idea of a common，unquestionable
-
-## 第168页
 
 和iietzscpes Peace 1Witjp Jslaxz 159
 
@@ -8239,8 +7897,6 @@ licates in part the Christocentric assertions of European Orientalism which
 always depicted Christianity as the foxzs et ojigo of Islam一the only differ-
 ence being that instead of crediting Christianity with a central influence
 
-## 第169页
-
 160 了Tpe Bistory ofJslaxzz za Gez11aa12 TPpozxgpt
 
 on Islam，Nietzsche plazmaes it Which suggests， secondly, that Nietzsche
@@ -8289,8 +7945,6 @@ with European Orientalism, but rather affrming and celebrating the very
 aspects of Islam they purport to deplore. There seems to be with both fig-
 ures a common emphasis on rhetorical imagination一the founder of Islam
 and the pupil of Socrates both achieve Success (like all“great reformers”42)
-
-## 第170页
 
 Jietzscjpes Peace tip fslaxz 161
 
@@ -8342,8 +7996,6 @@ penhauerian pessimism.44 Nietzsche'xs Romantic is someone whose gaze is
 constantly averted elsewhere, usually backwards, away“from himself and
 his world”.43 Nevertheless, as late as 1886 we fnd Nietzsche discerning
 
-## 第171页
-
 162 了Tpe History of Tslaza zz Ger11aa1t 了pozgjt
 
 two ambiguous elements within Romanticism一a desire for destruction
@@ -8368,8 +8020,6 @@ Signs and motifs to dip into and make use of for his own philosophical
 aims,， Nietzsche differs from his Orientalist predecessors and their use of
 such imagery only in an exaggerated sympathy for Islam一a sympathy he
 expressed in his own unique and ultimately self-serving terms.
-
-## 第172页
 
 Conclusion
 
@@ -8410,8 +8060,6 @@ ambiguous, and much more repressed, than commonly supposed. A clearer
 understanding of this situation will only take Place once we stop thinking
 of authors as personalities who possess world-views, and start to see them
 as Spaces in which discourses happen.
-
-## 第173页
 
 164 Tpe History of Jslazza za Ger1aa1t TPpoxgpt
 
@@ -8462,8 +8110,6 @@ relation between the Rozzaa7ztiR cultivation of a multichambered self一
 and thereby, an increased capacity to multiply and prioritise/de-prioritise
 realities一and the ability to construct an imaginary Europe of tolerance
 and sophistication，abiding in blissful denial of an Ottoman world on
-
-## 第174页
 
 Cozaclzisioz 165
 
@@ -8516,8 +8162,6 @@ investigation into actual historical influences. What this book has tried to
 do, following Kant's own imaginary Turkish visitor to Europe, is to pro-
 vide an idea of how a history of German thought might look to a Muslim
 
-## 第175页
-
 166 了Tpe Bistory ofJslazz za Gez11aa12 TPpozxgpt
 
 observer一more Specifically, to an observer who was only interested in how
@@ -8534,8 +8178,6 @@ luxuries available to the historian of ideas, and if this selective arrange-
 ment perpetuates the illusion of a tradition which was continually thinking
 about Islam, it perhaps justly overcompensates for a society which, for the
 most part, tried hard not to think about Muslims at al!.
-
-## 第176页
 
 Notes
 
@@ -8600,8 +8242,6 @@ p. 200.
 . Joseph McCarney“Hegels Racism: A Response to Bernasconi”，Radical1
 
 Ppilosobppy 119 (May/June 2003).
-
-## 第177页
 
 168
 
@@ -8718,8 +8358,6 @@ world”. Alison P. Coudert, Leibpzaiz azad tpe Kabpbalap (Dordrecht: Kluwer，
 
 Ner Essays, p. 508.
 
-## 第178页
-
 235.
 
 26.
@@ -8816,8 +8454,6 @@ Exurobpe, ed. A. Grafton and A. Blair (Philadelphia: University of Pennsylva-
 nia Press, 1990), pp. 173-203 for a fascinating account of how the reports of
 Venetian ambassadors returning from their diplomatic missions in Istanbul
 became“a kind of literary genre”. More importantly, she examines how the
-
-## 第179页
 
 170
 
@@ -8919,8 +8555,6 @@ a1ad Tpeology 3, no. 2 (July 1989): 188-218.
 
 cal Papers, p. 89.
 
-## 第180页
-
 92.
 
 94.
@@ -9019,8 +8653,6 @@ losophie”, in WerRatxsgabpe, VI:378.
 . Kant,Observatiozzs o712 tbe Feelizzg of tpe Beaxtizl axzzd Sublizzaze, trans. 本. 工.
 
 Goldthwait (London: University of California Press, 1991), p. 109.
-
-## 第181页
 
 172
 
@@ -9125,8 +8757,6 @@ N. Hertz, Tpe Ezd of tbpe Lizze: Essays o1 Psycpoa1zaal1ysis da1td tpe Suplizzze
 Yu Liu,“The Beanutiful and the Sublime: Kant's Paradise Lost and Paradise
 Regained”, Stztdies za Romaa1zaticis11z 42, no. 3 (2003): 194.
 
-## 第182页
-
 53.
 
 34.
@@ -9228,8 +8858,6 @@ Peripherie und Europaisches Zentrum”, in Voza SelbpstdezRexz: Azj妆1aerazag
 MU1d AM大jaera1zgsRritiR zerders Ideez，ed. R. Otto and J. Zammito
 (Heidelberg: Synchrom Wissenschaftsverlag, 2001), p. 82.
 
-## 第183页
-
 174
 
 Notes
@@ -9312,8 +8940,6 @@ French poststructuralism and contemporary hermeneutics.
 Knoll,“Europe in the History of Humanity”, in Herder Japyrbzcp 1998, ed.
 了HH. Adler and W. Koepke (Stuttgart: ]. B. Metzler，1998), p. 129; E. Adler，
 “Johann Gottfried Herder und das Judentum”, erder Today, p. 391.
-
-## 第184页
 
 10.
 
@@ -9411,8 +9037,6 @@ Samatlicpe WerRe, 1:58.
 . Letter 121, in Ppilosoppical W7ritirzags, p. 411.
 
 .Jdeem, II:421.
-
-## 第185页
 
 176
 
@@ -9516,8 +9140,6 @@ Revival in the Eighteenth Century”，Jozrzal of Pobzlar Cazlture 6,no. 4
 . Letter to Zollkontroller Begrow, November 1769, in Briej, 1:172-73.
 . Ppilosobppical Writings, p. 384.
 
-## 第186页
-
 71.
 72.
 73.
@@ -9606,8 +9228,6 @@ Turkish-German novelist Zafer Senocak, in his War itier Arabper? sees the
 Divan as indirectly collaborating in the whole machine of imperialism (PPp.
 
 39, 49).
-
-## 第187页
 
 178
 
@@ -9716,8 +9336,6 @@ Sabe一Brieje, III:490, 497.
 gion and Philosophy”, in Cazzabridge Cozabpazzioz to Goetpe, ed.工. Sharpe
 (Cambridge: Cambridge University Press, 2002), p. 219.
 
-## 第188页
-
 50.
 . 双. Daniel Wilson emphasizes Goethe's“far-sighted . . . categorical rejection
 
@@ -9811,8 +9429,6 @@ IIL, stanza 79, line 749.
 
 . Diez to Goethe, November 13, 1816, ibid., p. 39.
 . Ibid., p. 40-41.
-
-## 第189页
 
 180
 
@@ -9917,8 +9533,6 @@ See Polheim, Die ArapesRe,pp. 27, 28,， 361.
 
 Zar Gescjpicpte zyad PojitiR, in Scplegel-Axsgabe,22:245-46.
 
-## 第190页
-
 33.
 34.
 335.
@@ -10019,8 +9633,6 @@ Sis Of Rebpresezztatioz (Berlin: de Gruyter, 1988), p. 266.
 
 . Ibid., 20:386.
 
-## 第191页
-
 182
 
 67.
@@ -10119,8 +9731,6 @@ Sege1z die Maziye11.
 
 Hegel，WerRe (Frankfurt am Main: Suhrkamp，1970)，15:405一here-
 after We7Re.
-
-## 第192页
 
 3.
 
@@ -10224,8 +9834,6 @@ See, respectively, EdizpzrgPp Reviex 28:56 (August 1817), p. 304 and 32:64
 hoeck und Ruprecht, 1799), ITV:3, V:43.
 
 Ibid., V:49-55.
-
-## 第193页
 
 184
 
@@ -10332,8 +9940,6 @@ ety, da1ad ipe Male Body ozz tje Lize (Champaign: University of Illinois Press�
 . Ibid., p. 459.
 . Luther, Lztpers WorRs, 46:178.
 
-## 第194页
-
 64.
 635.
 66.
@@ -10435,8 +10041,6 @@ WerRe, 13:380.
 alist" wouldtake up abook.Shlomo Avineri has written a strong essay against
 such nationalist readings一see his essay on“Hegel and Nationalism”, in Tpe
 古egel Mytps azd Legezads, ed. J. Stewart (Evanston: Northwestern Univer-
-
-## 第195页
 
 186
 
@@ -10542,8 +10146,6 @@ later，more mature scientifc works一Mayx da1zad tbe Exzad of Oriemtalisz1a
 
 .Letter to Engels, March 10, 1853一MEGA 3.6, p. 138.
 
-## 第196页
-
 请 请
 wwib呈
 
@@ -10646,8 +10248,6 @@ Saddle River, NJ: Prentice Hall, Inc., 1979), p. 370.
 
 天al Mayx-Friedyricp Exzagels WerRe, Band 18,， 5, p. 446; Easterz Ozestio7z，
 P. 20.
-
-## 第197页
 
 188
 
@@ -10754,8 +10354,6 @@ P. 145.
 chs excellent O7zieztt-ORzideztt: Nietzscpes Verstcjp eizaer 二os16sz118 VO711
 et1ropaiscpez Welibild (Berlin: de Gruyter, 1996).
 
-## 第198页
-
 > CN
 
 11.
@@ -10853,8 +10451,6 @@ T p. 10.
 Als die cpzistlicpez Kyezzjapyer zzz O7iejit QUF Jezze1z zt1tDesiegbare1 AssasS-
 ie11-O7deza stiesse1z, je1zze1i Fyeigeiste-Ordezz pbparexcellezace, desse1zzt1tterste
 
-## 第199页
-
 190 Notes
 
 G71ade ia eijze1a Gerpborsa11te lebtezz, 10ie eizze1t gleicpezz Reizz MGzacpsorde7z
@@ -10936,8 +10532,6 @@ discpe Jmaagizaatioz zzz 19te Japrpaztzadert(Berlin: de Gruyter, 2005), p. 5.
 introduction to Amit Chaudhuri, ed., Tpe Picador BooR of Modermz Jzadia7zz
 工iteratuyre (London: Picador, 2001).
 
-## 第200页
-
 Bibliography
 
 Abdel-Rahim, S. H. Goetpe zzad der Islaaz. Augsburg: Blasaditch,， 1969.
@@ -10998,8 +10592,6 @@ by N. Boyle and J. Guthrie, 199-212. New York: Camden House, 2002.
 Benes, 工“Comparative Linguistics as Ethnology: In Search of Indo-Germans in
 Central Asia, 1770-1830”. Comapazative Stttdies of Sorxtbj 4sia, AHjrica azzd tpe
 Middle East 24, no 2 (2004): 12-28.
-
-## 第201页
 
 192 Bipjiogyappy
 
@@ -11081,8 +10673,6 @@ Dascal, M.“One Adam and Many Cultures: The Role of Political Pluralism in the
 Best of all Possible Worlds”. In Leibpzzzz azad Adamzedited byM. Dascal and 上.
 
 Yakira, 387-409.Tel Aviv: University Publishing Projects, 1993.
-
-## 第202页
 
 Bibpliograppy 193
 
@@ -11167,8 +10757,6 @@ Emergence ofRomantic Historiography”. Exrobpeaz Romaa1zticReview 9 (Spring
 Hardiyanto,，S. Zzoiscpexz Ppazztasie Mad WirRiicpRe让 Deyr Tsjazza zz71z Sbiegel des
 deutscjpez DezRexs 1712 19. Japzpatadert Frankfurt am Main: Peter Lang，
 1991.
-
-## 第203页
 
 194 Bipjiogyappy
 
@@ -11266,8 +10854,6 @@ Dover, 1954.
 
 tin's Press, 1965.
 
-## 第204页
-
 Bzbliogyappy 195
 
 一一一. Gesazz11zelte Scpyzifiem. Berlin: Prussian Academy, 1900.
@@ -11361,8 +10947,6 @@ Lewis, B. Tpe Assassijzs. New York: Basic Books Inc.,， 1968.
 Librett, J. $.“Figuralizing the Oriental, Literalizing the Jew”. Germaazz Ozxarterly
 69, no. 3 (1996): 260-76.
 
-## 第205页
-
 196 Bizbliogyappy
 
 Linker, D.“The Reluctant Pluralism of J. G. Herder”. Tpe Reviet of Politics 62，
@@ -11449,8 +11033,6 @@ Meisters Wanderjahre”. Moderz 工azzgtuage tudies 31, no. 1 (2001): 45-58.
 Neocleous, M.“Letthe Dead Bury the Dead: Marxism and the Politics of Redemp-
 
 tion”. Radical Ppilosobppy 128 (2004): 23-32.
-
-## 第206页
 
 Bipliogyappy 197
 
@@ -11539,8 +11121,6 @@ tpe Bibple to Waco. Leiden: 上E. J. Brill, 1998.
 Schlegel, Friedrich von. Friedricp Scplegelazd Novalis.Edited by M. Preitz. Darm-
 stadt: Gentner, 1957.
 
-## 第207页
-
 198 Bibpliiogyappy
 
 .Friedricp Scplegel: WerRe zz ztei Baezdez. Edited by 双. Hecht. Berlin:
@@ -11625,8 +11205,6 @@ Pizzterlasse1ze1z Biicper-Sazaz1z1zlzt728e1z. (Berlin，1832).
 von Diez，H. FE. DemzRzoztirdigReitejz yo1z Asiez. Berlin/Halle: Hallesche Waisen-
 haus-Buchhandlung, 18135.
 
-## 第208页
-
 Bipliogyappy 199
 
 von Miiller, Johannes. AIiegemazeizazer Gescpicpte pesozaders der etrobaiiscpez Me7z-
@@ -11665,24 +11243,12 @@ and W.Koepke, 1-27. Stuttgart: J. B. Metzler, 1998.
 之iek, S. Tpe TicRlisp Supject Tpe Absent Ceztre of Political Ozatology. London:
 Verso, 1999.
 
-## 第209页
-
-
-
-## 第210页
-
 About the Author
 
 Ian Almond teaches English Literature at Georgia State University，
 Atlanta. He is the author of three other books: SzFszzaz d1d Deco1zstyrac-
 io7 (Routledge, 2004), Tpe Nemw Oriezataliss (2007) and a military his-
 tory of Muslim-Christian alliances,，Tzoo Faitps, O7zze Barzzzer (2009).
-
-## 第211页
-
-
-
-## 第212页
 
 Index
 
@@ -11812,8 +11378,6 @@ Buhle, J.G. 114
 Bullock,M.P 180
 
 Bulgaria 4, 24
-
-## 第213页
 
 204 Jadex
 
@@ -12003,8 +11567,6 @@ al-Hariri 149
 
 Hasselquist 39
 
-## 第214页
-
 Haydn, J. 77
 
 Hebrew 5$, 12, 27, 97, 98, 103, 123，
@@ -12187,8 +11749,6 @@ LinkepD. 175
 Lithuania 26
 
 Yu Liu, 38, 42
-
-## 第215页
 
 206  Jzadex
 
@@ -12386,8 +11946,6 @@ Polheim,K. KK. 93
 
 Popkin, R. 167
 
-## 第216页
-
 了Portugal 49, 54, 100
 
 Postel, G. 9, 168
@@ -12573,8 +12131,6 @@ Turkish (language) 3, 24, 26-7, 76, 84，
 96, 112, 115, 131
 
 Turner ,;B.S. 186
-
-## 第217页
 
 208 Jadex
 

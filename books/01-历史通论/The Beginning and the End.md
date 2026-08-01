@@ -325,10 +325,6 @@ Email: alsheha@yahoo.com
 http://www.islamland.com
 
 
-
-
-
-
 
 
 11
@@ -2058,8 +2054,6 @@ divine inspiration or revelation, which led him to these
 statements."
 
 
-
-
 
 He is a doctor and professor in the embryo, at the Toronto
 University, Canada. Taken from Muhammad al-Mut'ee's book: 'I won
@@ -2071,23 +2065,6 @@ Muhammad and did not lose the Messiah'.
 The Beginning and the End
 ______________________________________________________________________________________________
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 

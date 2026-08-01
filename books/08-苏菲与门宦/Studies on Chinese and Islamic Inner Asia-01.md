@@ -25,22 +25,13 @@ processed: full (thresholding+deskew+denoise+psm6+repair)
 ## 封面与版权页
 
 COLLECTED STUDIES SERIES
-COLLECTED STUDIES SERIES
 Studies on Chinese and
-Studies on Chinese and
-Islamic Inner Asia
 Islamic Inner Asia
 Joseph F. Fletcher
-Joseph F. Fletcher
-Studies on Chinese and
 Studies on Chinese and
 Islamic Inner Asia
-Islamic Inner Asia
-Edited by
 Edited by
 Beatrice Forbes Manz
-Beatrice Forbes Manz
-VARIORUM ..
 VARIORUM ..
 
 ---

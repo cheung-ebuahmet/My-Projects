@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 Dress Requirements for Salah
-Dress Requirements for Salah
 For prayer to be valid the private areas must be covered with a loose garment so as not to
 show the privates. Therefore, a man should be covered loosely from the shoulders to the
 knees. It is prohibited for the lower garment to hang past the ankles, even when not

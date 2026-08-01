@@ -103,10 +103,6 @@ Trademark Notice: Product or corporate names may be trademarks or registered tra
 Library of Congress Cataloging in Publication Data
 A catalog record has been requested for this book.
 
-ISBN10: 0-415-99519-1 (hbk)
-ISBN10: 0-203-86728-9 (ebk)
-ISBN13: 978-0-415-99519-1 (hbk)
-ISBN13: 978-0-203-86728-0 (ebk)
 
 Almond 3rd pages.indd iv
 

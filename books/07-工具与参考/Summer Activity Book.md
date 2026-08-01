@@ -66,7 +66,6 @@ www.studioarabiya.com
 ‫ﺑ‬
 ْ
 َ
-َ
 
 [Allahumma ftaḥ lee abwaaba raḥmatik]
 "O Allah, open the gates of Your mercy for me."

@@ -7,7 +7,6 @@
 ТН:Е ROAD ТО МАККАН
 Ьу Мипаттаа Asad
 
-ISBN: 81-7231-160-5
 
 Reprint Edition- 2004
 
@@ -3160,7 +3159,6 @@ bettered. 1 strongly felt even then that materialprogress,by itself,
 could not provide а solution; and although 1 did not quite kno\v
 where а solution might Ье found, 1 was never аЫе to evince \vithin myself that enthusiasm which ту contemporaries had Гог
 'progress'.
-.
 .
 Not that 1 was unЬарру. 1 had never Ьееп ап introvert, and
 just then 1 was enjoying а тоге than usual measure of success in

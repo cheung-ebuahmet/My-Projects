@@ -31,8 +31,6 @@ All photographs of works in the Museum’s collection are by
 the Photograph Studio of The Metropolitan Museum of Art
 except for the following: nos. 14 and 20 by Schecter Lee;
 nos. 17 and 18 by Malcom Varon, N.Y.C.
-ISBN 1-58839-084-5 (The Metropolitan Museum of Art)
-ISBN 1-300-10343-3 (Yale University Press)
 Library of Congress Control Number: 2003110847
 
 Introduction and How to Use These Materials
@@ -1255,7 +1253,6 @@ Unfold.
 D
 
 E
-B
 B
 
 C

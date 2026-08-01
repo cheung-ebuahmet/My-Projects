@@ -66,7 +66,6 @@ Library of Congress Cataloging-in-Publication Data
 Hoyland, Robert G., 1966In God’s path : the Arab conquests and the creation of an Islamic empire / Robert Hoyland.
 pages cm. — (Ancient warfare and civilization)
 Includes bibliographical references.
-ISBN 978–0–19–991636–8 — ISBN 978–0–19–991637–5 1. Islamic Empire—History—622–661.
 2. Islamic Empire—History—661–750. I. Title.
 DS38.1.H688 2014
 909’.09767—dc23
@@ -7473,7 +7472,6 @@ ca. 610
 614–28
 622
 628
-630
 630
 632
 634

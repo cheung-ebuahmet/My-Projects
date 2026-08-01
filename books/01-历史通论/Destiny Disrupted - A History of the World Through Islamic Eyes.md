@@ -233,7 +233,6 @@ ix
 
 xv1
 2
-2
 15
 69
 76
@@ -10323,8 +10322,6 @@ EGYPT
 French Rule
 Russian Rule
 
-D
-D
 D
 THE SYKES-PI C OT AGREEMEN T
 

@@ -27,7 +27,6 @@ Fourth edition:
 
 January
 February
-February
 May
 
 2003
@@ -1246,7 +1245,6 @@ Allah  is the greatest.
 I bear witness that there is no God besides Allah .
 
 .o   !    
-.o   !    
 I bear witness that Muhammad j is the messenger of Allah .
 
 .')i 6) /$
@@ -1254,14 +1252,12 @@ I bear witness that Muhammad j is the messenger of Allah .
 .')i 6) /$
 
 Come to Salaah.
-Come to Salaah.
 (Turn the face to the right when saying these words)
 
 .pjA 6) /$
 
 .pjA 6) /$
 
-Come to success.
 Come to success.
 (Turn the face to the left when saying these words)
 
@@ -1294,14 +1290,12 @@ I bear witness that Muhammad j is the messenger of Allah .
 ')i 6) /$
 
 Come to Salaah.
-Come to Salaah.
 (Turn the face to the right when saying these words)
 
 .pjA 6) /$
 
 pjA 6) /$
 
-Come to success.
 Come to success.
 (Turn the face to the left when saying these words)
 

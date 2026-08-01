@@ -18,7 +18,6 @@ Majid 'Adili [3]
 
 Translator(s):
 ●
-●
 
 Arifa Hudda [4]
 Shaykh Saleem Bhimji [5]
@@ -30,13 +29,11 @@ Islamic Education Board of the World Federation of KSIMC [6]
 
 Category:
 ●
-●
 
 General [7]
 Hadith Collections [8]
 
 Topic Tags:
-●
 ●
 
 Quran [9]

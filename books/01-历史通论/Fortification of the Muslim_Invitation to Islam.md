@@ -250,7 +250,6 @@ c
 ic
 n
 letter
-letter
 symbol
 
 Transliteratio

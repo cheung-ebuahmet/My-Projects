@@ -1,0 +1,251 @@
+<!DOCTYPE html>
+<html lang="zh-TW">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>集名 — 天方東漸錄</title>
+<style>
+  /* ========== 字體導入 ========== */
+  @import url('https://fonts.googleapis.com/css2?family=Noto+Serif+SC:wght@400;600;700&family=Noto+Sans+SC:wght@300;400;500&display=swap');
+
+  /* ========== 全域重置 ========== */
+  * { margin: 0; padding: 0; box-sizing: border-box; font-style: normal; }
+
+  /* ========== 基底 ========== */
+  body {
+    font-family: 'Noto Serif SC', 'Songti SC', 'SimSun', serif;  /* 正文襯線 */
+    background: #f3efe8;   /* 淺牙色底，宋卷紙感 */
+    color: #2d2a24;        /* 墨褐字 */
+    line-height: 1.9;
+    font-size: 17px;
+  }
+
+  /* ========== 頂端裝飾線 ========== */
+  .top-bar { height: 2px; background: #4a3f38; opacity: 0.3; }
+
+  /* ========== 主容器 ========== */
+  .container { max-width: 720px; margin: 0 auto; padding: 48px 40px 64px; }
+
+  /* ========== 系列標頭區 ========== */
+  .series-label {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 6px;
+    color: #8b7b6e; text-align: center; margin-bottom: 6px; font-weight: 400;
+  }
+  .episode-number {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; color: #b0a69a;
+    text-align: center; letter-spacing: 3px; margin-bottom: 28px;
+  }
+
+  /* ========== 主標題 ========== */
+  h1 {
+    font-size: 30px; font-weight: 700; text-align: center; letter-spacing: 8px;
+    color: #2d2a24; margin-bottom: 44px; line-height: 1.6;
+  }
+
+  /* ========== 開篇名言（epigraph）========== */
+  .epigraph {
+    text-align: center; margin: 0 auto 44px; padding: 20px 28px;
+    border-top: 1px solid #d4cdc0; border-bottom: 1px solid #d4cdc0;
+    max-width: 560px; font-size: 16px; color: #6b6258; line-height: 1.9;
+  }
+  .epigraph .attribution {
+    display: block; margin-top: 8px; font-size: 13px;
+    color: #b0a69a; letter-spacing: 1px;
+  }
+
+  /* ========== 紀年表（timeline）========== */
+  .timeline {
+    background: #ece7df; padding: 20px 28px; margin-bottom: 44px;
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; line-height: 2; color: #5a524a;
+  }
+  .timeline-title {
+    font-weight: 500; color: #7a6b5e; margin-bottom: 6px;
+    font-size: 12px; letter-spacing: 3px;
+  }
+  .timeline-entry { display: flex; gap: 10px; }
+  .timeline-year { font-weight: 600; color: #4a3f38; min-width: 3em; }
+
+  /* ========== 正文段落 ========== */
+  .body-text p {
+    margin-bottom: 1.2em;   /* 段落間距 */
+    text-indent: 0;          /* 不縮排，左對齊 */
+    text-align: left;
+  }
+
+  /* ========== 雙空行分段（敘事呼吸）========== */
+  .body-text .section-break { height: 1.2em; }
+
+  /* ========== 強調 ========== */
+  .body-text strong, .body-text b { font-weight: 600; color: #2d2a24; }
+
+  /* ========== 引用塊（古文/引文）========== */
+  .body-text blockquote {
+    margin: 1em 0 1.2em 0; padding: 8px 20px;
+    border-left: 2px solid #c4b8a8;  /* 細左線 */
+    font-size: 15px; line-height: 1.9; color: #5a524a; text-indent: 0;
+  }
+  .body-text blockquote strong { color: #4a3f38; font-weight: 600; font-style: normal; }
+
+  /* ========== 詩歌穿插（短句節奏）========== */
+  .poem {
+    text-align: center; margin: 1.5em 0;
+    font-size: 16px; line-height: 2.2; color: #7a6b5e;
+  }
+  .poem span { display: block; }
+
+  /* ========== 結尾三段式 ========== */
+  .closing-landmark p { margin-bottom: 1.2em; }
+  .closing-reflection { margin-top: 1.2em; }
+  .closing-quote { margin-top: 1.2em; }
+
+  /* ========== 徵引書目 ========== */
+  .references {
+    margin-top: 48px; padding-top: 28px; border-top: 1px solid #d4cdc0;
+  }
+  .references h2 {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 4px;
+    color: #b0a69a; font-weight: 400; margin-bottom: 16px;
+  }
+  .references ol { list-style: none; padding: 0; }
+  .references li {
+    font-size: 13px; line-height: 1.8; color: #8b7b6e;
+    margin-bottom: 3px; padding-left: 1.5em; text-indent: -1.5em;  /* 懸掛縮排 */
+  }
+
+  /* ========== 響應式（手機）========== */
+  @media (max-width: 600px) {
+    .container { padding: 28px 20px 48px; }
+    h1 { font-size: 22px; letter-spacing: 4px; margin-bottom: 32px; }
+    body { font-size: 15px; }
+    .timeline { padding: 14px 18px; }
+    .epigraph { padding: 14px 18px; font-size: 14px; }
+  }
+</style>
+</head>
+<body>
+
+<!-- ███████████████████████████████████████ -->
+<!-- 頂端裝飾線 -->
+<!-- ███████████████████████████████████████ -->
+<div class="top-bar"></div>
+
+<div class="container">
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 系列標頭區 -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="series-label">天方東漸錄</div>
+  <div class="episode-number">第 00N 集</div>
+  <h1>四字意象：七言敘事</h1>
+
+  <!-- #################################### -->
+  <!-- 如果沒有紀年表，刪除 timeline 整塊     -->
+  <!-- ########### 可選區：紀年表 ########### -->
+  <div class="timeline">
+    <div class="timeline-title">▎本集故事跨越的西元紀年</div>
+    <!-- 每條一行，格式：-->
+    <!-- <div class="timeline-entry"><span class="timeline-year">0000</span> 事件描述</div> -->
+  </div>
+
+  <!-- #################################### -->
+  <!-- 如果沒有開篇名言，刪除 epigraph 整塊 -->
+  <!-- ######### 可選區：跨界名言 ########## -->
+  <div class="epigraph">
+    <p>「名言正文」</p>
+    <span class="attribution">—— 出處</span>
+  </div>
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 正文開始                                  -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="body-text">
+
+    <!-- 正常段落 -->
+    <p>段落文字。**粗體**用 &lt;strong&gt; 標籤。</p>
+
+    <!-- 雙空行分段 —— 敘事呼吸 -->
+    <div class="section-break"></div>
+
+    <!-- 古文/引文（引用塊） -->
+    <blockquote>引文內容</blockquote>
+    <blockquote><strong>強調的引文</strong></blockquote>
+
+    <!-- 詩歌穿插 —— 短句節奏 -->
+    <div class="poem">
+      <span>第一句，</span>
+      <span>第二句，</span>
+      <span>第三句。</span>
+    </div>
+
+    <!-- ##### 結尾三段式 ##### -->
+    <!-- 第一段：今地標 -->
+    <div class="closing-landmark">
+      <p>從歷史跳到今天的地點描寫。</p>
+    </div>
+
+    <!-- 第二段：哲思匯總 + 錨句 -->
+    <div class="closing-reflection">
+      <p>用全篇細節回望歷史。<strong>錨句在此加粗。</strong></p>
+    </div>
+
+    <!-- 第三段：引語收束 -->
+    <div class="closing-quote">
+      <p>過渡句。</p>
+      <blockquote><strong>「引語」</strong></blockquote>
+      <p>結尾句。</p>
+    </div>
+
+  </div><!-- /body-text -->
+
+</div><!-- /container -->
+
+
+<!-- ███████████████████████████████████████ -->
+<!-- 版權聲明                                    -->
+<!-- ███████████████████████████████████████ -->
+<div style="max-width:720px;margin:0 auto;padding:16px 40px 36px;border-top:1px solid #e0d8cc;font-family:'Noto Sans SC',sans-serif;font-size:11px;color:#b0a69a;text-align:center;line-height:1.8;">
+  <p>本文由 <strong style="color:#8b7b6e;"><a href="https://thestillway.hyvorblogs.io" target="_blank" style="color:#8b7b6e;text-decoration:none;border-bottom:1px dotted #c4b8a8;">澹然</a></strong> 書寫。</p>
+  <p>歡迎轉載、轉發與繁轉簡使用。分享時請保留作者與出處連結。</p>
+  <p style="margin-top:4px;">✦ 走入島嶼一隅的深處閱讀：thestillway.hyvorblogs.io</p>
+</div>
+
+</body>
+</html>
+
+
+<!-- ============================================================ -->
+<!--                    使用說明                                   -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--   ▸ 所有正文在 <div class="body-text">...</div> 內               -->
+<!--   ▸ 關鍵結構：                                                    -->
+<!--       <p>段落</p>                    一般段落                      -->
+<!--       <div class="section-break"></div>   雙空行分段（敘事呼吸）      -->
+<!--       <blockquote>...</blockquote>        引用塊（古文引文）         -->
+<!--       <strong>...</strong>                粗體強調                   -->
+<!--       <div class="poem">...</div>         詩歌穿插                  -->
+<!--   ▸ 結尾三段式：closing-landmark + closing-reflection + closing-quote -->
+<!--   ▸ timeline / epigraph 為可選，不用即刪                           -->
+<!--   ▸ 配色一律用 palette 中的色碼，不引入新色                        -->
+<!--                                                                  -->
+<!-- ============================================================ -->
+
+
+<!-- ============================================================ -->
+<!--  配色一覽（宋代風）                                           -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--  背景底色     #f3efe8  淺牙色，宋卷紙感                          -->
+<!--  主文字色     #2d2a24  墨褐                                      -->
+<!--  深輔助色     #4a3f38  深檀木（年份、頂端線）                     -->
+<!--  中輔助色     #8b7b6e  鼠灰棕（系列名、徵引書目）                 -->
+<!--  淺輔助色     #b0a69a  枯茶色（集號、出處）                      -->
+<!--  引用文字     #5a524a  棕灰                                      -->
+<!--  邊框線       #d4cdc0  米灰                                      -->
+<!--  紀年底色     #ece7df  淺米                                      -->
+<!--                                                                  -->
+<!-- ============================================================ -->

@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 How Many Rakat For Each Prayer
-How Many Rakat For Each Prayer
 Fajr – 2 Sunnah* & 2 Fard
 Thuhr – 2 Sunnah + 2 Sunnah* & 4 Fard & 2 Sunnah
 Asr – 4 Fard

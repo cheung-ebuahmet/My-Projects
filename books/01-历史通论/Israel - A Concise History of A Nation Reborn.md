@@ -8176,7 +8176,6 @@ rocks.” Then came the threat.
 If I become hungry
 The usurper’s flesh will be my food.
 Beware.
-Beware.
 Of my hunger.
 And my anger!
 
@@ -15979,7 +15978,6 @@ information storage and retrieval system, in any form or by any means, whether e
 now known or hereafter invented, without the express written permission of HarperCollins e-books.
 FIRST EDITION
 
-ISBN 978-0-06-236874-4
 EPub Edition October 2016 ISBN 9780062368768
 16 17 18 19 20
 

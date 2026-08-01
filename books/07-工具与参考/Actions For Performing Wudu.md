@@ -7,7 +7,6 @@ The Islamic Champer
 Articles -Islamic Information and Free material
 
 Actions For Performing Wudu (Ablution)
-Actions For Performing Wudu (Ablution)
 Perform completely the wudu, imitating the method commanded by Allah (SWT) in the
 Qu’ran:
 Allah (SWT) said, “O you who believe! When you intend to offer prayer, wash your faces

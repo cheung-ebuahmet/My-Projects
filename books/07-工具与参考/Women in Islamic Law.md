@@ -857,7 +857,6 @@ Fakhr al-Din al-Razi. ​Mafatih al-Ghayb​ verse 2:282. The Arabic reads:
 ‫ٰ { واﻟﻤﻌﻨﻰ أن اﻟﻨﺴﯿﺎن ﻏﺎﻟﺐ ﻃﺒﺎع اﻟﻨﺴﺎء ﻟﻜﺜﺮة اﻟﺒﺮد واﻟﺮﻃﻮﺑﺔ ﻓﻲ أﻣﺰﺟﺘﻬﻦ‬
 ‫ٱﻷﺧْ ﺮَ ى‬
 ِ
-ِ
 Hellenistic physiology in deliberations about women’s nature is widespread in the classical tradition of Muslim
 scholars, encountered for instance from Abu’l-Layth al-Samarqandi (d .375 H) in Transoxania (​Bahr al-`Ulum
 exegesis of 4:34) to Abu Abdullah al-Qurtubi (d. 671 H) in Cordova (​Jami’ li-Ahkam al-Qur’an​ exegesis of 4:34).

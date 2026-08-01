@@ -53,9 +53,7 @@ SFP
 -&6
  ±GF
 
-ISBN 0-203-57167-3 Master e-book ISBN
 
-ISBN 0-203-33801-4 (Adobe eReader Format)
 ,6%1²²² (Print edition)
 
 &217(176
@@ -10747,7 +10745,6 @@ WR$' HG-RKQ'XQQS
 6HH )RQWDQD  µ'HPRFUDF\ DQG WKH )UHQFK 5HYROXWLRQ¶ LQ 'HPRFUDF\ WKH
 8QILQLVKHG-RXUQH\ %& WR$' HG-RKQ'XQQS
 ,ELGS
-,ELGS
 6HH 0RUULV  µ7KH 9HU\ ,GHD RI 3RSXODU 6RYHUHLJQW\ ³:H WKH 3HRSOH´
 5HFRQVLGHUHG¶ 6RFLDO3KLORVRSK\DQG3ROLF\9RO1RSDQG+LQVOH\)
 6RYHUHLJQW\S
@@ -10771,9 +10768,7 @@ WR$' HG-RKQ'XQQS
 ,ELGSS±
 4XRWHGLQ$UEODVWHURSFLWS
 ,ELGS
-,ELGS
 4XRWHGLQ$UEODVWHURSFLWS
-,ELGS
 ,ELGS
 6HH0LOO-RKQ6WXDUWE&RQVLGHUDWLRQVRQ5HSUHVHQWDWLYH*RYHUQPHQWS
 4XRWHGLQ$UEODVWHURSFLWS
@@ -12099,10 +12094,6 @@ S
 6HH/LMSKDUWRSFLWSDQG/DQHRSFLWS
 6HH/DQHRSFLWSS±
 6HH,QWHUYLHZ1RZLWKDO7XUDEL
-,ELG
-,ELG
-,ELG
-,ELG
 ,ELG
 6HHWKH&RQVWLWXWLRQRI6XGDQS
 6HH,QWHUYLHZ1RZLWKDO7XUDELRSFLW

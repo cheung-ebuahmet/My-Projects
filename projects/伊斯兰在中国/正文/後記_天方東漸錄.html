@@ -1,0 +1,297 @@
+<!DOCTYPE html>
+<html lang="zh-TW">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>集名 — 天方東漸錄</title>
+<style>
+  /* ========== 字體導入 ========== */
+  @import url('https://fonts.googleapis.com/css2?family=Noto+Serif+SC:wght@400;600;700&family=Noto+Sans+SC:wght@300;400;500&display=swap');
+
+  /* ========== 全域重置 ========== */
+  * { margin: 0; padding: 0; box-sizing: border-box; font-style: normal; }
+
+  /* ========== 基底 ========== */
+  body {
+    font-family: 'Noto Serif SC', 'Songti SC', 'SimSun', serif;  /* 正文襯線 */
+    background: #f3efe8;   /* 淺牙色底，宋卷紙感 */
+    color: #2d2a24;        /* 墨褐字 */
+    line-height: 1.9;
+    font-size: 17px;
+  }
+
+  /* ========== 頂端裝飾線 ========== */
+  .top-bar { height: 2px; background: #4a3f38; opacity: 0.3; }
+
+  /* ========== 主容器 ========== */
+  .container { max-width: 720px; margin: 0 auto; padding: 48px 40px 64px; }
+
+  /* ========== 系列標頭區 ========== */
+  .series-label {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 6px;
+    color: #8b7b6e; text-align: center; margin-bottom: 6px; font-weight: 400;
+  }
+  .episode-number {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; color: #b0a69a;
+    text-align: center; letter-spacing: 3px; margin-bottom: 28px;
+  }
+
+  /* ========== 主標題 ========== */
+  h1 {
+    font-size: 30px; font-weight: 700; text-align: center; letter-spacing: 8px;
+    color: #2d2a24; margin-bottom: 44px; line-height: 1.6;
+  }
+
+  /* ========== 開篇名言（epigraph）========== */
+  .epigraph {
+    text-align: center; margin: 0 auto 44px; padding: 20px 28px;
+    border-top: 1px solid #d4cdc0; border-bottom: 1px solid #d4cdc0;
+    max-width: 560px; font-size: 16px; color: #6b6258; line-height: 1.9;
+  }
+  .epigraph .attribution {
+    display: block; margin-top: 8px; font-size: 13px;
+    color: #b0a69a; letter-spacing: 1px;
+  }
+
+  /* ========== 紀年表（timeline）========== */
+  .timeline {
+    background: #ece7df; padding: 20px 28px; margin-bottom: 44px;
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; line-height: 2; color: #5a524a;
+  }
+  .timeline-title {
+    font-weight: 500; color: #7a6b5e; margin-bottom: 6px;
+    font-size: 12px; letter-spacing: 3px;
+  }
+  .timeline-entry { display: flex; gap: 10px; }
+  .timeline-year { font-weight: 600; color: #4a3f38; min-width: 3em; }
+
+  /* ========== 正文段落 ========== */
+  .body-text p {
+    margin-bottom: 1.2em;   /* 段落間距 */
+    text-indent: 0;          /* 不縮排，左對齊 */
+    text-align: left;
+  }
+
+  /* ========== 雙空行分段（敘事呼吸）========== */
+  .body-text .section-break { height: 1.2em; }
+
+  /* ========== 強調 ========== */
+  .body-text strong, .body-text b { font-weight: 600; color: #2d2a24; }
+
+  /* ========== 引用塊（古文/引文）========== */
+  .body-text blockquote {
+    margin: 1em 0 1.2em 0; padding: 8px 20px;
+    border-left: 2px solid #c4b8a8;  /* 細左線 */
+    font-size: 15px; line-height: 1.9; color: #5a524a; text-indent: 0;
+  }
+  .body-text blockquote strong { color: #4a3f38; font-weight: 600; font-style: normal; }
+
+  /* ========== 詩歌穿插（短句節奏）========== */
+  .poem {
+    text-align: center; margin: 1.5em 0;
+    font-size: 16px; line-height: 2.2; color: #7a6b5e;
+  }
+  .poem span { display: block; }
+
+  /* ========== 結尾三段式 ========== */
+  .closing-landmark p { margin-bottom: 1.2em; }
+  .closing-reflection { margin-top: 1.2em; }
+  .closing-quote { margin-top: 1.2em; }
+
+  /* ========== 徵引書目 ========== */
+  .references {
+    margin-top: 48px; padding-top: 28px; border-top: 1px solid #d4cdc0;
+  }
+  .references h2 {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 4px;
+    color: #b0a69a; font-weight: 400; margin-bottom: 16px;
+  }
+  .references ol { list-style: none; padding: 0; }
+  .references li {
+    font-size: 13px; line-height: 1.8; color: #8b7b6e;
+    margin-bottom: 3px; padding-left: 1.5em; text-indent: -1.5em;  /* 懸掛縮排 */
+  }
+
+  /* ========== 響應式（手機）========== */
+  @media (max-width: 600px) {
+    .container { padding: 28px 20px 48px; }
+    h1 { font-size: 22px; letter-spacing: 4px; margin-bottom: 32px; }
+    body { font-size: 15px; }
+    .timeline { padding: 14px 18px; }
+    .epigraph { padding: 14px 18px; font-size: 14px; }
+  }
+</style>
+</head>
+<body>
+
+<!-- ███████████████████████████████████████ -->
+<!-- 頂端裝飾線 -->
+<!-- ███████████████████████████████████████ -->
+<div class="top-bar"></div>
+
+<div class="container">
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 系列標頭區 -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="series-label">天方東漸錄</div>
+  <div class="episode-number">後記</div>
+  <h1>寫在歷史的邊上</h1>
+
+  <!-- #################################### -->
+  <!-- 如果沒有紀年表，刪除 timeline 整塊     -->
+  <!-- ########### 可選區：紀年表 ########### -->
+  <!-- 每條一行，格式：-->
+    <!-- <div class="timeline-entry"><span class="timeline-year">0000</span> 事件描述</div> -->
+  </div>
+
+  <!-- #################################### -->
+  <!-- 如果沒有開篇名言，刪除 epigraph 整塊 -->
+  <!-- ######### 可選區：跨界名言 ########## -->
+  <div class="epigraph"><p>「歷史的真正用處不在於記憶，而在於透視——它讓我們看見，那些我們以為永恆的，無一不在變化之中；那些我們以為不可逾越的，都曾經被越過。」</p><span class="attribution">—— 改寫自湯因比《歷史研究》</span></div>
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 正文開始                                  -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="body-text">
+    <p>永徽二年，西元651年，長安城門外來了幾個大食人。唐朝的史官在《舊唐書》裏寫了十四個字：「永徽二年八月乙丑，大食國始遣使朝獻。」這就是本系列第一集「長安遠客」的起點——一個離昆明湖和甘泉宮都很近的日期，被史官用一筆帶過，變成了一句公文。</p>
+    <p>十四個字。不會有人想到，這十四個字會展開成一千三百多年的歷史。</p>
+    <p>當我決定把這十四個字寫成一個系列的時候，第一個問題是：怎麼寫？</p>
+    <p>正史的慣例是編年排比，皇帝與將軍依次登場，事件之間用因果鏈銜接——整齊得像一座拼圖。但這不是我在資料庫那百餘冊書中讀到的歷史。我讀到的是那些正史不記錄的人——商人、水手、阿訇、戰俘、在邊境上通婚的女人。所以系列從一開始就有一個明確的選擇：以普通人而非帝王將相為主角。泉州出土的宋元阿拉伯文墓碑上，中文與阿拉伯文並刻——那些連名字都沒留下的人，他們的墓碑在一千年後告訴學者：這座港口曾經容納多種語言、多種信仰的人在同一片土地上各自安葬。</p>
+    <p>他們都不知道自己正在經歷「歷史」。這就是系列的方法論：<strong>不從結果倒推原因，而是站在當事人的肩膀上，看他當時能看見什麼、不能看見什麼。</strong></p>
+    <p>法國史家布勞岱爾曾以海洋為喻，歷史有幾種節奏。事件史是最表層的波浪，經濟社會的週期是中層的潮汐，地理與氣候的結構是最深層的幾乎不動。本系列貫穿千年時光，正好可以同時觀察這三種節奏。伊本·赫勒敦在十四世紀的《歷史緒論》中提出文明是循環的——從遊牧的粗獷團結到定居的奢華鬆散，再到被新的力量取代。從永徽到當代，中國穆斯林經歷了多次這種循環：唐代的開放、宋代的制度化、明代的禁錮、清代的壓迫、近代的重生。每一次循環都沒有消滅他們——不是因為「韌性」，而是因為他們學會了在每一次循環中找到一個新的生存位置。</p>
+    <p>中國穆斯林的故事之所以值得講，不是因為它「偉大」——它的底色往往是悲慘的、壓抑的、充滿妥協與遺忘——而是因為它的不可重複性。伊斯蘭和儒家，這兩套對世界有完全不同解釋的體系，在同一群人身上交匯了。它們碰撞出了以儒詮經的哲學體系、經堂教育的傳承方式、門宦制度下的蘇菲道統、阿拉伯文和漢文並刻的墓碑。這些產物都不完美，都充滿了內在張力——但這正是它們真實的原因。</p>
+    <p>奧地利作家茨威格在《人類的群星閃耀時》中說過一句話：「一個人最大的幸運，莫過於在他的人生中途，發現了自己的使命。」這句話用在文明的相遇上也同樣動人：<strong>一個文明最深的成長，莫過於在它的中途遇見另一個文明——如同站在鏡前，既是認識鏡中的自我，更是透過那面鏡子成為更完善的自己。</strong> 中國穆斯林的故事，就是這種映照與完善的記錄。</p>
+    <p>這樣的歷史走向哪裏？不是不曾憂慮。但樂觀有它的來處——不是因為無視伊斯蘭世界在近代的苦難，而是因為我看見了選擇的力量。</p>
+    <p>在每一個苦難的時刻，有人選擇了仇恨，有人選擇了遺忘，但也有人選擇了復興。馬歡選擇了執筆記錄，將《瀛涯勝覽》留給了後世——他不是學者，他只是一個通事，但他的記錄比任何官方檔案都更接近海上世界的真實溫度。王岱輿在明朝覆滅前夕選擇了以儒詮經而不是封閉自守。劉智在窮困潦倒中選擇了寫作，死後他的書被收入《四庫全書》。脫維善從車房工成為香港清潔業鉅子，建了學校和清真寺。那些在鹿港保安宮大梁上藏起《可蘭經》的無名氏，他們不知道這本經書會被人發現，但他們選擇了不銷毀它。</p>
+    <p>伊斯蘭在中國從不靠排斥他者來確認自身。它保護了自身經典的傳承，也在儒家經典中找到了對話的語言。<strong>區分人的，從來不是族裔或標籤，而是在艱難中的選擇——誰在恐懼面前仍願理解，誰在苦難中仍能復甦，誰在驕傲中仍不忘他人。</strong> 這些選擇加起來，就是信仰的全部重量。不是因為勝利而堅持，而是因為堅持本身就是勝利的形式。</p>
+    <p>一個泉州水手在九世紀的印度洋上向安拉祈禱，風浪過後他平安抵達了馬爾地夫。一個雲南回民在十九世紀翻越高黎貢山逃往緬甸，在曼德勒蓋起了一座飛簷斗拱的清真寺。一個北平珠寶商在二十世紀中葉渡海到台灣，傾盡家財買下一棟日式木樓，捐作來台回民的第一座禮拜之處。這些人的共同點是什麼？他們不是聖人，不是英雄——他們是有信仰的普通人。而普通人能做的事，恰恰是歷史中最持久的力量。它不是轟轟烈烈的——它是灶頭上的清真飯菜、禮拜氈上的塵土、墓碑上刻着的中文和阿拉伯文並列的姓名。</p>
+    <p>法國詩人夏爾在二戰抵抗運動中寫過一句話：「我們的遺產沒有任何遺囑相伴。」前人留下的遺產，從不附帶解說手冊。中國伊斯蘭的遺產亦然。</p>
+    <p>伊斯蘭不教人逃離今世，也不教人沉迷今世——它教人耕耘今世，但心繫後世。那些在泉州的港口裝卸貨物的商人，在曼德勒蓋起清真寺的工匠，在鹿港保安宮大梁上藏起經書的無名氏——他們不是為了被後人記住才做這些事的。他們耕作，是因為耕作本身就是信仰的一部分；他們傳承，是因為確信自己所傳的比自己的壽命更長久。對於一個穆斯林來說，最重的秤盤不是財富，不是名聲，而是敬畏——對安拉的敬畏、對審判日的確信、對「我將回到祂那裏」的篤定。這種篤定，才是他們留給後來者真正的遺產。</p>
+    <p>那些鄭和沒有駛完的航程、蒲家沒有駛離港口的船、王岱輿沒有來得及解釋的經文、脫維善沒有建成的最後一所學校——它們都沒有消失。它們變成了下一代人繼續前行的起點。</p>
+    <p>回到永徽二年。那個大食使節走進長安城的時候，他不會想到十四個字會流傳十三個世紀。今天我們寫下的每一個字，也會被一千年後的人閱讀和評判——如果到那時還有人在閱讀。</p>
+    <p>本系列的十七集正文和三篇番外，是我對那些在歷史縫隙中生存和傳承的人們的致敬。那些在泉州蕃坊中記賬的無名商人、沿着河西走廊逃亡的回回難民、在黃土高原上蓋起中式清真寺的工匠、只因聽聞真理便被降服而無所求地歸信的人——他們的選擇構成了一道看不見的線索，從唐代一直延伸到今天。</p>
+    <p><strong>歷史學家最深的自持，是不把古人當成通往今日的臺階。</strong> 我想起費信在《星槎勝覽》自序中寫下的那句話——「採輯諸番風俗、人物、土產之異，集成事序，詠其詩篇。」一個隨鄭和遠航的通事，在公務之餘逐國記錄，為每一個去過的港口寫一首詩。文明之間最深的理解，往往不是來自宏大的外交辭令，而是來自一個普通人在燈下寫下的一首詩、一句話、一個精確的數字。</p>
+    <p>跨越十三個世紀的故事始於使節的腳步，也終歸於祈禱。那些在這片土地上世代禮拜的人，用同一套經文中的話語向同一個方向祈禱——爲知識、爲寬容、爲旅途平安、爲在陌生之地找到歸宿。</p>
+    <p><strong>「我的主啊！求你使我胸襟開闊；求你使我的事業順利。」</strong>
+—— 古蘭經第二十章第二五至二八節</p>
+    <p><strong>「我的主啊！求你增加我的知識。」</strong>
+—— 古蘭經第二十章第一一四節</p>
+    <p><strong>「我的主啊！求你使我在一個吉祥的地方登陸，你是最會安置眾生的。」</strong>
+—— 古蘭經第二十三章第二九節</p>
+    <p><strong>「我們的主啊！求你不要懲罰我們，如果我們遺忘或錯誤。我們的主啊！求你不要使我們負荷重擔，如同你使古人負荷它一樣。我們的主啊！求你不要使我們負擔我們所不能勝任的。求你恕饒我們，求你赦宥我們，求你憐憫我們。你是我們的保護者，求你援助我們戰勝不信道的民眾。」</strong>
+—— 古蘭經第二章第二八六節</p>
+  </div><!-- /body-text -->
+
+  <div class="references">
+    <h2>徵 引 書 目</h2>
+    <ol>
+    </ol>
+    <h4 style="font-family:'Noto Sans SC',sans-serif;font-size:13px;font-weight:500;letter-spacing:2px;color:#6b6258;margin-top:28px;margin-bottom:8px;">中文古籍</h4>
+    <ol>
+      <li>《舊唐書·大食傳》（後晉·劉昫等）</li>
+      <li>《新唐書·大食傳》（宋·歐陽修等）</li>
+      <li>杜環《經行記》（載杜佑《通典》）</li>
+      <li>《宋史·大食傳》（元·脫脫等）</li>
+      <li>周去非《嶺外代答》（宋）</li>
+      <li>趙汝适《諸蕃志》（宋）</li>
+      <li>《明史·卷三百二十五·滿剌加傳》（清·張廷玉等）</li>
+      <li>馬歡《瀛涯勝覽》（明）</li>
+      <li>費信《星槎勝覽》（明）</li>
+      <li>鞏珍《西洋番國志》（明）</li>
+      <li>汪大淵《島夷誌略》（元）</li>
+      <li>連雅堂《臺灣通史》（1918年）</li>
+      <li>何喬遠《閩書》（明崇禎）</li>
+      <li>陳第《東番記》（1603年）</li>
+      <li>楊英《從征實錄》（明鄭）</li>
+      <li>周璽《彰化縣志》（清道光）</li>
+      <li>郁永河《裨海紀遊》（1697年）</li>
+      <li>黃叔璥《臺海使槎錄》（1722年）</li>
+      <li>朱景英《海東札記》（1772年）</li>
+      <li>印光任、張汝霖《澳門記略》（1751年）</li>
+      <li>《粵海關志》（清道光）</li>
+    </ol>
+    <h4 style="font-family:'Noto Sans SC',sans-serif;font-size:13px;font-weight:500;letter-spacing:2px;color:#6b6258;margin-top:28px;margin-bottom:8px;">中文學術著作</h4>
+    <ol>
+      <li>白壽彝《中國回教小史》《中國伊斯蘭史存稿》</li>
+      <li>陳垣《回回教入中國史略》</li>
+      <li>金吉堂《中國回教史研究》</li>
+      <li>傅統先《中國回教史》</li>
+      <li>楊懷中《伊斯蘭教在中國》</li>
+      <li>張星烺《中西交通史料匯編》</li>
+      <li>向達《中外交通小史》</li>
+      <li>馮承鈞《中國南洋交通史》</li>
+    </ol>
+    <h4 style="font-family:'Noto Sans SC',sans-serif;font-size:13px;font-weight:500;letter-spacing:2px;color:#6b6258;margin-top:28px;margin-bottom:8px;">Arabic & Persian Sources (in Translation)</h4>
+    <ol>
+      <li>Mas'udi, *Muruj al-Dhahab* (The Meadows of Gold)</li>
+      <li>Ibn Battuta, *Rihla* (Travels)</li>
+      <li>Rashid al-Din, *Jami' al-Tawarikh* (Compendium of Chronicles)</li>
+      <li>Ibn Khaldun, *Muqaddimah* (The Introduction to History)</li>
+    </ol>
+    <h4 style="font-family:'Noto Sans SC',sans-serif;font-size:13px;font-weight:500;letter-spacing:2px;color:#6b6258;margin-top:28px;margin-bottom:8px;">English Academic Works</h4>
+    <ol>
+      <li>Andrew Forbes, *Panthay: Chinese Muslims in Burma*</li>
+      <li>Claudine Salmon, *Chinese Muslims in Java*</li>
+      <li>Fernand Braudel, *The Mediterranean and the Mediterranean World in the Age of Philip II*</li>
+      <li>Arnold Toynbee, *A Study of History*</li>
+      <li>Karl Jaspers, *The Origin and Goal of History*</li>
+    </ol>
+    <h4 style="font-family:'Noto Sans SC',sans-serif;font-size:13px;font-weight:500;letter-spacing:2px;color:#6b6258;margin-top:28px;margin-bottom:8px;">現存出土文獻</h4>
+    <ol>
+      <li>Galle Trilingual Inscription（鄭和錫蘭三語碑，1409年），斯里蘭卡科倫坡國立博物館藏</li>
+    </ol>
+  </div>
+
+</div><!-- /container -->
+
+
+<!-- ███████████████████████████████████████ -->
+<!-- 版權聲明                                    -->
+<!-- ███████████████████████████████████████ -->
+<div style="max-width:720px;margin:0 auto;padding:16px 40px 36px;border-top:1px solid #e0d8cc;font-family:'Noto Sans SC',sans-serif;font-size:11px;color:#b0a69a;text-align:center;line-height:1.8;">
+  <p>本文由 <strong style="color:#8b7b6e;"><a href="https://thestillway.hyvorblogs.io" target="_blank" style="color:#8b7b6e;text-decoration:none;border-bottom:1px dotted #c4b8a8;">澹然</a></strong> 書寫。</p>
+  <p>歡迎轉載、轉發與繁轉簡使用。分享時請保留作者與出處連結。</p>
+  <p style="margin-top:4px;">✦ 走入島嶼一隅的深處閱讀：thestillway.hyvorblogs.io</p>
+</div>
+
+</body>
+</html>
+
+
+<!-- ============================================================ -->
+<!--                    使用說明                                   -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--   ▸ 所有正文在 <div class="body-text">...</div> 內               -->
+<!--   ▸ 關鍵結構：                                                    -->
+<!--       <p>段落</p>                    一般段落                      -->
+<!--       <div class="section-break"></div>   雙空行分段（敘事呼吸）      -->
+<!--       <blockquote>...</blockquote>        引用塊（古文引文）         -->
+<!--       <strong>...</strong>                粗體強調                   -->
+<!--       <div class="poem">...</div>         詩歌穿插                  -->
+<!--   ▸ 結尾三段式：closing-landmark + closing-reflection + closing-quote -->
+<!--   ▸ timeline / epigraph 為可選，不用即刪                           -->
+<!--   ▸ 配色一律用 palette 中的色碼，不引入新色                        -->
+<!--                                                                  -->
+<!-- ============================================================ -->
+
+
+<!-- ============================================================ -->
+<!--  配色一覽（宋代風）                                           -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--  背景底色     #f3efe8  淺牙色，宋卷紙感                          -->
+<!--  主文字色     #2d2a24  墨褐                                      -->
+<!--  深輔助色     #4a3f38  深檀木（年份、頂端線）                     -->
+<!--  中輔助色     #8b7b6e  鼠灰棕（系列名、徵引書目）                 -->
+<!--  淺輔助色     #b0a69a  枯茶色（集號、出處）                      -->
+<!--  引用文字     #5a524a  棕灰                                      -->
+<!--  邊框線       #d4cdc0  米灰                                      -->
+<!--  紀年底色     #ece7df  淺米                                      -->
+<!--                                                                  -->
+<!-- ============================================================ -->

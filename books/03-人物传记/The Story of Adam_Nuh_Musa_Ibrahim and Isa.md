@@ -859,7 +859,6 @@ E1
 1:1
 
 a
-a
 •
 
 AJiah forgave Adam and let him stay in [annan.
@@ -871,8 +870,6 @@ To make people stay as Muslim.
 To make people leave Islam.
 To make people love Allah.
 
-II
-II
 II
 
 m
@@ -888,8 +885,6 @@ Do whatever makes you feel good.
 
 Pray to Allah alone and do what Allah likes.
 
-II
-II
 II
 
 m
@@ -930,11 +925,6 @@ each statement and rewrite them in the spaces provided.
 
 m- ----I
 I
-I
-I
-I
-I
-I
 
 ,
 I
@@ -951,23 +941,13 @@ r
 I
 
 I
-I
-I
-I
 
 I
-I
 
-I
 I
 
 , --- - --- ,
 - ---------0
-I
-I
-I
-I
-I
 I
 
 ,
@@ -1502,13 +1482,10 @@ a
 He was able to tly.
 
 11
-11
 
 a
 11
 a
-11
-11
 11
 
 a
@@ -1733,7 +1710,6 @@ Th e publisher tha n ks Allah, Lord of th e Wor lds, tor making this pu blicatio
 British Librory Cotologuing in Puhlieotion Doto
 A CIP catalogue record for thís book is ovuiluble fro m the Brilish Librar}'.
 Printed uno bou nd in China
-ISBN: 978- 1-90551 6-11 -7
 
 2
 
@@ -2078,7 +2054,6 @@ They saw Ibrahim as a dang er to their way of li fe.
 ••
 
 II
-II
 III
 
 It was a cold day.
@@ -2236,7 +2211,6 @@ plain sand. After Ibrahim left, Haajar went to look for
 from the ground. Haajar gave the water to baby Ismail
 who was very
 That water is called
-.
 .
 and the story took place in
 
@@ -3235,7 +3209,6 @@ The publishe r thanks Alla h. Lord of the Worlds, for m a king thi s publication
 British Library Cataloguing In Publication Data
 A C1P ca talogue record for this book is available from the British Library.
 Printed a nd bo u nd in China
-ISBN: 978 -1-9055 16-10-0
 
 2
 
@@ -3684,6 +3657,25 @@ the Rest Point.
 •
 
 •
+
+•
+
+•
+
+•
+
+•
+
+•
+
+•
+
+•
+
+•
+
+•
+
 •
 
 •
@@ -3705,40 +3697,7 @@ the Rest Point.
 •
 
 •
-•
 
-•
-
-•
-•
-
-•
-•
-•
-
-•
-•
-•
-•
-
-•
-
-•
-•
-
-•
-•
-•
-•
-
-•
-
-•
-
-•
-
-•
-•
 •
 
 •
@@ -3752,27 +3711,13 @@ the Rest Point.
 •
 
 •
-•
-•
-•
-•
-•
-•
-•
 
-•
-•
-•
-•
 •
 
 •
 
 •
-•
-•
 
-•
 •
 
 •
@@ -3787,29 +3732,9 @@ the Rest Point.
 •
 
 •
-•
-•
-•
-•
-•
-•
-•
 
 •
-•
-•
-•
-•
-•
-•
-•
-•
 
-•
-•
-•
-•
-•
 •
 
 •
@@ -3902,7 +3827,6 @@ JComments
 
 Th ey were wa shed a wa y in the fl ood
 
-I
 I
 
 Wave: Th e sea wa ves g rew very tall.

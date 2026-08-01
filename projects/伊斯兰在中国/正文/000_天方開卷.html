@@ -1,0 +1,250 @@
+<!DOCTYPE html>
+<html lang="zh-TW">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>集名 — 天方東漸錄</title>
+<style>
+  /* ========== 字體導入 ========== */
+  @import url('https://fonts.googleapis.com/css2?family=Noto+Serif+SC:wght@400;600;700&family=Noto+Sans+SC:wght@300;400;500&display=swap');
+
+  /* ========== 全域重置 ========== */
+  * { margin: 0; padding: 0; box-sizing: border-box; font-style: normal; }
+
+  /* ========== 基底 ========== */
+  body {
+    font-family: 'Noto Serif SC', 'Songti SC', 'SimSun', serif;  /* 正文襯線 */
+    background: #f3efe8;   /* 淺牙色底，宋卷紙感 */
+    color: #2d2a24;        /* 墨褐字 */
+    line-height: 1.9;
+    font-size: 17px;
+  }
+
+  /* ========== 頂端裝飾線 ========== */
+  .top-bar { height: 2px; background: #4a3f38; opacity: 0.3; }
+
+  /* ========== 主容器 ========== */
+  .container { max-width: 720px; margin: 0 auto; padding: 48px 40px 64px; }
+
+  /* ========== 系列標頭區 ========== */
+  .series-label {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 6px;
+    color: #8b7b6e; text-align: center; margin-bottom: 6px; font-weight: 400;
+  }
+  .episode-number {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; color: #b0a69a;
+    text-align: center; letter-spacing: 3px; margin-bottom: 28px;
+  }
+
+  /* ========== 主標題 ========== */
+  h1 {
+    font-size: 30px; font-weight: 700; text-align: center; letter-spacing: 8px;
+    color: #2d2a24; margin-bottom: 44px; line-height: 1.6;
+  }
+
+  /* ========== 開篇名言（epigraph）========== */
+  .epigraph {
+    text-align: center; margin: 0 auto 44px; padding: 20px 28px;
+    border-top: 1px solid #d4cdc0; border-bottom: 1px solid #d4cdc0;
+    max-width: 560px; font-size: 16px; color: #6b6258; line-height: 1.9;
+  }
+  .epigraph .attribution {
+    display: block; margin-top: 8px; font-size: 13px;
+    color: #b0a69a; letter-spacing: 1px;
+  }
+
+  /* ========== 紀年表（timeline）========== */
+  .timeline {
+    background: #ece7df; padding: 20px 28px; margin-bottom: 44px;
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 13px; line-height: 2; color: #5a524a;
+  }
+  .timeline-title {
+    font-weight: 500; color: #7a6b5e; margin-bottom: 6px;
+    font-size: 12px; letter-spacing: 3px;
+  }
+  .timeline-entry { display: flex; gap: 10px; }
+  .timeline-year { font-weight: 600; color: #4a3f38; min-width: 3em; }
+
+  /* ========== 正文段落 ========== */
+  .body-text p {
+    margin-bottom: 1.2em;   /* 段落間距 */
+    text-indent: 0;          /* 不縮排，左對齊 */
+    text-align: left;
+  }
+
+  /* ========== 雙空行分段（敘事呼吸）========== */
+  .body-text .section-break { height: 1.2em; }
+
+  /* ========== 強調 ========== */
+  .body-text strong, .body-text b { font-weight: 600; color: #2d2a24; }
+
+  /* ========== 引用塊（古文/引文）========== */
+  .body-text blockquote {
+    margin: 1em 0 1.2em 0; padding: 8px 20px;
+    border-left: 2px solid #c4b8a8;  /* 細左線 */
+    font-size: 15px; line-height: 1.9; color: #5a524a; text-indent: 0;
+  }
+  .body-text blockquote strong { color: #4a3f38; font-weight: 600; font-style: normal; }
+
+  /* ========== 詩歌穿插（短句節奏）========== */
+  .poem {
+    text-align: center; margin: 1.5em 0;
+    font-size: 16px; line-height: 2.2; color: #7a6b5e;
+  }
+  .poem span { display: block; }
+
+  /* ========== 結尾三段式 ========== */
+  .closing-landmark p { margin-bottom: 1.2em; }
+  .closing-reflection { margin-top: 1.2em; }
+  .closing-quote { margin-top: 1.2em; }
+
+  /* ========== 徵引書目 ========== */
+  .references {
+    margin-top: 48px; padding-top: 28px; border-top: 1px solid #d4cdc0;
+  }
+  .references h2 {
+    font-family: 'Noto Sans SC', sans-serif;
+    font-size: 12px; letter-spacing: 4px;
+    color: #b0a69a; font-weight: 400; margin-bottom: 16px;
+  }
+  .references ol { list-style: none; padding: 0; }
+  .references li {
+    font-size: 13px; line-height: 1.8; color: #8b7b6e;
+    margin-bottom: 3px; padding-left: 1.5em; text-indent: -1.5em;  /* 懸掛縮排 */
+  }
+
+  /* ========== 響應式（手機）========== */
+  @media (max-width: 600px) {
+    .container { padding: 28px 20px 48px; }
+    h1 { font-size: 22px; letter-spacing: 4px; margin-bottom: 32px; }
+    body { font-size: 15px; }
+    .timeline { padding: 14px 18px; }
+    .epigraph { padding: 14px 18px; font-size: 14px; }
+  }
+</style>
+</head>
+<body>
+
+<!-- ███████████████████████████████████████ -->
+<!-- 頂端裝飾線 -->
+<!-- ███████████████████████████████████████ -->
+<div class="top-bar"></div>
+
+<div class="container">
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 系列標頭區 -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="series-label">天方東漸錄</div>
+  <div class="episode-number">序</div>
+  <h1>天方開卷</h1>
+
+  <!-- #################################### -->
+  <!-- 如果沒有紀年表，刪除 timeline 整塊     -->
+  <!-- ########### 可選區：紀年表 ########### -->
+  <!-- 每條一行，格式：-->
+    <!-- <div class="timeline-entry"><span class="timeline-year">0000</span> 事件描述</div> -->
+  </div>
+
+  <!-- #################################### -->
+  <!-- 如果沒有開篇名言，刪除 epigraph 整塊 -->
+  <!-- ######### 可選區：跨界名言 ########## -->
+  <div class="epigraph"><p>「在是非對錯的盡頭，橫亙著一片無垠的田野。我將在那裡，與你相遇。」</p><span class="attribution">—— 魯米《瑪斯納維》</span></div>
+
+  <!-- ███████████████████████████████████████ -->
+  <!-- 正文開始                                  -->
+  <!-- ███████████████████████████████████████ -->
+  <div class="body-text">
+    <h2 style="font-family:'Noto Sans SC',sans-serif;font-size:15px;font-weight:400;letter-spacing:4px;color:#7a6b5e;margin-top:48px;margin-bottom:20px;text-align:center;">遠與近的偏見</h2>
+    <p>中國人對伊斯蘭的認識，長期存在兩種相反的偏誤。</p>
+    <p>一種是覺得它「遠」——遠在沙漠，遠在波斯灣，遠在中國歷史的主流敘事之外。翻開任何一本標準的中國通史，穆斯林的身影幾乎看不見：他們不在帝王本紀裡，不在科舉榜單上，不在士大夫的詩文唱和之間。這給人一種錯覺——伊斯蘭在中國，不過是邊陲少數民族的風俗奇觀，與「中國文化」的本質無關。</p>
+    <p>另一種偏誤恰恰相反——覺得它「近」得太危險。近到可以威脅某種想像中的「純粹」，近到需要被警惕、被區隔、被反覆定義。從「回回」這個稱呼誕生的那一天起，圍繞它的疑慮就從未真正消退過。</p>
+    <p>這兩種態度看似相反，卻源於同一處匱乏：<strong>我們對這個文明在中國的真實經歷，知道得太少。而對自己所知甚少的事物，人不是將其推遠，便是將其妖魔化——中間地帶需要勇氣，也需要知識。</strong></p>
+    <p>《天方東漸錄》這部系列，就是想填補這個空白。</p>
+    <h2 style="font-family:'Noto Sans SC',sans-serif;font-size:15px;font-weight:400;letter-spacing:4px;color:#7a6b5e;margin-top:48px;margin-bottom:20px;text-align:center;">我們的第三種聲音</h2>
+    <p>這不是一部學術專著，也不是一部宗教宣教讀物。它的寫法有一條核心原則：<strong>讓歷史自己說話，但讓它說出普通人聽得懂的話。</strong></p>
+    <p>每一集的起點都不是帝王將相，而是一個具體的人——一個被俘的書記官、一個在廣州住了五年回不了家的商人、一個在窯洞裡教書的先生。我們從他們的眼睛看世界，跟著他們的足跡走完這條跨越十三個世紀的路。</p>
+    <p>同時，我們拒絕把中國歷史講成一個封閉的故事。當王岱輿在南京寫《正教真詮》的時候，伽利略正在受審，笛卡爾正在寫《方法論》。當賽典赤在雲南修水利的時候，馬可·波羅正在啟程。沒有哪一段中國穆斯林的故事是可以脫離世界史來理解的——這正是「伊斯蘭在中國」這個題目最迷人的地方：它既是中國的，又是世界的。</p>
+    <p>在寫作風格上，我們刻意避免兩種腔調：一種是學術論文的冰冷，另一種是廉價感動的溫吞。我們追求的是第三種聲音——既有史家的冷靜考據，又有詩人的體溫與同情。宏大歷史往往聚焦於帝國的開疆拓土與外交的波瀾壯闊，卻常常忽略季風之中個體命運的沉浮。這部系列的核心辨識度，就在於為那些被正史一筆帶過的尋常記錄正名：朝貢清單背後是一個家庭五年的離散，賦稅冊頁裡藏著一個民族的生存智慧，墓碑上中文與阿拉伯文並列的姓名是兩個文明在同一塊石頭上的約定。</p>
+    <p>資料取捨本身即是一種判斷。古籍原文優先於後人轉述——杜環的《經行記》、周去非的《嶺外代答》、趙汝适的《諸蕃志》、馬歡的《瀛涯勝覽》，這些帶著時代氣息的第一手記錄，比任何二手考證都更接近歷史的溫度。非中國史料同樣重要——阿拉伯地理學家馬蘇第的《黃金草原》、伊本·白圖泰的遊記、波斯史家拉施特丁的《史集》，它們補充了中國古籍的盲點。明知不完整的材料也值得使用，因為歷史記錄永遠是不完整的，我們只能透過有限的碎片去推測一個更宏大的圖景——這不是缺陷，而是歷史本身的性質。</p>
+    <h2 style="font-family:'Noto Sans SC',sans-serif;font-size:15px;font-weight:400;letter-spacing:4px;color:#7a6b5e;margin-top:48px;margin-bottom:20px;text-align:center;">偏見，以及它從何而來</h2>
+    <p>寫這部系列的過程中，有一件事始終縈繞不去：<strong>大多數人對伊斯蘭在中國的印象，來自三手資訊的層層轉述。</strong></p>
+    <p>第一層是西方殖民時代的東方學。十九世紀的歐洲學者帶著基督教文明優越論的眼光，把伊斯蘭描述為「沙漠民族的狂熱信仰」。這套敘述後來被轉譯進中文學術語境，變成了「回回好戰」「穆斯林不融於現代社會」等標籤。</p>
+    <p>第二層是中國本土的族群偏見。從明清之際的「回變」話語，到民國時期的「五族共和」框架，再到當代網絡空間中層出不窮的刻板印象——每一層都在原本就模糊的畫像上疊加了一層新的扭曲。</p>
+    <p>第三層是媒體的選擇性呈現。世界各地的衝突新聞中，「穆斯林」三個字幾乎總是與暴力綁定。至於一個穆斯林商人如何在中世紀的廣州管理他的帳本、一位中國阿訇如何在抗日戰爭中保護村民、一代代回族母親如何在灶台邊把信仰傳給子女——這些畫面永遠不會進入公共視野。</p>
+    <p>這部系列不是要否認歷史中的衝突與苦難。我們會專門講到同治年間的那場浩劫，也會講到清初回回的忠誠困境——我們不會迴避那些黑暗的章節。但我們拒絕把它們簡化成「宗教戰爭」或「種族衝突」。歷史的悲劇從來不是單一原因造成的：晚清地方治理的潰敗、環境崩潰、饑荒蔓延——多重因果鏈交織在一起，遠比任何標籤都複雜，也比任何標籤都值得正視。</p>
+    <p>正因如此，我們在每一集中堅持一個原則：<strong>不站在今天的道德高點審判古人。</strong> 理解一個人在他的時代局限中所綻放出的最高智慧，比給他貼標籤要難得多，但也值得得多。</p>
+    <h2 style="font-family:'Noto Sans SC',sans-serif;font-size:15px;font-weight:400;letter-spacing:4px;color:#7a6b5e;margin-top:48px;margin-bottom:20px;text-align:center;">溯流而上：二十個坐標</h2>
+    <p>這是一條從651年流向今天的河流。</p>
+    <p>它的源頭在長安。大唐永徽二年，一隊裹白色纏頭的人馬從開遠門進了城，大唐永徽二年八月乙丑——史官在起居注中寫下了「大食」這個從未出現過的國名，然後謹慎地加上了一個字：「始」。此後一千三百年，這個名字再也沒有從中國的史冊中消失過。</p>
+    <p>河流在唐代鋪展開來，有了廣州蕃坊的繁華、懷聖寺光塔下多宗教共存的街市。一場怛邏斯敗仗，讓造紙術西傳，被俘的書記官杜環在異邦寫下了中國人對伊斯蘭最早的記錄。這是第一單元——初遇的驚喜與誤解並存，但門已經打開。</p>
+    <p>到了宋元，河流變得更寬。蒲壽庚在泉州掌管著帝國最大的海港，賽典赤在雲南修水利、建孔廟——一個穆斯林用儒家智慧造福一方。色目人遍佈天下，「今回回皆以中原為家」。這是第二單元——紮根的世代。</p>
+    <p>然後是轉折。河流被一道叫海禁的堤壩攔住了去路。出不了海的中國穆斯林轉向了內陸，有人在西北的窯洞裡設帳教學，有人在南京燈下用儒學語言詮釋伊斯蘭。王岱輿、劉智——他們的名字在今天不為人知，但他們在兩個文明之間架起的橋，至今仍在。這是第三單元——文化重構，身份蛻變。</p>
+    <p>河流進入峽谷。清初的降清復叛、同治年間的系統性潰敗——這是最暗的河段。但暗流之下，經堂教育的燈火沒有熄滅，蘇菲的吟唱沒有停止。到了清末民初，新式學堂、現代期刊、獨立翻譯——浴火之後，智慧更加沉靜而有力。這是第四單元——堅守與浴火。</p>
+    <p>到了當代，河流終於進入開闊的平原。西海固的黃土坡上，新月照常升起。義烏的街道上，葉門商人用手機支付後走向清真寺——貨物和信任，和一千三百年前一模一樣。這是第五單元——河流入海，不算終點。</p>
+    <p>此外還有三條支流：港澳、台灣、南洋。它們在大陸之外，走的是同一條路。我們把這三條支流各自獨立成篇，作為番外三篇。</p>
+    <p>史家論文明之成熟，不在消滅差異，而在學會解釋彼此。整部天方東漸錄所記錄的，正是這樣一種解釋的過程——從馬歡以回回通事的雙重視角同時記錄流寓海外的唐人（華人）與回回人，到王岱輿用宋明理學的話語翻譯伊斯蘭教義，再到劉智將《天方性理》寫成中國哲學的模樣。每一次解釋都不完美，都充滿了誤解和妥協，但每一次解釋都讓兩個文明多了一分相互理解的餘地。誤解從來不是交流的終點——它是交流的起點，因為只有在意圖去解釋的時候，人才真正意識到對方是與自己不同的存在。</p>
+    <p>這不是一部為了證明某個結論的書。我們沿著這條河走，只是為了看見那些被主流敘事忽略的風景。一千三百年後回望，最動人的不是帝國的雄心，而是一個長安百姓花三文錢買了一張胡餅，一個水手在蕃坊裡學會了第一句漢語，一個被俘的文官在異國他鄉決定拿起筆而不是陷入絕望。<strong>文明之間最深層的對話，從來不始於傳播的意圖，而始於求生、謀生、與思念。</strong></p>
+    <p>伊斯蘭對中國的影響遠遠超出了信仰本身。清真飲食重塑了西北的日常餐桌，回回曆法在元代與中國傳統曆法並行使用，回回藥物學的知識進入了李時珍《本草綱目》的編纂視野。語言也在交融——「獅子」來自波斯語，「祖母綠」來自阿拉伯語，「沒藥」來自阿拉伯語，這些日常用詞的來源印證着漫長的接觸史。清真寺的建築從泉州清淨寺的阿拉伯式尖拱門演變爲西安化覺巷清真大寺的中式飛簷翹角——兩種建築語言的融合過程，濃縮在一座禮拜殿的屋頂曲線中。</p>
+    <p>所有文明都是混合物。世界上不存在「純粹」的文明——如果它曾經純粹過，那一定是因為沒人記錄它的雜交史。中國的回族是混合的，阿拉伯的伊斯蘭文明是混合的（希臘哲學、波斯行政、印度數學），歐洲的文藝復興同樣是混合的（從伊斯蘭世界翻譯回來的希臘典籍）。真正值得追問的不是「誰影響了誰」，而是「為什麼有些文明在接觸中變得豐富，有些變得貧瘠」。</p>
+    <h2 style="font-family:'Noto Sans SC',sans-serif;font-size:15px;font-weight:400;letter-spacing:4px;color:#7a6b5e;margin-top:48px;margin-bottom:20px;text-align:center;">先讀完一個故事</h2>
+    <p>如果你對伊斯蘭一無所知，這部系列可以作為你的第一扇窗。我們盡量不在術語中迷失讀者，每一段古文引文之後都有白話解讀。</p>
+    <p>如果你對中國歷史已經很熟悉，你會發現一些課本上沒有的視角——《唐律疏議》中已有現代國際私法的雛形，明太祖寫過讚美伊斯蘭先知的詩，鄭和艦隊的指揮官是一位虔誠的穆斯林。</p>
+    <p>如果你本身就是穆斯林，你可能會在這裡看到你的祖先——那些你只在家譜中見過的名字，變成了一個個有血有肉的人，在歷史的洪流中做過選擇、受過苦、愛過人。</p>
+    <p>而如果你帶著偏見打開這本書——序言不指望能改變什麼。我們只請求一件事：<strong>至少讀完一個故事再下結論。</strong> 偏見的形成從來不需要理由，但它的消解往往只需要一個具體的人、一段具體的遭遇、一句能夠抵達內心的話。</p>
+    <p>季風一來一往，船開了又回。這條路上走了一千三百年的人們，在等待的不過是一個機會——讓自己的故事被真正聽見。</p>
+    <p>被聽見之後，那些故事就不再只屬於講述者；它們也屬於聽的人。十三個世紀的等待，為的不過是此刻——當你翻開下一頁的時候。</p>
+    <p><strong>天方東漸錄</strong> · 文明交匯，始於相遇，成於共賞。</p>
+  </div><!-- /body-text -->
+
+</div><!-- /container -->
+
+
+<!-- ███████████████████████████████████████ -->
+<!-- 版權聲明                                    -->
+<!-- ███████████████████████████████████████ -->
+<div style="max-width:720px;margin:0 auto;padding:16px 40px 36px;border-top:1px solid #e0d8cc;font-family:'Noto Sans SC',sans-serif;font-size:11px;color:#b0a69a;text-align:center;line-height:1.8;">
+  <p>本文由 <strong style="color:#8b7b6e;"><a href="https://thestillway.hyvorblogs.io" target="_blank" style="color:#8b7b6e;text-decoration:none;border-bottom:1px dotted #c4b8a8;">澹然</a></strong> 書寫。</p>
+  <p>歡迎轉載、轉發與繁轉簡使用。分享時請保留作者與出處連結。</p>
+  <p style="margin-top:4px;">✦ 走入島嶼一隅的深處閱讀：thestillway.hyvorblogs.io</p>
+</div>
+
+</body>
+</html>
+
+
+<!-- ============================================================ -->
+<!--                    使用說明                                   -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--   ▸ 所有正文在 <div class="body-text">...</div> 內               -->
+<!--   ▸ 關鍵結構：                                                    -->
+<!--       <p>段落</p>                    一般段落                      -->
+<!--       <div class="section-break"></div>   雙空行分段（敘事呼吸）      -->
+<!--       <blockquote>...</blockquote>        引用塊（古文引文）         -->
+<!--       <strong>...</strong>                粗體強調                   -->
+<!--       <div class="poem">...</div>         詩歌穿插                  -->
+<!--   ▸ 結尾三段式：closing-landmark + closing-reflection + closing-quote -->
+<!--   ▸ timeline / epigraph 為可選，不用即刪                           -->
+<!--   ▸ 配色一律用 palette 中的色碼，不引入新色                        -->
+<!--                                                                  -->
+<!-- ============================================================ -->
+
+
+<!-- ============================================================ -->
+<!--  配色一覽（宋代風）                                           -->
+<!-- ============================================================ -->
+<!--                                                                  -->
+<!--  背景底色     #f3efe8  淺牙色，宋卷紙感                          -->
+<!--  主文字色     #2d2a24  墨褐                                      -->
+<!--  深輔助色     #4a3f38  深檀木（年份、頂端線）                     -->
+<!--  中輔助色     #8b7b6e  鼠灰棕（系列名、徵引書目）                 -->
+<!--  淺輔助色     #b0a69a  枯茶色（集號、出處）                      -->
+<!--  引用文字     #5a524a  棕灰                                      -->
+<!--  邊框線       #d4cdc0  米灰                                      -->
+<!--  紀年底色     #ece7df  淺米                                      -->
+<!--                                                                  -->
+<!-- ============================================================ -->

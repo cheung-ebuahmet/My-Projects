@@ -1825,7 +1825,6 @@ Things Which Are Not Preferred In The Prayer
 ß
 
 ß
-ß
 
 Turning of the eyes up. The Prophet (peace be upon him) strongly admonished against
 this as can be noted from the following saying: “What is the matter with the people who
@@ -2081,8 +2080,6 @@ Prophet (peace be upon him), congregational prayer is incumbent upon every male
 Muslim unless a person is excused from doing so as a result of one or more of the
 following reasons:
 
-•
-•
 •
 
 Sickness.
@@ -2421,7 +2418,6 @@ www.islambasics.com
 
 The Prayers Of The Two Feasts
 !!!!!!!!!!! These are:
-•
 •
 
 The prayer of the Feast of Breaking the Fasting of the month of Ramadan (known as
@@ -2876,7 +2872,6 @@ The Imam begins the prayer by raising up his hands up to the lobes of his ears a
 comes up with the words of greatness i.e. "Allahu Akbar". The congregation would
 follow likewise.
 
-•
 •
 
 Then, everybody including the Imam would recite "Al-Fatihah".

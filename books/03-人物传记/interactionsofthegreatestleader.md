@@ -19,7 +19,6 @@ Almunajid, Muhammad Bin Salih
 The Prophets dealing with different people./Muhammad Bin Salih Almunajid
 - Riyadh, 2014
 884p; 24cm
-ISBN: 978-603-01-6236-9
 1- Muhammad, Prophet life, 632I- Title
 239 dc		
 1435/8531
@@ -27,7 +26,6 @@ ISBN: 978-603-01-6236-9
 2-Islamic ethics
 
 L.D. no. 1435/8531
-ISBN: 978-603-01-6326-9
 
 First Edition, 2014
 printed in KSA

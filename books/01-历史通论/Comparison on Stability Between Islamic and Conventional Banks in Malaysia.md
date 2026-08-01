@@ -1069,7 +1069,6 @@ Econometrics Estimation
 (1)
 
 (2)
-(2)
 
 Fixed Effect (FE)
 

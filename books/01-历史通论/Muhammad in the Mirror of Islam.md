@@ -13,7 +13,6 @@ knowledge and wisdom, and the spiritual path.
 
 Author(s):
 ●
-●
 
 William C. Chittick [3]
 Seyyed Hossein Nasr [4]
@@ -24,7 +23,6 @@ Publisher(s):
 Free Islamic Literatures Inc Houston [5]
 
 Category:
-●
 ●
 
 General [6]
@@ -40,8 +38,6 @@ Translated from the Persian ("Muhammad dar Ayineh-e Islam") by William Chittick 
 Seyyed Hossein Nasr Published by: Free Islamic Literatures, Inc, Houston
 
 Featured Category:
-●
-●
 ●
 
 Introducing Islam [9]

@@ -1896,7 +1896,6 @@ r-.. ..r.
 •
 . ~~ ~
 .
-.
 
 "'...
 
@@ -2195,7 +2194,6 @@ Jl
 : Jw
 .. ~.J
 ....
-...
 ...
 .
 .... .
@@ -3029,7 +3027,6 @@ recorded by Imam Abu Dawl1d in his Sunan as part of a long l).adith,
 d\~ll
 d. . ~G
 ...
-...
 "You are on your way to meet your brothers, so fix your saddles and
 tidy your dresses, until you appear distinct among people as a beauty
 mark [on a beautiful face]. Allah does not like roughness and rough
@@ -3091,7 +3088,6 @@ should have it trimmed or shaved. The beard should be combed, kept
 neat, and oiled if possible.
 Sayyiduna Abu I:Iurayra ~ relates that the Messenger of Allah /!.
 said:
-,
 ,
 
 ~J$~~~~~
@@ -3589,7 +3585,6 @@ Jl; ~.J:i2J~IJ}tf-~~~~_p~J~~~~~~~\
 
 ~J~~i~t~;~
 ...
-...
 .......
 
 FOREPLAY
@@ -3872,7 +3867,6 @@ which must we be careful?" The Messenger of Allah~ said:
 
 ... ~~
 ll)~jj~~~~J~~\
-...
 ...
 ......
 "Guard your nakedness ( awra) except from your wife or your slavewoman .... " (Sunan al-Tirmidhi 2769 and Sunan Ibn Miijah 1920)
@@ -4259,9 +4253,6 @@ o.J
 ~~s_;jl
 ~--' ~;~~
 ,., ..
-,
-,
-,
 ,
 
 "Say to the believing men that they must lower their gazes and

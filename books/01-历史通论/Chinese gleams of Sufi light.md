@@ -43,7 +43,6 @@ of }ami's Lawa>il) from the Persian by William C. Chittick I by Sachiko Murata ;
 foreword by Tu Weiming
 p. em.
 Includes bibliographical references and index.
-ISBN 0-7914-4637-9 (alk. paper) -ISBN 0-7914-4638-7 (pbk.: alk. paper)
 1. Sufism-d«A.""trine. 2. Islam-China. 3. Wang Tai-yii. Ch'ing-chen ta-hsiieh. 4. Liu,
 Chih, ca. 166~1730. Chen ching chao wei. I. Chittick, William C. II. Jimi, 141~1492.
 Lawa•if:t. English. III. Wang Tai-yii. Ch'ing-chen ta-hsiieh. English. IV. Liu, Chih, ca.

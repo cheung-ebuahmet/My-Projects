@@ -17,6 +17,10 @@ venv/
 *.mobi
 !books/*/*.md
 
+# Books raw files (原始檔案 only keeps non-editable originals)
+books/原始檔案/
+!books/原始檔案/*.md
+
 # macOS
 .DS_Store
 *.swp
