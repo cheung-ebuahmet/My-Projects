@@ -1,8 +1,5 @@
 # Beginning the First Rakah
 
-> 来源: Beginning the First Rakah.pdf
-> 提取于: iSlam/伊斯兰概论·入门/Beginning the First Rakah.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

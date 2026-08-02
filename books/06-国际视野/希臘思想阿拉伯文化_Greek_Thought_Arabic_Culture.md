@@ -1,8 +1,5 @@
 # 希臘思想阿拉伯文化_Greek_Thought_Arabic_Culture
 
-> 来源: 希臘思想阿拉伯文化_Greek_Thought_Arabic_Culture.txt
-> 提取于: iSlam/International/希臘思想阿拉伯文化_Greek_Thought_Arabic_Culture.txt
-
 Full text of "Dimitri Gutas Greek Thought, Arabic Culture The Graeco Arabic Translation Movement In Baghdad And Early ' Abbasaid Society ( 2nd 4th 5th 10th C.) ( Arabic Thought & Culture) Routledge ( 1998)"
 
 An icon used to represent a menu that can be

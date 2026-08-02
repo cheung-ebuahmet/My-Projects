@@ -1,8 +1,5 @@
 # Dress Requirements for Salah
 
-> 来源: Dress Requirements for Salah.pdf
-> 提取于: iSlam/伊斯兰法学（教法）/Dress Requirements for Salah.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

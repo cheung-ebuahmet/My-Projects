@@ -1,8 +1,5 @@
 # An Introduction to the Science of Hadith
 
-> 来源: An Introduction to the Science of Hadith.pdf
-> 提取于: iSlam/圣训和圣行/An Introduction to the Science of Hadith.pdf
-
 An Introduction to the Science of Hadith
 Suhaib Hassan, Al-Quran Society, London
 

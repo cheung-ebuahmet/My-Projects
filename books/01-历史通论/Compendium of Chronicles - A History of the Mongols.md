@@ -1,7 +1,5 @@
 # Compendium of Chronicles - A History of the Mongols
 
-> 来源: Compendium of Chronicles - A History of the Mongols.pdf
-
 RASHIDUDDIN FAZLULLAH’S
 
 Jami‘u’t-tawarikh
@@ -975,7 +973,6 @@ and fame to endure.”
 
 4
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 As ordered, all the learned and reliable people of the
 nations mentioned above did research, made extracts
@@ -1139,7 +1136,6 @@ and his family. Finis. [15]
 
 e
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 6
 
@@ -1236,7 +1232,6 @@ Editions and Oxford University Press, 1955).
 
 8
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 and will be in attendance at court will write it and append it to Tome Two.
 OME THREE is an exposition of the shapes of the climes and routes through realms. To the extent it has
 
@@ -1340,7 +1335,6 @@ Kor. 41:53.
 
 10
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 imagination and comprehension can attain them. If that
 which has been understood and comprehended by
@@ -1525,7 +1519,6 @@ khulāṣa-i naw‘-i insān (quintessence of the human race),
 
 12
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 who are the lords of the rulers of the earth and the age,
 he has perfect knowledge and wisdom, abundant intellect and native ability, great might and magnitude, remarkable courage and perspicacity, justice and equity,
@@ -1709,7 +1702,6 @@ ture 1:250).
 
 14
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 of the world, were ennobled by the blessed being of the
 Padishah of Islam, Sultan Mahmud Ghazan Khan—
@@ -1826,7 +1818,6 @@ the nations who from the remotest antiquity Rus, see Omeljan Pritsak, The Origin
 
 16
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Kilar-Bashghurd,1 Talas,2 Sayram,3 Ibir-Sibir,4
 
@@ -1996,7 +1987,6 @@ Nur) by the Orshun (Orxon) River.
 
 18
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Qarqab,1 Küyin,2 the Ergüne,3 Qala’ir,4 the Se- At present they still inhabit those areas in the
 lenga,5 Barghujin Tögüm,6 Qalajin Älät,7 and same way, although they have dispersed
@@ -2173,7 +2163,6 @@ Qalach, and Aghacheri
 
 20
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Oghuz Khan’s uncles Or Khan, Kür Khan,
 and Küz Khan, and his brothers and their sons
@@ -2409,7 +2398,6 @@ which is Allah in Arabic, on his lips, but no
 
 24
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 one knew what the word meant. While he constantly intoned beautifully the word Allah, the
 tribe thought he was singing for pleasure and
@@ -2550,7 +2538,6 @@ spellings of a word meaning cart.
 
 26
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 From Oghuz’s offspring there came into existence twenty-four branches, as recorded in
 detail in the list, each with its own name and
@@ -2709,7 +2696,6 @@ In the following chart, each tribe’s device (tamgha) is also given. Manuscript
 
 28
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 3. Alqarävli,1 meaning “everywhere he
 goes he is successful” [59]
@@ -2849,7 +2835,6 @@ great and mighty sovereigns and ruled in the
 
 30
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 realms of Turan and Iran for nearly four
 hundred years, having brought from the farthest reaches of Egypt to the borders of Cathay
@@ -2968,7 +2953,6 @@ Muquli and the Chinese transcription, 木華黎 Muhuali
 
 32
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 tioned him with the army in the place known
 as Qara’un Jidun, [67] the people of Cathay
@@ -3142,7 +3126,6 @@ it.
 
 34
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ticipated in the battle. Mänggü Qa’an turned
 the important Qipchaqs over to him for him to
@@ -3306,7 +3289,6 @@ sources (Chormaqan ~ Chormaghan ~ Chormaghun,
 
 36
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When Chormaqan died, the Qa’an appointed
 Baiju in his stead. When Hülägü Khan arrived
@@ -3476,7 +3458,6 @@ pp. 507.
 
 38
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 most nations of the region. Because of the glory, might, and respect they commanded, other
 types of Turks, in all their variety and names,
@@ -3635,7 +3616,6 @@ See below, text p. 260.
 
 40
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Another was as follows. In Genghis Khan’s
 time, although he had engaged in battles with
@@ -3791,7 +3771,6 @@ bägi > Sorghoqtani-bägi.
 
 42
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 there were no men in the tent. A rider from the
 enemy Tayichi’ut was passing by. Genghis
@@ -3950,7 +3929,6 @@ below.
 
 44
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Among the officers of Mänggü Temür, the
 ruler of that ulus, is Beg Temür, a great commander who was also of that tribe. It has not
@@ -4109,7 +4087,6 @@ translates as follows: тот же, который хорошо выезжен
 
 46
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 road and turning back at a place called Tui
 Taghachu.
@@ -4278,7 +4255,6 @@ by her he had a son named Kölgän.
 
 48
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Jamal Khwaja, Qulan Khatun’s brother, commanded a company of a hundred in Genghis
 Khan’s thousand.1
@@ -4438,7 +4414,6 @@ Orghina Khatun’s name is spelled variously ‫ اورﻗ ـ? ـﻪ‬and
 
 50
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 daughter-in-law). She ruled the Ulus Chaghatai
 for a long time.
@@ -4611,7 +4586,6 @@ which is a branch of the Barghut. Bartan Baha-
 
 52
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 dur’s chief wife, the mother of his children They are also said to be of the “forest” tribes
 named Sünigil Füjin, was also of the Barghut because they dwell in the forests along the
@@ -4903,7 +4877,6 @@ The name Marghuz is Marcus (Uyghur mereeo_ < Syriac
 
 56
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ing nailed to a wooden donkey. After a time
 Marghuz’s wife, Qutuqtai Härigchi—härigchi
@@ -4980,7 +4953,6 @@ Yesügäi Bahadur refused this advice and became friends and anda with him. He r
 Gürkhan, drove him away, and gave his ulus to
 Ong Khan.
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 Marghuz had two sons, Qurjaquz1 Buyuruq
 and Gürkhan. (The gür khans who were kings
@@ -5075,7 +5047,6 @@ See text p. 369 below.
 
 58
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Tolui Khan. After that Hülägü Khan married
 her, and she became his chief wife. Doquz
@@ -5165,7 +5136,6 @@ was killed by Qori Sübechi alone.
 6
 Cf. Secret History §189.
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 he reached Tibet.1 He wanted to remain there,
 but the people of Tibet drove him away, and
@@ -5250,7 +5220,6 @@ The Qori Shilemün Taisi of the Secret History §170f.
 
 60
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 There was another commander named Quyidu. When Ong Khan set out to capture
 Genghis Khan, and Badai and Qishiliq, Ong
@@ -5320,7 +5289,6 @@ Tayang Khan said, “I too am a ruler. If Buyuruq comes and descends here, the c
 Secret History §122: “A[l]tan Odcigin, the son of
 Qutula Qan.”
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 If he doesn’t come, the choice is his.” Buyuruq
 did not descend and left. Tayang said, “We had
@@ -5406,7 +5374,6 @@ See above, text p. 120.
 
 62
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 make war on Genghis Khan. Ala Qush Tegin
 sent a message to Genghis Khan by an emissary named Torbi Dashi,1 and he set out to
@@ -5483,7 +5450,6 @@ Tai Wang, from the Chinese 太王 tai wang ‘supreme
 ruler’ (Doerfer, TMEN 1:248f. §122).
 4
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 it is obvious how much rank each has and
 where he should sit. The idiom of the Cathaians not being known to everyone, they called
@@ -5572,7 +5538,6 @@ covering a number of small frontier towns were built or
 
 64
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the Jurcha River to the banks of the Qara
 Mörän [Yellow River], which separates Cathay
@@ -5654,7 +5619,6 @@ Genghis Khan’s time there was a regimental
 commander Ay Buqa. Of those who came to
 this realm was Chin Temür, who came before
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 with Yesil Noyan. Chin Temür’s sons are numerous in Khwarazm, and they have given
 their daughters to rulers. [133] Köchü Temür is
@@ -5736,7 +5700,6 @@ in Persian as ‫ﻮز‬B‫ﻮر‬B.
 
 66
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 destroyed it, and plundered the province,
 taking the many camels that were there. The
@@ -5820,7 +5783,6 @@ Yinchuan in Ningxia.
 This “Lung Shadurghu” is Li Anchuan (r. 1206–11)
 of Xixia.
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 come out at the appointed time, when they
 could all be captured and massacred. In the
@@ -5892,7 +5854,6 @@ were turned over to him. [138]
 
 68
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Uyghur Nation1
 As has been mentioned in the preface to this
@@ -5971,7 +5932,6 @@ readings of the names are as follows: Ишлик, Утингер,
 Камланджу и Утикан. JTRM essentially follows these
 readings.
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 tenth, are called the Qumuq Atiküz people.1
 Aside from the tribes that dwelt at these rivers,
@@ -6062,7 +6022,6 @@ p. 46.
 
 70
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ever, Altun Beki died. Some time later he affianced Alajai Beki to him, but before she could
 be turned over to him, the Idiqut died. His son
@@ -6130,7 +6089,6 @@ principales branches orientales, et du Kämčik, sa prinKhatun, and before he le
 cipale branche occidentale. Le défile où, juste après la
 Qa’an had taken her, he sent a message, say- réunion du Käm et du Kämčik, le fleuve franchit la froning, “Of all my stepmothers and my father’s tière russe, porte encore aujourd’hui le nom de Kembärigäns, give me Mögä Khatun.” Ögödäi Kemčik-Bōm” (Hambis, “Notes sur Käm,” p. 287).
 
-TOME ONE, PART ONE, CHAPTER THREE
 
 ples dwell. The tribes of the Qori, Barghut, Tumat, and Bayalüg, some of which are Mongol
 tribes and dwell in the place of Barghujin
@@ -6333,7 +6291,6 @@ They report that the Qunqirat tribe, which consists of several subdivisions as w
 
 74
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 who came into existence in Ärgänä-qun, left
 before the others without consultation in such a
@@ -6410,7 +6367,6 @@ present in this land of Iran, Cha’urchi, a regimental commander whose sons Qar
 son] Sübätäi are regimental commanders, was
 of the Nüküz tribe. During Abaqa Khan’s time
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 there were many from the Nüküz tribe in the
 regiment commanded by Cha’uqur of the
@@ -6484,7 +6440,6 @@ jin (§38).
 
 76
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 been proven by experience and are peculiar to
 that region. Since there are many lightning
@@ -6565,7 +6520,6 @@ they made his great ghoruq (reservation) in
 Reading, at Doerfer’s suggestion, yasun ‘bones’ for
 the text’s ‫( ﯾﻮﺳﻮن‬Doerfer, TMEN 3:446).
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 that very place under that tree. They say that in
 that very year so many trees sprang up in that
@@ -6648,7 +6602,6 @@ the name is 弘吉剌 Hongjila (Qinzheng lu, 3395).
 
 78
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 It is related that their lineage goes back to
 three boys born of a golden pot.1 This is merely
@@ -6725,7 +6678,6 @@ The “golden pot” (bastū-yi zarrīn) is a translation of
 the Mongolian name of the progenitor, Altan Quduqa.
 See below, text p. 163.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 wing. At this time there are many of their sons
 and sons-in-law with the Qa’an and in the uluses of Ögödäi, Chaghatai, [160] and Jochi.
@@ -6822,7 +6774,6 @@ Boyle 2:588.
 
 80
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Därgä Gürägän who[se son] married was also of this clan.5 He was the brother of
 Genghis Khan’s daughter Tümälün was also a Ö’älün Füjin, Genghis Khan’s mother.
@@ -6896,7 +6847,6 @@ tribe. Here he is said to be the son of Olar Gürägän, and
 there is an Olar Güregen in the Secret History (§202)
 who was appointed captain of a thousand.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 This Misär Ölüg married his father’s wife
 and had by her a son named Qorolas, from
@@ -6984,7 +6934,6 @@ A Qori Qachar is mentioned in the Secret History
 
 82
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “golden pot.” They are all branches of one
 tribe and, as mentioned, all close cousins to
@@ -7066,7 +7015,6 @@ Teb Tenggeri’s name occurs in the Secret History at
 §245 as Münglig Echige’s middle son.
 3
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 ple. He did possess the power to lead and deceive, and he spoke audaciously to Genghis
 Khan, but since some [of what he said] was in
@@ -7152,7 +7100,6 @@ are said to be brothers.
 
 84
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 blood came out of his throat bit by bit and he
 could breathe more easily. Since it was snowing hard, Borghochin held his barghu [?] over
@@ -7227,7 +7174,6 @@ man and his followers and soldiers had desertMost MSS have ‫)[ﻦ‬Z here. A 
 
 2
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 ed, he was in a weakened position. One day
 some Mongol thieves came and stole his horses. Learning of it immediately, he was not able
@@ -7314,7 +7260,6 @@ See Secret History §240. See text p. 458 below.
 
 86
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 There was a man of the Jä’üriyät tribe named
 Yäldäka, whose mother he had married.
@@ -7399,7 +7344,6 @@ The dushākha (‫ )دوﺷـﺎ•ـﻪ‬is a forked stick that was fastened
 around a prisoner’s neck and pinned one arm. It is sometimes translated as pillory, which is misleading, and it
 bears a resemblance to the Chinese cangue.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 him a dark brown mare, a bit of meat, a roasting skewer, a bow, arrows, and every tool and
 implement necessary for traveling—though
@@ -7478,7 +7422,6 @@ Berezin (5:172) reads this differently and translates:
 
 88
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and served the sons of Tolui Khan and
 Sorqaghtani Beki. During Qubilai Qa’an’s time
@@ -7564,7 +7507,6 @@ as follows: Шира-Шубауту, Кибин, Тэлэду, Энкэ,
 are all, as mentioned below, tributaries of the Selenga,
 but they cannot be identified with any modern rivers. It
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 lenga. A regiment of the Oyirat from the progeny of Uqai Kärchü reside there and guard the
 area.
@@ -7647,7 +7589,6 @@ See text p. 454f. below.
 
 90
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and the Bulughan Khatun who was Abaqa
 Khan’s wife, were cousins of Noqai Yarghuchi.
@@ -7723,7 +7664,6 @@ were in his time are ___.
 The Qataqin are mentioned in the Secret History
 §§42, 196 as Qatagin.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 91
 
@@ -7802,7 +7742,6 @@ Khan.
 
 92
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 he ordered that their daughters not be sought or
 given in marriage because they were related to
@@ -7888,7 +7827,6 @@ Lingqu had a son named Senggüm Bilge, who was the
 father of Ambaghai Qahan. The Jami‘u’t-tawarikh’s
 “Sorqaduqtu China” takes the place of the Secret History’s Senggüm Bilge.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 of Altan). The father of Sodon Noyan of the
 Suldus and Jäbä of the Besüt were attached to
@@ -7970,7 +7908,6 @@ of considerable influence. He had sons, the eldest of whom was the Toghril whom 
 
 94
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khan called “Toghril Dä’ü.”1 It was he who relayed messages between Genghis Khan and
 Ong Khan because he had been an attendant of
@@ -8043,7 +7980,6 @@ Cha’urchi, a regimental commander in this
 land was of this lineage, but no one of importance from the Chinas branch is known in this
 land. [193]
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 95
 
@@ -8128,7 +8064,6 @@ Qinzheng lu, 3395 as the Mangwu (忙兀).
 
 96
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and commander of the Qara’unas’ tümän.
 Hulqutu’s sons were Chapi and his brother
@@ -8213,7 +8148,6 @@ inside and said, “I give this lady to you. Take
 
 See text p. 385 below.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 her.” Kähätäi Noyan was petrified, but Genghis
 Khan consoled him and said, “Do not fear. I
@@ -8302,7 +8236,6 @@ See text p. 198f. above.
 
 98
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 son, was made a liege man to him, and they
 were sent with thirty tümäns of Mongol soldiers and eighty tümäns of Cathaian soldiers to
@@ -8373,7 +8306,6 @@ son is Äbügätäi. [201]
 The obscure expression may mean “stirrup-holding
 groom.” See Doerfer, TMEN 1:330 §204.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 The Barulas Clan1
 The Qubilai Noyan of Genghis Khan’s time
@@ -8451,7 +8383,6 @@ liege men burst into Toqto’a Beki’s tent without warning. There was no one w
 
 100
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to’a was extremely frightened and thought that
 he would do whatever he wanted. Jamuqa said,
@@ -8532,7 +8463,6 @@ leaves something to be desired. Berezin (5:203) translates as: другъ мой
 что [уже] следовали за мною, и хорошенько
 разберется в приведении дел в порядок.
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 regimental commander, and his brother Jäjirätai Qo’an.
 In the initial stages of Genghis Khan’s quarrel with the Tayichi’ut, a relative of Jamuqa
@@ -8618,7 +8548,6 @@ This Oridai is elsewhere called Qoridai.
 
 102
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Doqolat Clan1
 They branched off from the eighth of Tumina
@@ -8700,7 +8629,6 @@ when he came to submit he knelt and said, “I
 know that I am guilty of having killed the dun
 horse. If Genghis Khan pardons me and is generous, I will bring many such horses to him.”
 
-TOME ONE, PART ONE, CHAPTER FOUR, SECTION ONE: THE DÜRLÜKIN
 
 After that, when he returned from battle with
 Güshlüg Khan, he brought a thousand dun
@@ -8777,7 +8705,6 @@ and JTRM). Elsewhere it is Taisun; see text pp. 72, 603.
 
 104
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and Buchqur, for which crime he was executed. This will be explained in detail.
 The last time Genghis Khan did battle with
@@ -8926,7 +8853,6 @@ See note to text p. 131 above.
 
 106
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 lished dates, it has been approximately four
 hundred years, for from the contents of the
@@ -9082,7 +9008,6 @@ Kor. 3:34.
 
 108
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 husband, according to the reports of the Mon- are like ordinary pearls produced by the oyster
 gols, in two parts.
@@ -9129,7 +9054,6 @@ lineage. Nations other than the Mongols do not eyes outside of this state. Whate
 have such a custom—except for the Arabs, you have of me is untrue. These children I
 who also keep their genealogy. [These others] have conceived are of another species. When
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 they grow up and become monarchs and khans
 over all people, you and all the common people will realize how I was.”
@@ -9200,7 +9124,6 @@ For ötägü boghol, see above, text p. 66.
 
 110
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 (2) The story of Bodonchar Khan, his wives
 and sons, and their offspring, in two parts
@@ -9267,7 +9190,6 @@ appears in the Jami‘u’t-tawarikh several generations lat- tion and went ther
 er as the second son of Tumina Khan (text p. 245 was rich and well provided for, and her residence and yurt were in a place called [A]nosh
 below).
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 Ärgi1 and Black Mountain. Every few days she
 would order the herds gathered. The horses and
@@ -9352,7 +9274,6 @@ constructed a crossing over the river and called
 
 112
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 it Qaidu-jin Olum [Qaidu’s Ford].1 Nachin
 took up residence downstream on the Onon
@@ -9420,7 +9341,6 @@ See Doerfer, TMEN 1:178 §55.
 cret History §47. In the Secret History, however, the
 clans that descend from Cha’ujin are Oronar, Qongqotan, Arulad, Sönid, Qabturghas, and Geniges.
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 means great commander,1 and since they were
 near the territory of Cathay, Cathaian idioms
@@ -9510,7 +9430,6 @@ Quril is the Mongolian for Cyril.
 
 114
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 other was Ölögchin China.1 Two other tribes
 are descended from him through these two
@@ -9566,7 +9485,6 @@ one son, Besütei, the ancestor of the Besüd clans.
 In the Secret History §47, the name occurs as
 Cha’ujin Örtegei.
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 na. Consequently he must have been slightly
 junior to Bai Singqor because if he had been
@@ -9646,7 +9564,6 @@ his part will yield a lot, and he will surpass
 
 116
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 others as assistance comes to him moment by
 moment and his affairs blossom and multiply.
@@ -9722,7 +9639,6 @@ A Noyakin named Jungso is mentioned in the Secret
 History §120. The “Jaqso” here may reflect the same
 name.
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 The third son was Qachula, from whom the
 Barulas clan is descended. His eldest son was
@@ -9788,7 +9704,6 @@ rately. The genealogical chart is as follows.
 
 118
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 [248]
 (8) The Story of Qabul Khan son of Tumina
@@ -9829,7 +9744,6 @@ whom are descended many clans. He had a son
 named Taichu, from whom some of the Qiyat
 are descended.
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 The fourth son was Qada’an Bahadur, from
 whom many clans and officers are descended.
@@ -9904,7 +9818,6 @@ Qutula throughout, as in the Secret History §§53, 57.
 
 120
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When the commanders and guards saw such
 audacity and hilarity, they said, “What levity is
@@ -9978,7 +9891,6 @@ feared they had fallen prey to danger on account of their great bravery and fool
 but they remained nonetheless. Before Toqa of
 the Qorolas tribe they remained at the door. Af-
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 ter that, Qada’an Bahadur and Qutula Qa’an
 went separately to Qorolas territory to their
@@ -10059,7 +9971,6 @@ that it is difficult to ascertain what the reading should be.
 
 122
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and killed him. The left wing of his army was
 captured and unhorsed.
@@ -10141,7 +10052,6 @@ on their horses and sent off, Qada’an Taishi
 said, “O officers, must have I relied on your
 great numbers in speaking so boldly. Tell me
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 whether the reply I made was correct or not.”
 Once again Urghutai said to Bardai Sächän,
@@ -10221,7 +10131,6 @@ his stomach, killing him. It was in that battle
 
 124
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 that the horse of Husun Äbügän’s father, Qayin
 Mänen, who was on Qada’an Bahadur’s side,
@@ -10300,7 +10209,6 @@ nation, and you will stir up a vendetta, for they
 will certainly rise up to requite my blood. It is
 unwise of you to do this.” [263]
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 The Altan Khan took this lightly and said
 mockingly, “You who have brought this message, go and inform that group.” And when he
@@ -10382,7 +10290,6 @@ against the sky and his hand is like a threeyear-old bear’s claw. He is not on
 
 126
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 is in the hands of the Dörbän. God willing, he
 is occupied with some task and will show up
@@ -10456,7 +10363,6 @@ his nephew, Yesügäi Bahadur, the son of Bar1
 
 The Siberian peashrub, Caragana arborescens.
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 tan Bahadur and father of Genghis Khan,
 ruled. Although there are many stories about
@@ -10542,7 +10448,6 @@ stirred up strife and war. When Ong Khan was
 
 128
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 defeated, they fled and went to the Naiman.
 They fought Genghis Khan once again, and in
@@ -10613,7 +10518,6 @@ In all manuscripts the name is ‫ــــﺮوﻩ‬B (Kürüh?). Berezin
 it as Курух.
 1
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 Beginning of the history of Yesügäi Bahadur
 When the divine will decreed from all eternity that a fortunate, mighty, and powerful one
@@ -10690,7 +10594,6 @@ unanimously elected him ruler. He was 夫人 furen.
 
 130
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ing the battle with Ong Khan he was separated
 from him. Several other times incidents took
@@ -10763,7 +10666,6 @@ the Qorolas clan. Maquldar had two sons. One
 was Jirqidai, and he had five sons, (1) Qipchaq
 was born of a concubine, and he had two sons,
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 Taichu and Hulqutu; (2) Suqu was born of a
 khatun, and he had no sons; (3) Kökä was born
@@ -10846,7 +10748,6 @@ Jami‘u’t-tawarikh probably reflects Elji’idäi.
 
 132
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 from the Qara Mörän (Yellow River) to the Jurcha River. It is near the territory of the Jurchids, and the places that are nearby are the
 ancient yurt of the Ikiräs clan, the place called
@@ -10918,7 +10819,6 @@ hundred individuals. Nayan was at the end of
 In Hambis, Yuan Che, the name occurs as both Qubilai Qa’an’s time. He conspired with the
 Shinglaqar (3111) and Shingnaqar (3211).
 
-TOME ONE, PART TWO, CHAPTER ONE: GENGHIS KHAN’S ANCESTORS
 
 princes who were his cousins like Siktür of
 Jochi Qasar’s offspring, Shinglaqar of Elji’idäi
@@ -10990,7 +10890,6 @@ See text p. 259f.
 
 134
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 end Yesügäi Bahadur defeated them. After that,
 Genghis Khan brought the entire tribe, and
@@ -11083,7 +10982,6 @@ task of world conquest [289] his hosts encoun-
 
 136
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 tered Islamic urban areas, divine wisdom ordained that, as a balm to that wound, the peoples who had inflicted those very wounds
 would become Muslim in order that the perfection of divine power be clear and obvious to all
@@ -11216,7 +11114,6 @@ soldiers left by Yesügäi Bahadur. Many times
 
 138
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Genghis Khan experienced setbacks, and several times the Tayichi’ut clans seized the opportunity to take him prisoner, but God delivered him from the brink of death. Inasmuch as
 it had been God’s will from all eternity that he
@@ -11373,7 +11270,6 @@ Kiral, for the “Kerel” of the Secret History §§262,
 
 140
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The First Wife, Börtä Füjin, daughter of Däi
 Noyan, chief and ruler of the Qunqirat
@@ -11557,7 +11453,6 @@ given as Alaqa Beki (“He gave Alaqa Beki unto the
 
 142
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 any of his other daughters. There are many stories concerning her that will be given.
 There are many stories about these five
@@ -11693,7 +11588,6 @@ chart. [306]
 
 144
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 SECTION TWO
 THE HISTORY OF GENGHIS KHAN FROM HIS BIRTH UNTIL THE TIME HE BECAME KHAN AND RULER, AN ILLUSTRATION OF HIS THRONE, WIVES, PRINCES, AND OFFICERS DURING HIS ENTHRONEMENT AS KHAN,
@@ -11763,7 +11657,6 @@ month of Dhu’l-Qa‘da [January 1155], until the next Qaqai Yil, also the Year
 
 146
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 which corresponds to the year 562 of the Hegira and began in the month of Rabi‘ II
 [February 1167]. During this period his father, Yesügäi Bahadur, was alive. During the last
@@ -11905,7 +11798,6 @@ given in the Tārīkh-i Chīn, p. 147.
 
 148
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Nine generations after that, the ruler of the
 Jurcha rebelled, [314] took that realm from the
@@ -12080,7 +11972,6 @@ In 551 (Ibn al-Athir, Kamil 11:210).
 
 150
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 in Rabi‘ I 552 [April 1157].1 The Oghuz moved
 to the city of Nishapur, and they massacred,
@@ -12269,7 +12160,6 @@ The Salghurid Dägälä ruled in Fars from 1175 to
 
 152
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The history of unusual events that occurred
 during this period in all parts of the world
@@ -12417,7 +12307,6 @@ vicinity of Sa’ari Kähär, Genghis Khan’s yurt,
 
 154
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to steal animals from the house of Jochi Tarmala of the Jalayir tribe because some Jalayirs
 had killed Dutum Mänen’s wife Monolun and
@@ -12495,7 +12384,6 @@ See text pp. 174ff. above.
 A’ula’ut and Turqa’ut are the Secret History (§129)’s
 Mounts Ala’u’ud and Turgha’ud.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 (4) The sons of Sorqadu Yürki and his brother Qoridai (they are of the Niru’un and Qiyat
 clan), along with the Buda’at clan, who are
@@ -12582,7 +12470,6 @@ See note to text p. 40 above.
 
 156
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 neither kettle nor fodder, two hundred went
 with their tents, and two hundred persons slept
@@ -12658,7 +12545,6 @@ Before the Tayichi’ut clans came, Chila’uqan
 Bahadur, the son of Sorghan Shira of the Sulduz tribe, and Jäbä of the Besüt (a branch of
 the Niru’un) came to Genghis Khan. Both were
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 attached to Tödä’ä and of his elite. (This
 Tödä’ä was the son of the Qada’an Taishi who
@@ -12745,7 +12631,6 @@ See Secret History (§130).
 
 158
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Genghis Khan and his mother took this tolerantly and said nothing.
 During the banquet, the kiriyäs1 of Genghis
@@ -12826,7 +12711,6 @@ Although it is clear that it meant something like Ward
 of the Marches, no satisfactory explanation of this title
 has been given. For a review of possibilities, see Doerfer, TMEN 1:282 §152.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 mander in Cathaian—before returning to the
 Altan Khan. It was also at that time that
@@ -12899,7 +12783,6 @@ events that happened during the period.
 
 160
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The history of the rulers of Cathay,
 Qarakhitai, and the Jurchids who were in
@@ -12981,7 +12864,6 @@ giving 272 lunar years.
 9
 Fuma (駙 馬 ), the Chinese title for imperial son-inlaw.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 Täkish mounted the throne in Khwarazm on
 Monday the 22nd of Rabi‘ II 568 [December
@@ -13059,7 +12941,6 @@ this under the rubric of the year 568.
 
 162
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 15, 1185].1 His son Sanjarshah was enthroned,
 and his tutor Mängli Beg gained power. He began exactions and extortions, and on account
@@ -13127,7 +13008,6 @@ On Tuesday the 18th of Jumada I 585 [July 4,
 Radkan, and his name was broadcast in all directions, and all were singled out for rewards
 and gifts. That fall he returned to Khwarazm.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 The sultans of Ghor had fallen out with Sultanshah, who had done battle with his brother
 Täkish several other times. They did battle
@@ -13203,7 +13083,6 @@ Date confirmed by Ibn al-Athir, Kamil 11:384.
 
 164
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When, from that massive army, the warrior
 arose, the faces of our renowned fighters
@@ -13273,7 +13152,6 @@ In Anatolia, Sultan Izzuddin Qilich Arslan b.
 Mas‘ud b. Qilich Arslan had taken over the
 rule of Konya, Sivas, and Aqsara. Hostilities
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 broke out between him and Zu’n-Nun b. Danishmand, the lord of Malatya, and Qilich Arslan took over his territory. Zu’n-Nun fled to
 Atabeg Nuruddin of Aleppo, who led his army
@@ -13344,7 +13222,6 @@ Sultan Muhammadshah b. Mahmud the Sel- he regained power, assembled an army, sei
 
 166
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the sultan, and threw him into chains. He had
 drums sounded at his gate five times a day and
@@ -13423,7 +13300,6 @@ Mosul and parts of Diyarbekir, in 571 [1175–
 76]. Sayfuddin took flight, and Salahuddin
 seized the territories that had been held by Malik Salih, the son of Nuruddin, like Manbij and
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1167–1194
 
 that area. He laid siege to the fortress at Aleppo, where Malik Salih was, but since it was not
 possible to take it by force he withdrew under
@@ -13493,7 +13369,6 @@ inhabitants, and untold numbers were killed.”
 
 168
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The history of Genghis Khan from the beginning of Taulai Yil, the Year of the Rabbit that
 began in Rabi‘ I 591 [February 1195], until the beginning of Tonquz Yil, the Year of the Pig
@@ -13651,7 +13526,6 @@ The Güse’ür Na’ur of the Secret History §151.
 
 170
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 place he had been with Yesügäi Bahadur. He
 dispatched two envoys, Taghai and Sü’ägäi, up
@@ -13731,7 +13605,6 @@ This episode corresponds to §158f. of the Secret
 History.
 4
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 Tayang Khan’s name was originally Tai
 Buqa, but the rulers of Cathay gave him the title Tai Wang, meaning son of a khan.1 In their
@@ -13818,7 +13691,6 @@ This should be the Qara Se’ül of the Secret History
 
 172
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 slander him. When Ubchiritai Gürin Bahadur
 heard these words, he said, “It is not appropriate to speak so disloyally among friends and
@@ -13894,7 +13766,6 @@ Khan’s words and stroked the horse’s mane
 with the whip. It shot off like a streak of lightning, enabling him to catch up with Sangun
 and the army. Together they stationed their
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 liege men back and deployed the army before
 attacking the enemy and putting them to flight.
@@ -13980,7 +13851,6 @@ the Secret History §148.
 
 174
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 tuq and Qudu’udar as far as the place called
 Alangut Tudas. There they killed them both.
@@ -14032,7 +13902,6 @@ especially with the sons of Qada’an Taishi, one place. Out of meanness he has 
 who were a branch of the Tayichi’ut, Tödä’ä, his elder and younger brothers and forced them
 Quril, and Targhutai Qiriltuq. They were fanat- to go into Qarakhitai territory. With such a
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 manner and disposition, he cannot let the people rest in peace. What are we to do with
 him?”
@@ -14109,7 +13978,6 @@ The Dalan Nemürges of the Secret History §153.
 
 176
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the Qunqirat away, for which they changed
 their minds and mistrusted him. For this reason
@@ -14190,7 +14058,6 @@ them, and they lost their affection and began
 covertly to take Ong Khan’s part. In the end
 they too were instrumental in creating a rift be-
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 177
 
@@ -14256,7 +14123,6 @@ Abji’a Ködeger is mentioned twice in the Secret History §§187, 191.
 
 178
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 That winter Genghis Khan requested Sangun’s sister, Cha’ur Beki, for his eldest son,
 Jochi Khan. Ong Khan requested Genghis
@@ -14321,7 +14187,6 @@ will give our daughter. Come for the banquet.’
 2
 On text p. 196 above, Taghai Qulqai.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 Let them give a buljar (ceremonial engagement meal) for us to eat. When he comes we
 will seize him.” To this end they dispatched
@@ -14406,7 +14271,6 @@ obscuring [our real purpose]. Let us charge
 
 180
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 them, trusting in God, and see what lot God
 has in store for us.”
@@ -14491,7 +14355,6 @@ the Mongolian naqachu plus the Persian abstraction ī on
 text p. 74 above. Since Genghis Khan’s mother was
 from the Olqunu’ut of the Qunqirat, the Qunqirat are referred to as maternal uncles.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 Genghis Khan sends an emissary to Ong
 Khan, reminding him of the obligations he
@@ -14577,7 +14440,6 @@ The Mürüche Se’ül of the Secret History §177.
 
 182
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 gave me nothing. After that, when we rode
 against the Naiman and drew up our battle
@@ -14655,7 +14517,6 @@ Cf. Secret History §177: “If, by a serpent with teeth, / You were not willing
 We are provoked [into dissension], / Let us not yield ‘You are the son of Qutula Qa’an. He reigned.
 ourselves unto his provocations. / Let us believe [only Now you too be the ruler.’ You were not willwhen] verifying by teeth and by mouth.”
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 ing either. When you insisted, saying to me,
 ‘You become khan,’ I became khan on your advice, and I said, ‘I will not allow the dwelling
@@ -14739,7 +14600,6 @@ Genghis Khan’s title. See text p. 338 above.
 
 184
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When the messengers arrived and repeated
 At that time Jochi Qasar was separated from
@@ -14804,7 +14664,6 @@ to 599 [1203], Genghis Khan was
 The words of the Secret History §181, kidu’aci ebudrinking the water of Baljiuna. In the autumn
 gen (‘old man killer’).
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 of that year he left there and assembled his followers at the Onon River. Setting out to fight
 Ong Khan, he dispatched Qali’udar of the
@@ -14889,7 +14748,6 @@ See note to text p. 120 above.
 
 186
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 killed him, and took his head to their ruler,
 Tayang Khan.
@@ -14961,7 +14819,6 @@ Africa, Anatolia, &c. who were contemporary with Genghis Khan during the seven-y
 period from the beginning of Taulai Yil, the Year of the Rabbit that began in Rabi‘ I 591
 [February 1195], until the end of Tonquz Yil, the Year of the Pig that began in Jumada II
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 187
 
@@ -15043,7 +14900,6 @@ was doubtlessly taken, is somewhat fuller (Kamil
 
 188
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Ibn al-Qassab took over the land of Khuzistan. When he
 took it over, he left it for Maysan, a dependency of
@@ -15083,7 +14939,6 @@ Qutlugh Inanch was defeated but managed to escape
 with his life. The vizier left the battlefield for Hamadan,
 outside of which he camped. He remained there for
 
-History of the sultans.
 In Khwarazm and some of Persia and
 Khurasan, Sultan Täkish Khwarazmshah was
 ruling.1 At the beginning of this period he
@@ -15123,7 +14978,6 @@ Khan. See Minhaj Siraj, Tabaqat-i Nasiri, 304.
 3
 Agrees with Ibn al-Athir, Kamil 12:130f.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 Khwarazmshah spared his life and appointed
 him to the rank of amir.
@@ -15208,7 +15062,6 @@ Ala’uddin Muhammad ruled 1200–1220.
 
 190
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 put up a defense, fortified the walls, and got
 ready for battle. Sultan Ghiyasuddin pointed to
@@ -15281,7 +15134,6 @@ reads: “Shihabuddin remained with only a few men. He
 killed four elephants with his own hands because they
 2
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 When the Ghorids reached Andkhud, the
 Qarakhitai army caught up with them, and they
@@ -15363,7 +15215,6 @@ Agrees with Ibn al-Athir, Kamil 12:169.
 
 192
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 which Jerusalem and the Syrian dependencies
 of Palestine, along with Egypt, would be Malik
@@ -15443,7 +15294,6 @@ Jami‘u’t-tawarikh and Ibn al-Athir call this person
 Charkas (the Circassian), but Maqrizi calls him Jiharkas,
 probably just a variant. See Maqrizi/ Broadhurst, 122.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1195–1203
 
 his brother Zahir went to Aleppo and Sherkoh,
 also one of his followers, went to Homs.
@@ -15532,7 +15382,6 @@ Agrees with Ibn al-Athir, Kamil 12:146f.
 
 194
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Tabas, Elit, came with his retinue and put the
 khutba in Kirman in the name of the
@@ -15653,7 +15502,6 @@ the first moon of summer.”
 
 196
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 vicinity of Qangqai.1 The forward detachment
 returned, and Toqto’a, the ruler of the Märkit,
@@ -15735,7 +15583,6 @@ harsh mountain terrain. By night many of the
 Naiman soldiers slipped and tumbled to their
 deaths down the steep mountain cliffs called
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1204–1210
 
 197
 
@@ -15813,7 +15660,6 @@ for ‘fortress.’
 
 198
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to do battle with Buyuruq Khan, the ruler
 of half the Naiman people, and he captures
@@ -15898,7 +15744,6 @@ standard with nine tails.
 
 See text p. 143 above.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1204–1210
 
 and herds and flocks were all taken in plunder.
 Toqto’a was killed in battle, but Güshlüg got
@@ -15988,7 +15833,6 @@ In the Shengwu Qinzheng lu, 3388, his name is rendered as 亦難海牙 Yinan Hai
 
 200
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Based on the foregoing, when the two envoys mentioned above arrived with Genghis
 Khan’s envoys and gave their report, Genghis
@@ -16056,7 +15900,6 @@ were after, the seven years.2 [428]
 Ningzong (寧宗) of the Southern Song, ruled 1195–
 1225.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1204–1210
 
 Dates of the rulers of Turkistan and
 Transoxiana during this period.
@@ -16141,7 +15984,6 @@ The Caliph al-Nasir ruled from 1180 to 1225.
 
 202
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 belled and sent a message to Ghiyasuddin, saying, “If you come, I will obtain the governorship for you.” Ghiyasuddin went and attacked
 Konya with a large force. Ruknuddin’s son was
@@ -16213,7 +16055,6 @@ thumb.
 
 Kor. 22:11.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1204–1210
 
 crossing, and on the banks of the Indus at a
 place called Damyak he set up a court tent in
@@ -16297,7 +16138,6 @@ with Ibn al-Athir’s account (Kamil 12:208–15).
 
 204
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 did battle with Gökchä. Gökchä was killed,
 and Aytoghmish seized the province. He gave
@@ -16370,7 +16210,6 @@ Read ‫ـــﺲ‬i‫( اﻗـــﻮﺳـــ‬Aqūstus, for Augustus) for 
 
 nenus (1180–83), who was married to Agnes, the daughter of Louis vii of France and sister of Philip Augustus.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1204–1210
 
 him.1 The child escaped and went to his maternal uncle.
 At that time most of the Frankish soldiers
@@ -16466,7 +16305,6 @@ Montferrat.
 
 206
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 called the Comte de Flandres.1 His army was
 the largest of all. When Constantinople was
@@ -16627,7 +16465,6 @@ Jurchids (see Pelliot, Marco Polo 1:368), which was later changed to 女真 nüz
 
 208
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 is with the territory and plain of the
 <Qara>khitai. Those tribes are all nomads.
@@ -16714,7 +16551,6 @@ Khan, 143). Martin (“First Invasion”) locates Dashuiluo
 (Dashuiluan) just north of Dushikou (some 100 miles
 north-northwest of Beijing).
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 and took the cities of Nusha Fu [Wushabao],1
 Changzhou,2 Huanzhou,3 and Fuzhou.4
@@ -16811,7 +16647,6 @@ and identified as Dongchang. In the Yuanshi it is identi-
 
 210
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When he arrived there he turned back without
 laying siege and slowly withdrew. News
@@ -16898,7 +16733,6 @@ identified with the Te-sheng K‘ou of modern times,
 which is approximately seventeen miles northwest of
 present Kalgan” (Martin, Chingis Khan, 134, note 51).
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 which one may refer.1 The ruler who fought
 Genghis Khan and his army was of the tribe
@@ -16987,7 +16821,6 @@ also mentioned in the Yuanshi (Krause, Cingis Han, 31).
 
 212
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Dexingfu,1 also a great city. In that realm are
 many gardens and orchards, and there is abundant wine there. When they arrived, there was
@@ -17079,7 +16912,6 @@ note 336).
 Qabchiqa ~ qabchighai, Mongolian for a mountain
 pass. See Doerfer, TMEN 1:386 §265.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 Without warning he caught the foe off guard.
 Qatai Noyan and Bocha, who had been assigned to guard the head of the pass, also
@@ -17173,7 +17005,6 @@ Wo-ch‘ên-na-yen [Elchi Noyan] und Cho-ch‘ih-tai-poch‘a [Jürchetäi and B
 
 214
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Genghis Khan himself, along with Tolui
 Khan, who was called Yäkä Noyan, took the
@@ -17263,7 +17094,6 @@ See above, text p. 443.
 8
 Spelled variously as Yungun Chingsang and Ongging
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 cause the army that is gathered ahead of us
 have their wives and children all over the plain
@@ -17351,7 +17181,6 @@ He is mentioned in the Qinzheng lu, 3392 as 襄 昆
 
 216
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 this they rebelled, made three men their leaders, Zheda, Bishe’er, and Bilar by name, and
 withdrew.1 The news reached Fuxing Chengxiang, who was bringing up the rear of the Altan
@@ -17436,7 +17265,6 @@ The 廣 寧 府 Guangningfu of the Qinzheng lu, 3392
 and the Yuanshi (Krause, Cingis Han, 34) is the modern
 Guangning north of Jinzhou in Liaoning.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 self Dongjing wang,1 meaning “ruler of a
 realm” in the Cathaian language.2
@@ -17527,7 +17355,6 @@ The text has a garbled name here, which may represent the 青 戈 Qingge just na
 
 218
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 hunger they began eating human flesh.1 Fuxing
 Chengxiang, whom the Altan Khan had stationed in the city of Zhongdu with his son,
@@ -17618,7 +17445,6 @@ superfluous and inexplicable.
 11
 As mentioned in the Qinzheng lu, 3394, 信 安
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 219
 
@@ -17705,7 +17531,6 @@ des Heeres von Chin in Hsi-an, Names Ni-lung-ku-p‘ulu-hu, gefangen. Dann erobe
 
 220
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 After that, Genghis Khan gave Münglig
 Echigä’s son Tolun Chärbi a Mongol division
@@ -17793,7 +17618,6 @@ an und veränderte den Jahresnamen in Hsing-lung”
 “Chang Chih drang ein in Hsing-chung-fu, und Muhua-li [Muqali] bestrafte und unterwarf ihn” (Krause,
 Cingis Han, 35).
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 Toquchar Bahadur of the Qunqirat to join
 Sübädäi Bahadur. He had stationed Toquchar
@@ -17867,7 +17691,6 @@ Han, 35). See also note to text p. 66.
 
 222
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Uru’ut tribe,1 two thousand of the Ikiräs led by
 Butu Gürägän,2 one thousand Mangqut under
@@ -17960,7 +17783,6 @@ It is related that when Güshlüg reached the
 Gür Khan’s camp, he named those close to him
 with his own name, made himself a kötälchi
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 (equerry), and sat at the gate. When they went
 before the Gür Khan, Gürbäsü came out, saw
@@ -18038,7 +17860,6 @@ Balkhash near the modern Kapal.
 
 224
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Gür Khan was such a simpleton that he
 believed these words and gave him leave to depart. Güshlüg left and followed his whims.
@@ -18116,7 +17937,6 @@ stepdaughter and probably a Buddhist Qarakhitai. The
 Naiman were Christian. The early sixteenth-century historian Khwandamir (Habibu’s-siyar 3:26) turns them
 around: “The wretch was an idolator, and his wife followed the Christian religion.” See above, text p. 461.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 and vice became rampant among the Muslims,
 and idol-worshipping polytheists did anything
@@ -18201,7 +18021,6 @@ name.
 
 226
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Now that the history of Genghis Khan has
 been written in detail from the beginning of
@@ -18247,7 +18066,6 @@ ordered it heralded on both sides of Baghdad
 The same Gür Khan was ruling as before. that the poor should break their fast in the hosDuring these years, as has been mentioned, pices. Mutton, bread, qatuq, and taffy were
 Tayang Khan’s son Güshlüg of the Naiman, given away there.
 who had married [the Gür Khan’s] daughter,
-History of the sultans.
 proved treacherous and usurped the kingdom.
 In
 Khwarazm,
@@ -18265,7 +18083,6 @@ several stories.
 Ningzong (寧宗) of the Southern Song, ruled 1195–
 1225.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 The story of his launching a campaign
 against the caliph in Baghdad. In the year 614
@@ -18348,7 +18165,6 @@ Zandanījī, a coarse cloth made in Bukhara; the Arabicized attributive to Zanda
 
 228
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 merchants pass in safety and send their goods,
 as they thought suitable, to Genghis Khan.
@@ -18426,7 +18242,6 @@ and their goods seized. Little did he realize that
 by making their blood and goods licit his own
 life would be forfeited.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 229
 
@@ -18511,7 +18326,6 @@ and the Turghai rivers.
 
 230
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khan to fight the Khwarazmshah. We have
 come on another mission.” Since the sultan
@@ -18587,7 +18401,6 @@ cousin Ay Muhammad was put in Balkh, Utruk
 Pahlavan in Jand, Daghalchuq Malik in Khuttalan, Alpar Taisi in Qunduz, and Askütä Khan
 in Yarkand.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 He ordered the ramparts of Samarkand repaired, and he rode around the ditch and said,
 “If each of the soldiers that are going to attack
@@ -18668,7 +18481,6 @@ died during these years, leaving three sons.
 
 232
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The eldest succeeded and exiled the middle
 son from his territory. He went to Alishah, the
@@ -18743,7 +18555,6 @@ for the issue of a writ of succession. The next
 
 Agrees with Ibn al-Athir, Kamil 12:306f.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1211–1218
 
 morning, all these things having been done, he
 sat in mourning. The messengers quickly returned, their missions accomplished. From
@@ -18825,7 +18636,6 @@ The Ayyubid al-Malik al-‘Adil I Sayfuddin, ruled
 
 234
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 stroyed the fortress since it was near Acre and
 difficult to maintain. The Franks departed from
@@ -18957,7 +18767,6 @@ did not insist very much, and by night he de-
 
 236
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 parted through the gate with his soldiers. Mongol soldiers captured him and took him to the
 princes, who said, “You, with all you have
@@ -19028,7 +18837,6 @@ Sighnaq, or Sughnaq, lies in ruins six or seven miles
 north of Tyumen-Aryk in Kazakhstan. See Barthold,
 Turkestan, 179.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 Leaving there, they proceeded to take Özgand and Barchinlighkent.1 Then they set out
 for Ashnas,2 where there was a throng of rabble
@@ -19116,7 +18924,6 @@ See Juvaini/Boyle 1:91 and Khwandamir, Habibu’ssiyar 3:30.
 
 238
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 a troop of Qanqlis. On the fourth day amnesty
 was sought and the people surrendered. The
@@ -19200,7 +19007,6 @@ had no weapons left save three arrow shafts.2
 Omitted from the narrative is that Temür Malik was
 being pursued by three Mongols. See Juvaini/ Boyle
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 When he shot one arrow without a point, it
 blinded a Mongol. To the others he said, “Two
@@ -19286,7 +19092,6 @@ gana Valley.
 
 240
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 conquer those territories, he himself set out
 from Otrar along the Zarnuq1 road to Bukhara,
@@ -19365,7 +19170,6 @@ city, rode to the congregational mosque, and
 He was Ikhtiyaruddin, the Khwarazmshah’s grand
 equerry. See Juvaini/Boyle 1:103, note 19.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 stopped in front of the maqsura. Tolui Khan
 dismounted, went up on the pulpit, and asked,
@@ -19447,7 +19251,6 @@ Dhu’l-Hijja 617 began on January 27, 1221; the year
 
 242
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 outer walls around the perimeter [501] and
 connected the moat to water.
@@ -19523,7 +19326,6 @@ from inside which they fought hard with arrows and naphtha. The Mongols also hur
 naphtha, took the mosque and everyone in it,
 [503] and burned the lot. They drove the peo-
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 ple of the citadel out into the plain, separating
 the Turks from the Tajiks, and dividing them
@@ -19605,7 +19407,6 @@ and takes refuge with a few men on some steep
 
 244
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 cliff, or in a cave, or in some narrows, or if he
 hides himself from the sight of men like a
@@ -19678,7 +19479,6 @@ the dust of the road and kissed the ground in
 seven places. The sultan consulted with him,
 and the malik said, “It would be best for us to
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 decamp immediately. There is an impregnable
 and highly fortifiable mountain between Lur
@@ -19758,7 +19558,6 @@ Khabushan is the modern Quchan in Khurasan.
 
 246
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Simnan, he killed a host of people, and also in
 Khwar-i-Rayy.
@@ -19844,7 +19643,6 @@ to Khwarazm. Uzlaq Sultan, the former heir
 
 Kor. 2:156.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 apparent, was in Khwarazm with Aq Sultan
 and the elite commanders Buji Pahlavan,
@@ -19926,7 +19724,6 @@ the modern Kunya-Urgench in northern Turkmenistan.
 
 248
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 nounced the arrival of the princes and set out
 for Khurasan, but along the way they were
@@ -20003,7 +19800,6 @@ Chaghatai, and Ögödäi. When Genghis Khan
 heard this, he grew angry and ordered Tolui,
 the youngest brother, to go. He was known for
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 his competence. When the messenger arrived
 and delivered the order, Tolui set out as ordered. Skillfully and cleverly he went to a different brother each day and treated them with
@@ -20082,7 +19878,6 @@ people to surrender. Trusting in the invincibili-
 
 250
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ty of their fortifications and overproud of their
 own manliness, the inhabitants refused. After
@@ -20161,7 +19956,6 @@ made his successor. He dies of that wound. For
 that reason Genghis Khan hastened the liberation of Taligan, and when it was taken he ordered as a punishment that every living thing,
 human, animal, beast, and bird, to be killed,
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 and no prisoners or plunder was to be taken.
 The site was to be turned into a desert, it was
@@ -20239,7 +20033,6 @@ ers to the borders of Ghor and Gharcha, where and protect the roads in Ghaznin, 
 
 252
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Zabul, and Kabul and to conquer as much of
 the territory as they could. They were also supposed to serve as scouts so that Genghis Khan
@@ -20316,7 +20109,6 @@ Qutuqu, and the commanders who had been
 with Shigi Qutuqu and the troops that remained and had become scattered converged.
 After the battle Sultan Jalaluddin had with-
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 drawn and returned to his tents. His troops had
 taken much booty from the Mongols. During
@@ -20388,7 +20180,6 @@ This should be the Qutus Qalja mentioned on text p. shooting him with an arrow, 
 
 254
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 circle around him. [527] When he realized that
 it was beyond his competence to fight “with a
@@ -20466,7 +20257,6 @@ The modern Multan in Pakistan.
 Malikfur (~Malikpur) was in the Rawalpindi district.
 See Juvaini/Boyle 2:413, note 6.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 saying, “If so ordered, I will go lay siege to
 Seistan.”
@@ -20550,7 +20340,6 @@ arrival of the Mongol army into Khwarazm,
 
 256
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 but they were killed by the same soldiers with
 whom the sultan had clashed.
@@ -20632,7 +20421,6 @@ smashed. Then they set out for Diyarbekir and
 Arbela, but when they heard of Muzaffaruddin
 Kök-Böri’s numerous troops, they turned back.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 Inasmuch as Jamaluddin Ayba,1 one of the
 Khwarazmshah’s slaves, had stirred up strife
@@ -20716,7 +20504,6 @@ respicit Synopolim [the modern Sinop]” (p. 145).
 
 258
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and attacked them, and before they could assemble themselves many were killed. They
 fought for a week, and in the end the Qipchaqs
@@ -20799,7 +20586,6 @@ For the Turco-Mongolian custom of yaghlamishi, see
 Doerfer, TMEN 4:98f. §1800.
 1
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 259
 
@@ -20887,7 +20673,6 @@ Onqulun Talan Qidun.
 
 260
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 one mind and one face so that you may pass
 your days in comfort and enjoy kingship.”
@@ -20973,7 +20758,6 @@ held mourning.
 In Mongolia there is a great mountain called
 Burqan Qaldun. From one side of this moun-
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 tain flow many rivers. On those rivers is an innumerable quantity of trees and forests. In
 those forests live tribes of Tayichi’uts. Genghis
@@ -21069,7 +20853,6 @@ Kor. 28:88.
 
 262
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and Time, Lord of the rulers of Iran and Turan,
 locus of the Merciful’s grace and beneficence…, [543] heir to Genghis Khan’s throne,
@@ -21134,7 +20917,6 @@ History of the caliphs in Baghdad.
 During this period the caliph of the Abbasid
 House was al-Nasir-li-dini’llah, and the affairs
 of his caliphate and rule were orderly and upright. [545]
-History of the sultans.
 In Khwarazm, Persia, Khurasan, Ghazna,
 Transoxiana, and Turkistan ruled Sultan
 Muhammad Khwarazmshah. His history, from
@@ -21146,7 +20928,6 @@ nine years and that of his son Sultan Jalalud4
 
 寧宗 Ning Zong of the Southern Song, r. 1194–1224.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 din, until he crossed the Indus in the fourth
 year of the period, have likewise already been
@@ -21234,7 +21015,6 @@ For the text’s ‫ــﴪام‬Ÿ, read ‫( •ــﺮﴎور‬Parasravar, 
 
 264
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and during that battle he was hit in the arm by
 an arrow. When the fortress was taken and
@@ -21314,7 +21094,6 @@ Arabicized form, Juvāshīr, and as Bardasīr. See Abu’l-
 
 Fida, Taqwim, 336.
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 nounce his arrival. The atabeg sent his son Salghurshah with five hundred horsemen to greet
 him and apologize for not coming himself. “I
@@ -21392,7 +21171,6 @@ an emissary to announce his arrival, but [the
 
 266
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 caliph] sent a pigeon to Arbela so that Muzaffaruddin Kök-Böri would take his army and
 get rid of the sultan. Before the Arbela army
@@ -21468,7 +21246,6 @@ summoned their armies and stationed them in
 ambush, but someone informed the sultan, and
 after ascertaining the truth, he killed them and
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 attacked their troops, killing most of them, although a few managed to escape. After that affair, the sultan took Tiflis and all Georgian territories and destroyed some of their churches,
 building mosques in their stead. [554]
@@ -21547,7 +21324,6 @@ on 22 Ramadan 625 (August 25, 1228); see Boyle, “History,” 330, and Juvaini/
 
 268
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The story of Sultan Ruknuddin, son of the
 Khwarazmshah.
@@ -21622,7 +21398,6 @@ History of rare and unusual events that took
 
 Shush, a fortress twelve leagues from Mosul (Ibn alAthir, Kamil 12:411).
 
-PART TWO, CHAPTER TWO, SECTION TWO: GENGHIS KHAN, 1219–1227
 
 place during the nine-year period.
 Left blank: what may be discovered will be
@@ -21777,7 +21552,6 @@ battle with the king of the Märkit people, Toq-
 
 272
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to’a Beki, and defeated him. All that was taken
 in booty he gave to Ong Khan to enrich him.
@@ -21932,7 +21706,6 @@ This paragraph is not in the Turkish translation JTAJ.
 
 274
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 in Jumada II 600 [1204].
 In the spring of this year, when Ala Qush Tegin of the Öng’üt sent a message saying that
@@ -22090,7 +21863,6 @@ was given to Genghis Khan, who then pulled
 
 276
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 during battle, and Genghis Khan showed exceptional favor to those he left behind.
 
@@ -22364,7 +22136,6 @@ qılghay.>
 
 280
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 He also said, “Everyone who is capable of
 cleaning out his own insides is capable of
@@ -22545,7 +22316,6 @@ qılghanlarnı.
 
 282
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 could, but they couldn’t. A man is worthy of
 leadership who knows what hunger and thirst
@@ -22709,7 +22479,6 @@ mu‘āvanat manga körsünlär.” Va ba-taḍarru‘ harne
 
 284
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ❈
 When Genghis Khan dismounted on a hill
@@ -22873,7 +22642,6 @@ keltürdüm.”
 
 286
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Borghochi arrived and saw me like someone in
 the throes of death, beating my feet against the
@@ -23017,7 +22785,6 @@ ordalargha ol hazâragha bu üläshtürür erdi.
 
 288
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 taken captive, was appointed commander of
 the personal hundred and regiment in his stead.
@@ -23184,7 +22951,6 @@ Here written ‫ﺗــﻮ¦ــﺴــﻪ‬, the name occurs as Tumina on p.
 
 290
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 campaigns and were near each other have
 branched off.1
@@ -23362,7 +23128,6 @@ Yarghuchi.
 
 292
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The regiment of Naya’a Noyan of the
 Ba’arin clan, from which clan all his soldiers
@@ -23529,7 +23294,6 @@ Reading, with JTAJ 84, ‫ن‬z‫ﺎی ﻗﻮ‬£‫ﻴﻨﮑ‬O.
 
 294
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Bai Sinqor’s regiment. He was of the
 [Hushin] clan and commanded the bara’un
@@ -23685,7 +23449,6 @@ JTAJ 88, kārkhāna is translated by üy eli.
 
 296
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Olqunu’ut clans, Genghis Khan gave her these
 three thousand, but their names are not known.
@@ -23840,7 +23603,6 @@ by the amirs, who held council and decided
 
 298
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they did not have to go into the [regular] number [of the army]. [617]
 The history of the Mongol rulers that has
@@ -23907,7 +23669,6 @@ dynasty.
 
 300
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ing, “Let anyone who is desirous of hunting
 join Jochi.1 Let any who desire to know customs and wisdom well go to Chaghatai. Let all
@@ -24078,7 +23839,6 @@ but Hambis makes him Jibik (Hambis, Yuan che, 74).
 
 302
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 dient to his orders, and they flourish in the shadow of his favor.
 The third son, Köchü.
@@ -24156,7 +23916,6 @@ This woman’s name occurs variously as ‫ ـﻨ ـﮑ ـﻪ‬U‫( ﺳ ـ‬J
 
 ga” is only a guess.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 offspring, he acquired territory with their help.
 Qubilai Qa’an knew it was necessary to send
@@ -24245,7 +24004,6 @@ Nayan ~ Bayan. See p. 712f. below.
 
 304
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 united and in full agreement with him in this
 regard, and so is his sister Qutulun. Dua was
@@ -24327,7 +24085,6 @@ Chaghatai Khan’s ulus, with this message: ‘It would be
 best for you to come hither as quickly as possible with
 your victorious army and join me so that together we
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 tle in Qoba Taq, and then they made a rendezvous to do battle at Mount Qaraltu. Buqu
 Masar [?] arrived on the third of the month, the
@@ -24405,7 +24162,6 @@ the branch of the Qa’an’s sons, God willing.
 
 306
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The sixth son, Qada’an Oghul.
 His mother was a concubine named Ärgänä,1
@@ -24479,7 +24235,6 @@ This agrees perfectly with the “Corrensa” of Carpini (pp.
 86, 94–6, 106), who actually met him in 1246.
 5
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 307
 
@@ -24501,7 +24256,6 @@ happened and there was no leader or ruler, orderly kingship might suffer. It beh
 
 308
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 therefore to make haste to install someone as
 qa’an. On this sensitive mission they sent
@@ -24582,7 +24336,6 @@ i.e. after the completion of every several years,
 we will give the history of the rulers of surrounding and neighboring kingdoms and of
 those of his lineage who ruled autonomously
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 over various areas. Then we will return to his
 history. And so on, until his story is completed.
@@ -24665,7 +24418,6 @@ Sä’üsä, the nickname Ögödäi gave the Chinese emperor. See note at text p
 
 310
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 his army had taken and which were under
 Mongol control but also to conquer the entirety
@@ -24740,7 +24492,6 @@ Ruiguo, of the Qinzheng lu.
 Qobägüdür, the Höbegedür of the Secret History
 §251.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 their emperor. If possible, we will join Ögödäi
 Qa’an and the great army.” He then assigned as
@@ -24824,7 +24575,6 @@ along the river and causing it to overflow onto
 
 312
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the plains in branches a league in width and
 breadth.
@@ -24897,7 +24647,6 @@ we tell him the truth, he will die of fright, and
 we will be totally undone. It is best to keep it
 secret.”
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 As usual, the ruler and his wives and concubines besported themselves in his palaces and
 pleasure pavilions. When the wives and concubines realized that the city was going to be taken, they began to weep. The Altan Khan asked
@@ -24974,7 +24723,6 @@ Duke of Yongnyong. See Ledyard, “Mongol Campaigns,” 14.
 
 314
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Qa’an from the beginning of Hükär Yil, the
 Year of the Buffalo that began in Rabi‘ I 626
@@ -25007,7 +24755,6 @@ the beginning of 627 [began November 20,
 1229] and was succeeded by his son, Zahir. He
 died in 628, and al-Mustansir-bi’llah was
 raised to the caliphate.
-History of the sultans.
 Sultan Jalaluddin was in power in Persia and
 Azerbaijan. At the beginning of 625 [1227] he
 withdrew from Isfahan and went to Tabriz,
@@ -25058,7 +24805,6 @@ watch from the sidelines.” The Georgians were
 pleased, and that day both sides parried and
 feigned until evening. Finally one of the gal-
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 lant aznavurs1 [knights] came forward, and the
 sultan
@@ -25131,7 +24877,6 @@ his mount, and Malik Ashraf had to have hobbles placed on his animal’s legs. W
 
 316
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the sultan was forced to go to Akhlat, where he
 summoned those he had stationed to guard the
@@ -25211,7 +24956,6 @@ Khan everywhere; in JTK it is Buqa Khan here and Buqu
 Khan everywhere else; in JTRM it is Tuqu Khan.
 3
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 The sultan had sent Buqu Khan back as a
 yäzäk (forward detachment) to reconnoiter the
@@ -25290,7 +25034,6 @@ of him, you be sultan and we’ll be your slaves.
 
 318
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 It would be best.” The sultan’s pure nature did
 not allow him to contemplate breaking an oath,
@@ -25360,7 +25103,6 @@ din Abubakr was dominant.
 and seizing those who dared speak of submisIn Fars was Atabeg Muzaffaruddin Sa‘d b. sion to the Mongols. When Chormaqan disZangi, who died in the year ___ in Bayza. patched Külbolad and Chin Temür to deal with
 Khwaja Ghiyasuddin Yazdi, his vizier and ad- Qaracha in the Nishapur and Tus area, Külboministrator, kept his death secret and sent his lad returned after defeating Qaracha. When the
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 news of trouble in Khurasan had reached the
 Qa’an, he had ordered Tayir Bahadur to take a
@@ -25441,7 +25183,6 @@ The History of Ögödäi Qa’an from the
 
 320
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 beginning of Qonin Yil, the Year of the
 Sheep that began in Jumada I 632 [January
@@ -25520,7 +25261,6 @@ The courier relay institution yām (< Mongolian ǰam
 to give our lives for anything that is command- < Chinese 站 zhan [< zham] ‘stage’) is well known. See
 ed. Let the Qa’an enjoy himself and not be Doerfer, TMEN 4:110–18, §1812.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 yams throughout the length and breadth of the
 empire.
@@ -25605,7 +25345,6 @@ Carpathians and Hungary took place in 1240 (Minorsky,
 
 322
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to be fully subdued. The kings of that area are
 called kilar.1
@@ -25688,7 +25427,6 @@ Moksha, and “Burtas seems to be a general Islamic
 name for the Mordvans” (Minorsky, “Caucasica III,”
 229). ‫ــﺎن‬d‫( ار‬Irajan) is lacking in many MSS, but it is probably a variant of ‫( ارزان‬Irazan, for Ryazan).
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 323
 
@@ -25779,7 +25517,6 @@ Magas, the capital of the Alans. See Minorsky, “Caucasia III,” 232–37.
 
 324
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 responding to 638 [1241], they dismounted in
 their own ordus.1 [670]
@@ -25857,7 +25594,6 @@ something that belongs or pertains personally to the
 ruler (Doerfer, TMEN 1:513 §380)
 3
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 He had commanded that every day five
 hundred carts loaded with foodstuffs and drink
@@ -25931,7 +25667,6 @@ peratoris eorum est, essemus.”
 
 326
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 he took to drinking from large cups instead of
 small ones so that the number would remain
@@ -26010,7 +25745,6 @@ word for plexus, khilt (‫ﻠﻂ‬l), itself gives the date, 639.
 3
 The poem is lacking in JTK.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 327
 
@@ -26056,7 +25790,6 @@ gan and completed construction of the Mustan- called Mankärmän, in nine days. 
 they went in järgä formation, tümän by tümän,
 siriyya Madrasa.
 to all the towns of Vladimir, seizing the
-History of the sultans.
 fortresses and territories that lay along the way.
 In Mosul was Badruddin Lu’lu’.
 Together they laid siege to the town of ÜchIn Anatolia was Sultan Ala’uddin.
@@ -26091,7 +25824,6 @@ Minorsky explains the unusual epithet, Üch-oghul
 
 328
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 In Hükär Yil the Qa’an died, and in the middle month of spring they passed by the Maraq
 Tan1 mountains headed for Bular and
@@ -26179,7 +25911,6 @@ See Strakosch-Grassmann, Einfall, 168.
 9
 The Temür Qahalqa are the Iron Gates, Derbent.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 bitigchis of the divan moved from Chin
 Temür’s house to Nosal’s and occupied themselves with administrative affairs. Sharafuddin
@@ -26261,7 +25992,6 @@ send your case to him. Batu commands you.”
 
 330
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Qa’an’s vizier Chinqai said, “Batu’s superior is the Qa’an. What dog is this that his case
 needs a council of padishahs? The Qa’an commands him.” The Qa’an pardoned him, made
@@ -26336,7 +26066,6 @@ Whenever the manners and customs of past
 rulers and kings were mentioned, when it came
 to talk of treasures, he would always say,
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 “Those who have striven for such things were
 deprived of their fair share of wisdom, for no
@@ -26421,7 +26150,6 @@ because that was how the soldiers exiled such
 
 332
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 people from cities. The Qa’an ordered the
 show stopped and had brought from the
@@ -26502,7 +26230,6 @@ or slaves. No one knows anything about him.”
 “He has been hoping and looking for such an
 opportunity his whole life,” said the Qa’an.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 “To turn him away from our court in disappointment is not a high-minded thing to do and
 unworthy of the emperorship God has granted
@@ -26586,7 +26313,6 @@ pearls are worth,” said the assembly. “Let him
 
 334
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 come to court tomorrow and get the gold and
 textiles he can claim.”
@@ -26666,7 +26392,6 @@ a profit,” the Qa’an said, [692] “and they have
 an expense to pay off you bitigchis. It’s the
 debt they owe you I’m discharging lest they
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 come away having taken a loss in dealing with
 us.”
@@ -26752,7 +26477,6 @@ to Mongols and Muslims. It often happened
 
 336
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 that he would tell burly men to take as much as
 they could carry.
@@ -26830,7 +26554,6 @@ She took enough brocades to form the capital
 of a wealthy man.
 ❈
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 One day a bird keeper brought a falcon, saying, “It’s sick and needs to be be treated with
 chicken meat.” The Qa’an said, “Give him a
@@ -26911,7 +26634,6 @@ number.
 
 338
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “How many times do I have to tell you not to
 question my gifts?” said the Qa’an. “Do not
@@ -26988,7 +26710,6 @@ taken it would return it, his life would be
 spared and he would be granted anything he
 asked for.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 The next day the thief brought the goblet.
 “For what reason did you commit such an audacious act?” he was asked.
@@ -27071,7 +26792,6 @@ had a full share of his pleasuring?” (Among the
 
 340
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Mongols it is a standing joke that Tajiks have
 huge members.)
@@ -27149,7 +26869,6 @@ asked who he was.
 daughters, but I am too poor to get them
 married.”
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FOUR: ÖGÖDÄI QA’AN
 
 “Why doesn’t the caliph give you something
 to help you get your daughters married?” he
@@ -27234,7 +26953,6 @@ Existent singled him out so all may know that
 
 342
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 in the world there is no characteristic better
 than the acquisition of a good name, for after
@@ -27348,7 +27066,6 @@ See note to text p. 299.
 
 344
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 taunted him but considered him legitimate.1
 During his youth Jochi Khan married Jagambu’s daughter, Begtutmish Füjin, the sister of
@@ -27506,7 +27223,6 @@ the Besüt. These two, and other liege men too,
 
 346
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 were received by the Padishah of Islam in
 Baghdad around the beginning of Jumada ii
@@ -27587,7 +27303,6 @@ had a son named Boralqi, (ii) Danishmand, (iii)
 Qurtaqachi, (iv) Qutlugh Buqa, (v) Qutluq
 Temür, (vi) El Temür, and (vii) Yaylaq. The latter six had no sons. The names of the mothers
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 of Aq Köpäk, Danishmand, Qurtqachi, and
 Qutluq Temür are unknown. Qutluq Buqa was
@@ -27673,7 +27388,6 @@ A posthumous title, where “good” means “late.”
 
 348
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they set out and conquered most of those territories. In the spring of Quluqana Yil, the Year
 of the Rat corresponding to 637 [1240], Güyük
@@ -27760,7 +27474,6 @@ Möngkä Temür ~ Mänggü Temür.
 Toqta ~ Toqtai. Both variants of the name occur
 frequently.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 Jochi Khan’s fifth son, Shiban.
 He had wives and concubines, and he had
@@ -27848,7 +27561,6 @@ The name occurs variously as Boqal ~ Bo’al ~ Bo’ol.
 
 350
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 (1) Yesü Buqa, who had five sons: Boralqi, the Tögöläs, or Töläs, clan. He had one son
 Küilük, Tödägän, Tödächü, and Akhtachi.
@@ -27908,15 +27620,12 @@ trustworthy sources are these fourteen whose
 names and those of their sons and grandsons
 have been recorded. A genealogical chart follows. [731] ❧
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 351
 
 352
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 353
 
@@ -27968,7 +27677,6 @@ In JTRM, “Kilar.”
 
 354
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 proceed in the direction of Jochi, with
 Chaghatai and Ögödäi in the lead while he
@@ -28037,7 +27745,6 @@ remaining territories. In the first part of the was located “somewhere along t
 year 637 [1239], when Ögödäi Qa’an died, Uruungu, probably at the point where it ceases to flow
 Batu was already suffering from flaccidity be- from North to South and makes a sharp turn to the West”
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 his illnesses in a place that is a one-week journey from Beshbaliq—and that was in the year
 64[5] [1248]. Once again the emperor’s throne
@@ -28124,7 +27831,6 @@ this land, plotted treachery against Hülägü
 
 356
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khan and practiced sorcery.1 An ayghaq (informant) came forward, and he was put on trial.
 He confessed, and therefore Hülägü Khan, in
@@ -28203,7 +27909,6 @@ should be 667. Möngkä Temür ~ Mänggü Temür.
 3
 See text p. 1163.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 him, claiming he was insane, and ruled jointly
 for five years. Möngkä Temür’s son Toqta was
@@ -28282,7 +27987,6 @@ tari sonare.”
 
 358
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 in marriage to his son Yaylaq, who had been
 born of that lady.1 Noqai had agreed. Sometime
@@ -28351,7 +28055,6 @@ with Noqai. Unable to put up a defense, Noqai
 In the text, ‫ﲡ ــﺴ ــﲈری‬. Neither the reading nor the location of this place has been identified.
 2
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION FIVE: JOCHI KHAN
 
 turned away and crossed the Dnieper, where he
 sacked the city of Crimea and took many captives. The people then went to Noqai’s court
@@ -28431,7 +28134,6 @@ edge,” which souls must cross in order to reach paradise.
 
 360
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 fought he had constantly sent ambassadors of
 importance to the Padishah of Islam [748] and
@@ -28549,7 +28251,6 @@ Baiju.
 
 362
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 that he got angry with his sons intentionally on
 some pretext and said, “You do not listen to
@@ -28715,7 +28416,6 @@ in Persian it is always ‫دوا‬.
 
 364
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 keep him distracted, but he realized what they
 were doing and said, “This is what you intend.
@@ -28797,7 +28497,6 @@ text pp. 1065ff.
 Cf. text p. 773 below, where the Buqa Temür who became ruler of the Ulus Chaghatai is said to be Buqa
 Temür son of Qadatai.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION SIX: CHAGHATAI KHAN
 
 winter they are in the province of Ghaznin and
 that area. They must constantly do battle with
@@ -28879,7 +28578,6 @@ Nomquli, Bük Buqa, and Toghan.
 
 366
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ruled on her own for ten years. After that, Ariq
 Bökä gave the ulus to Baidar’s son Alghu.
@@ -28901,13 +28599,11 @@ come later: Toqta, Yasa’ur, Dögöläs, Ejil Buqa,
 Nomquli, Boyuntash, Aq Buqa, Sati, Qoyatmish, Daud, Gambu Dorji, Chigin Temür,
 Jirghudai, Mingtash, and Könchäk Dorji. [762]
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION SIX: CHAGHATAI KHAN
 
 367
 
 368
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Part Two of the History of Chaghatai Khan. The history of his reign; a picture of his throne
 and his wives, princes, and amirs as he sits on the throne; a mention of his ulus and some of
@@ -28981,7 +28677,6 @@ Taqiqu Yil, the Year of the Rooster corresponding to 622 [1225], when Genghis Kh
 
 See above, text p. 448.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION SIX: CHAGHATAI KHAN
 
 belled again, he ordered Chaghatai to be in the
 wing of the army behind the camps. He did as
@@ -29058,7 +28753,6 @@ given him and was firmly ensconced upon the
 
 370
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 throne in Beshbaliq. Ögödäi sent emissaries to
 consult with him on all matters of importance
@@ -29140,7 +28834,6 @@ Qara Hülägü’s place. Since at that time there
 Text here has “Äbügän Kä’ün.” Below (text p. 882) it
 was a dispute between Qubilai Qa’an and Ariq is the diminutive Äbügälün.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION SIX: CHAGHATAI KHAN
 
 chains. Then he took counsel with his amirs
 and asked what should be done.
@@ -29227,7 +28920,6 @@ horses to present to his ruler, but Qipchaq said
 
 372
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to him, “Take a few horses and present them to
 Baraq.” Shächätü did this. The next day in
@@ -29312,7 +29004,6 @@ After that, Baraq’s eldest son, Beg Temür,
 and Alghu’s sons Chübäi and Qaban rebelled
 and went to the Qa’an. Ögödäi’s nephew Cha-
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION SIX: CHAGHATAI KHAN
 
 bat and a group of amirs also joined the Qa’an,
 after which Qara Hülägü’s son Mubarakshah
@@ -29393,7 +29084,6 @@ note 43.
 
 374
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 day, and since most of what they said was in
 rhyme and obscure, each of them had one of
@@ -29531,7 +29221,6 @@ Variously spelled as Qutuqtu ~ Quduqdu ~ Qutughtu.
 
 376
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ruler of the Ulus Jochi, and he died in 701
 [1301–2].
@@ -29661,7 +29350,6 @@ nökär [liege man]. Genghis Khan’s yurt, ordus,
 
 378
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 goods, treasuries, er-akhta [cavalry corps], officers, and elite troops all came into his possession, for it has been the Mongol and Turkic
 custom since ancient times for a father during
@@ -29807,7 +29495,6 @@ was held, the other brothers and princes [788] 關).
 
 380
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Ögödäi. Since he had been on that expedition
 for a time, as the Qa’an turned back, he stationed Toqolqu Chärbi with a large army to
@@ -29969,7 +29656,6 @@ them honor and respect. Even at the present
 
 382
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they remain as they were and now belong to section on Möngkä Qa’an, God willing. [795]
 Öljäitü Qa’an. This will all be explained in the
@@ -30030,7 +29716,6 @@ forcements, but he got angry with Baraq and provinces. Since she had been offend
 
 384
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 bored a desire for revenge in her heart, when
 she became the absolute ruler she wanted to
@@ -30186,7 +29871,6 @@ Shih. Boyle reads Orutai.
 
 386
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khatun’s, as his designated heir; however, he
 died while the Qa’an was still alive. Since the
@@ -30345,7 +30029,6 @@ Kor. 17:14.
 
 388
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 of Anatolia, Georgia, Mosul, Aleppo, and Diyarbekir without anyone else’s interference and
 also with the provision that the governors of
@@ -30489,7 +30172,6 @@ There were so many tents, people, and pavilions that no flat space remained on t
 
 390
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When he was confirmed in the khanate, he
 forbade any change in the commands and orders of his father, just as he had allowed no
@@ -30613,7 +30295,6 @@ them, killing many and taking back the captives from Arbela and Daquq. [815]
 On Friday the 10th of Jumada ii 640 [December 5, 1242] the Commander of the Faithful al-Mustansir-bi’llah passed away, and his
 son al-Musta‘sim-bi’llah became caliph in his
 stead.
-History of the sultans.
 In Anatolia, Sultan Izzuddin ruled. His brother Ruknuddin went to the Qa’an’s court, and
 after Möngkä Qa’an was enthroned he gave
 him the office of sultan and deposed his
@@ -30642,7 +30323,6 @@ the remnants of the defeated Khwarazmian
 
 392
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 troops, proposed marriage to Malik Adil’s
 daughter, who was the mother of the lord of
@@ -30691,7 +30371,6 @@ Also by that wife [Qutuqtai Khatun], MöngPart Three is on his conduct and chara
 the pronouncements and orders he gave; inci- married to Märik,2 the son of Cha’uqurchin,
 dents that occurred during his reign that were who was Huludai’s brother. Huludai was the
 not included in the previous two sections and father of this girl’s mother.3
-were culled from various books and persons.
 He had another great lady wife named Oghul
 [820]
 Qoymish of Oyirat “bone” of the family of
@@ -30728,7 +30407,6 @@ For Huludai, see text p. 161 above.
 
 394
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ing. Having been engaged first to Tolui Khan,
 she called her husband’s brothers Qubilai
@@ -30876,7 +30554,6 @@ from the gout, and so he dispatched envoys in [825] The Qipchaq leader Bachman, 
 
 396
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 were captured by Möngkä, as was the city of
 [Man]-Kärmän [Kiev]. He massacred, pillaged,
@@ -30953,7 +30630,6 @@ How can you give it to another?” [827]
 “We have deliberated this action together
 with our aqa-inis,” Batu replied, “and the matter has been settled in such a way that it is not
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 possible to abrogate it. Had it not been done in
 this way, and had anyone other than Möngkä
@@ -31032,7 +30708,6 @@ The astrologers chose an auspicious ascendant, and one of the indications of Mö
 
 398
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ever-increasing fortune was as follows. During
 those few days the sky in that area was clouded
@@ -31111,7 +30786,6 @@ Hülägü arrived, and they offered their congrat-
 The depiction planned to accompany the text is, of
 course, missing.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 ulations in the customary manner and then
 turned to enjoy the pleasures of the celebration.
@@ -31194,7 +30868,6 @@ Mängäsär Noyan, the chief of the amirs of
 
 400
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 court, should go in the vanguard and investigate. As ordered, he set out with two or three
 thousand horsemen, and by dawn they had
@@ -31268,7 +30941,6 @@ of noyans and amirs like the great noyan
 
 See Juvaini/Boyle 2:580, note 88.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 Elji’itäi, Taunal,1 Jangi, Qalkhitai, Sorghan,
 Taunal the younger, Toghan, and Yasa’ur, each
@@ -31349,7 +31021,6 @@ been arrested “the next day.”
 
 402
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 he could be executed. Qara Hülägü conducted
 the trial of Toqashi Khatun in Yesün Toqa’s
@@ -31429,7 +31100,6 @@ When this message was relayed, Möngkä
 Qa’an became extremely angry and had a decree written to this effect: “The wives of Jochi
 Qasar, Otchigin, and Bälgütäi Noyan, the
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 brothers of Genghis Khan, have attended the
 deliberation of the quriltai, but Oghul Qaimish
@@ -31506,7 +31176,6 @@ extinguished.
 
 404
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The princes and commanders request
 permission to return home from Möngkä
@@ -31579,7 +31248,6 @@ the 20th of Ramadan 650 [November 24,
 1252]. Ali Malik was sent as his liege man, and
 Isfahan and Nishapur were awarded to him.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 They were given the following order: “Conduct a new census and determine the entire
 ulus and army and the amounts of tribute due,
@@ -31657,7 +31325,6 @@ Buddhist priest. See Doerfer, TMEN 1:123–25 §15
 
 406
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Of all nations and groups, he showed the
 people of Islam the most favor and honor, and
@@ -31732,7 +31399,6 @@ court elite, [not] to give paizas to merchants so
 that there would be a distinction between them
 and administrative officials. For goods brought
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 for sale to the treasury, one group was to evaluate jewels, another textiles, another furs, and
 another coins. Similarly he appointed experts
@@ -31808,7 +31474,6 @@ cret History §57).
 
 408
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 people. I myself will also go on campaign to
 Nankiyas.”
@@ -31900,7 +31565,6 @@ mentioned.
 13
 See Pelliot, Polo 1:227–29.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 had the armies of the Left Wing move off with
 Prince Taghachar on a different route. They
@@ -31985,7 +31649,6 @@ Yachi, which is Kunming in Yunnan (see text p. 910 below), or of Ozhou, the mode
 
 410
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 were killed by the Nankiyas. Some got stuck in
 that territory, but when the Nankiyas were
@@ -32068,7 +31731,6 @@ The second commander should be Lü Wende. Needless to say, there is no resemblan
 Muharram 655 began in January 1257, but this cannot be correct. August 11, 1259 is the date usually given
 for Möngkä’s death (Grousset, Empire, 284), and Qubilai succeeded him to the throne in May 1260.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 Nankiyas territory: Hülägü had gone to the
 west and Tajik lands, and there was a great distance between them and the capital. No sooner
@@ -32140,7 +31802,6 @@ Khan arrived.
 
 412
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 History of the caliphs in Baghdad.
 In Baghdad was the Caliph al-Musta‘simbi’llah, a pious and ascetic man who never
@@ -32218,7 +31879,6 @@ Izzuddin Kay-Ka’us II of the Seljuqs of Rum, r.
 4
 The modern Ankara in Turkey.
 
-TOME ONE, PART TWO, CHAPTER TWO, SECTION NINE: MÖNGKÄ QA’AN
 
 men. His treasury was plundered, and his soldiers took flight and straggled in after him.
 In Egypt the sultan was Malik Salih Najmuddin Ayyub b. al-Kamil.1 When he died the
@@ -32280,7 +31940,6 @@ throne.8 [861]
 Part Three of the section on Möngkä Qa’an,
 on his conduct and character, the
 pronouncements and orders he gave,
-incidents that occurred during his reign that
 
 1
 
@@ -32312,9 +31971,7 @@ Qutbuddin Muhammad, ruled 1252–1258.
 
 414
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
-were not included in the previous two
 sections and were culled from various books
 and persons.
 A summary indication of Möngkä Qa’an’s
@@ -32377,9 +32034,6 @@ and the princes who conspired with him; the
 battles the emperor fought and the victories he
 achieved.
 Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
-not included in the previous two sections and
-were culled from various books and persons.
 [864]
 
 Part One, on his progeny, a detailed account of his wives and his sons’ offspring who have
@@ -32412,7 +32066,6 @@ in Chinese sources is 世祖 Shizu.
 
 416
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 remembered her and gave alms for the repose Ajurpariyabatra.5 The third son was Temür
 of her soul. [865]
@@ -32553,7 +32206,6 @@ Nanbi. See Pelliot, Marco Polo 2:568.
 
 418
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Part Two, events leading to his enthronement, a picture of him and his wives, princes, and
 amirs during his enthronement; stories of his reign; the history of Ariq Bökä and the
@@ -32589,7 +32241,6 @@ Cathaian language, meaning “great realm.”2 In
 Pelliot (Marco Polo 1:177) suggests that “Dai Liu” is
 for 大理國 Daliguo, the Kingdom of Dali, the name of
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 the Indian language it is called Qandar and, in
 the language of this area, Qandahar. It borders
@@ -32673,7 +32324,6 @@ Hubei.
 
 420
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 message: “The great commanders Dorji and
 Alamdar have come on behalf of Ariq Bökä
@@ -32751,7 +32401,6 @@ saying, “Abandon the siege of Oju and return,
 like the revolving of the celestial sphere.” By
 the time the envoys arrived, Taghachar,
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Yesünggä, and Narin Qada’an had already
 started back, and Bahadur and Uriangqadai had
@@ -32836,7 +32485,6 @@ certain that Ariq Bökä had created a bulqaq.
 
 422
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 After that, the following gathered and held
 deliberations: Taghachar, Yesünggä, Yäkä
@@ -32917,7 +32565,6 @@ and Bärkä’s soldiers come to assist Qubilai.”
 With this thought in mind, he curried favor
 with Alghu and sent him off.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Alghu departed like an arrow shot from a
 bow and made his way to Kashgar, where
@@ -33002,7 +32649,6 @@ the Yenisei, the Us (see JTBy 254f., note 47).
 
 424
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 all who have disputed the Mongol army and
 the good name of our ancestors. Let Alghu
@@ -33081,7 +32727,6 @@ to Samarkand, Bukhara, and the provinces of
 Negübäi, son of Chaghatai’s son Sarban; see text p.
 760 above.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Transoxiana in order to guard the frontiers of
 those areas and carry out Alghu’s orders.
@@ -33162,7 +32807,6 @@ For Bolad, see text p. 40 above.
 
 426
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 treatment.
 In Quluqana Yil, the Year of the Rat that
@@ -33247,7 +32891,6 @@ empties into Ayrag Nuur and thence into Hyargas Nuur.
 
 See text p. 769. above.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Covered in that fashion, he performed tägishmishi. After a time he was given permission to
 enter. He entered and stood in the place of the
@@ -33335,7 +32978,6 @@ Jochi Qasar (see Hambis, Yuan che, 24).
 
 428
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 world knows how they were punished for the
 little rebelliousness they harbored in their
@@ -33417,7 +33059,6 @@ Turkistan along with several other princes.
 After that, the Qa’an wanted to try Ariq
 Bökä, and he would have waited for the arrival
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 of Hülägü Khan, Bärkä, and Alghu, but since
 they were very far away and it would have taken too long, the princes who were in the area,
@@ -33494,7 +33135,6 @@ and their aqa-inis left Baraq and took their soldiers to the Qa’an’s court. 
 
 430
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Qa’an hunted for a few days and then parted
 from the others. During the hunt Tuq Temür
@@ -33570,7 +33210,6 @@ Having summered along a river bank, the
 
 p. 302 above.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 back. Chancing upon Sarban on the road, he
 tricked him too with a promise that the rule
@@ -33653,7 +33292,6 @@ Qa’an. Shirägi wanted to go after them and
 
 432
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 bring them back, but he was afraid Sarban
 would stir up strife. So he sent him with fifty
@@ -33730,7 +33368,6 @@ time he sent an expedition to their borders it
 failed. This continued until the year ___. Then
 a man named Bayan—a son of Kököchü, a
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 great amir of Ba’arin “bone” whose grandfather Alaq Noyan had been executed on charges
 of a great crime1—[898] fell by lot as a slave
@@ -33811,7 +33448,6 @@ i.e. Tonking.
 
 434
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the princes and stationed a contingent of soldiers in each part of that realm. Amir Bolad
 Chengxiang, who is very familiar with the situation of that realm, reports that although it was
@@ -33881,7 +33517,6 @@ Marco Polo calls it Taidu, from the Chinese 大 都
 be found nowhere else.
 Da(i) Du ‘great capital.’
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Inside the city he built a truly magnificent
 palace for his ordu. It is called Qarshi,1 and its
@@ -33967,7 +33602,6 @@ name of which was changed to 上都 Shangdu (whence
 
 436
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 There are three roads from the winter residence
 to that place. One is the road that has been
@@ -34053,7 +33687,6 @@ flame except a little at first when they are lighted, as
 charcoals do, and staying thus glowing they give great
 heat” (Marco Polo, Description 1:249).
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 437
 
@@ -34134,7 +33767,6 @@ present,” i.e. Temür Qa’an’s reign.
 
 438
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Uyghur. Formerly there was Lachin Pingzhang, a nephew of Amir Su’unchaq; and at
 present there is his son, Karmana by name. The
@@ -34221,7 +33853,6 @@ Persian term as ‘fingerprint’ because khaṭṭ-i angusht is
 obviously a phrase Rashiduddin has made up to describe
 a phenomenon he does not really understand.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 they are. Each officer has a mark and a seal.
 Several bitigchis are employed whose duty is
@@ -34315,7 +33946,6 @@ in the Chinese Atlas, dating from 1595, which the traveller Carletti presented t
 
 440
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Sayfuddin Taghachar Noyan is there with a
 Cathaian liege man [910] named Suching, as
@@ -34404,7 +34034,6 @@ of Xi’an under the Jin. See Pelliot, Marco Polo 2:813f.
 This is the Gansu Secretariat (modern Gansu). The
 Persian Qamju, Marco Polo’s “Campçio,” is 甘州 Ganzhou, the modern Zhangye (章液) in Gansu.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 many houses and chambers, outbuildings, and
 dependencies. To it are attached many working
@@ -34490,7 +34119,6 @@ the east.
 
 442
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 most places. Starting in the east princes and officers have been stationed with troops. In the
 extreme east Prince Kammala, a full brother of
@@ -34580,7 +34208,6 @@ Wuma’er. He was the administrator of Yunnan from
 Husayn succeeded him in the administration of the
 province. See Grousset, Empire, p. 601, note 31.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 naked, he came forward and performed so well
 that Qubilai Qa’an undertook to serve as his
@@ -34662,7 +34289,6 @@ Gau Pingzhang would not allow him to pro-
 
 444
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ceed, and during this discussion four envoys
 arrived from the Qa’an, headed for Khanbaligh. When Amir Ahmad saw them, he cried
@@ -34737,7 +34363,6 @@ realm of Manzi capitulated and was conquered.
 Gau Pingzhang joined the Qa’an’s army, and
 when he came to the Qa’an’s court he was singled out for all sorts of rewards and was rein-
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 stated in his post of pingzhang as before. He
 became a partner to Amir Ahmad.
@@ -34818,7 +34443,6 @@ body hanged in the crossroads in the marketplace, and wagons driven over his hea
 
 446
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khatun was also killed. The forty other wives
 and four hundred concubines he had were pardoned, but his property was forfeited to the
@@ -34895,7 +34519,6 @@ Qa’an asked.
 “and we do not have the power.”
 The Qa’an flared up in anger and said, “I at
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 least do have the power!” And he ordered him
 executed. Amir Ahmad the vizier, Qazi
@@ -34976,7 +34599,6 @@ and every year he sends more than a thousand
 
 448
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 tangas to Qaidu’s army.”1 Gäräi was offended,
 and when he reached the Qa’an’s court he accused him falsely. An edict was issued for him
@@ -35056,7 +34678,6 @@ The Year of the Pig was 1287, which was 686 of the
 Hegira. The missing sitta wa- should be restored to the
 text.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 in a palanquin on the back of an elephant. The
 Qa’an’s army was almost defeated, but the elephant with the palanquin was driven up a hill
@@ -35142,7 +34763,6 @@ and Ajiqi were stationed (see text p. 913 above).
 
 450
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and had him beaten nine blows. Later, however
 he restored him to favor and sent him back at
@@ -35222,7 +34842,6 @@ him for this, and no matter how hard they tried
 to keep him away from Temür, it couldn’t be
 done because he was a sociable man and a
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 good conversationalist. Since the guards and
 watchmen stood in the way of Temür’s drinking, on Razi’s instruction they would go into
@@ -35299,7 +34918,6 @@ A summary and short history of the emperors of Machin and the sultans, maliks, a
 
 452
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 atabegs of Iran, Syria, Egypt, North Africa, &c. who were contemporaries of Qubilai Qa’an
 from the beginning of Bechin Yil, the Year of the Monkey corresponding to 658 [1260],
@@ -35313,7 +34931,6 @@ After Duzong, “Shaozhu” became emperor
 of that realm.3 When two years of his reign
 had passed, Qubilai Qa’an’s troops took the
 realm and pacified it entirely. [933]
-History of the sultans.
 In Anatolia was Sultan Izzuddin Kayka’us,
 the son of the Sultan Ghiyasuddin Kaykhusraw. He was defeated by the Mongol army under the command of Baiju Noyan at Kösä
 Dagh. He ruled jointly with his brother, Sultan
@@ -35378,7 +34995,6 @@ Damascus ruled from 1250 until the Mongol conquest
 in 1260. “Alfi” is Sayfuddīn Qalāwūn “al-Alfī,” who
 ruled 1279–1290 and was succeeded by Khalīl alAshraf, ruled 1290–1293.
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 died he left two sons, Muzaffaruddin Hajjaj
 and Jalaluddin Soyurghatmish. The title of
@@ -35459,7 +35075,6 @@ court. Abish Khatun was married to Prince
 
 454
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Mänggü Temür. The post of atabeg of Shiraz
 was nominally hers. The other sister, Bibi Salghum, was married to Atabeg Yusufshah of
@@ -35526,7 +35141,6 @@ incidents that occurred during his reign that were not included in the previous 
 and were culled from various books and persons.
 [text missing from all versions]
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 On the wives and children of Ariq Bökä,
 after whose death the Qa’an divided his
@@ -35615,7 +35229,6 @@ on p. 877 above. Neither, however, has been identified.
 
 456
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 there of Hülägü Khan’s, they said, “Why
 should we leave such an ordu empty?” And
@@ -35700,7 +35313,6 @@ Qaidu’s sons, the first is Amir Ja’utu of the
 Suldus, the grandson of Sodon Noyan [and]
 son of Su’unchaq Noyan, a tümän amir of the
 
-PART TWO, CHAPTER TWO, SECTION TEN: QUBILAI QA’AN
 
 Left Wing. He has a son named Qada’an, who
 commands a gäzig and weapons. He has married Malik Temür’s daughter.
@@ -35769,10 +35381,6 @@ stories of his events that have occurred from
 the beginning of his imperial reign down to the
 present; some of his battles and conquests that
 are known.
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
-not included in the previous two sections and
-were culled from various books and persons.
 [946]
 Part One, on his blessed lineage and a
 detailed account of his wives and the
@@ -35908,7 +35516,6 @@ Illustration lacking.
 
 460
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Ajall as an acknowledgement of his importance and power. At present he is an extremely
 grand and powerful vizier. The functions of the
@@ -36063,7 +35670,6 @@ Kor. 110:2.
 
 462
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 enue raised there is spent on his troops and little gets to the divan. At present Sartaq, who
 was so opposed to Islam and informed on
@@ -36219,7 +35825,6 @@ Padishah of Islam will of course assist, and
 
 464
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 from all sides we can trap Dua and Qaidu in
 the middle and be done with them once and for
@@ -36297,8 +35902,6 @@ the jewels, were taken back. [960]
 
 Part Three, on his conduct and character;
 the pronouncements and orders he gave;
-incidents that occurred during his reign that
-were not included in the previous two
 sections and were culled from various books
 and persons. [961]
 
@@ -36312,10 +35915,6 @@ branches.
 Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; stories of events that occurred during his imperial reign; some of the battles he
 fought and the conquests he achieved.
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
-not included in the previous two sections and
-were culled from various books and persons.
 [962]
 
 for Jochi Khan and Sorqaghtani Beki for Tolui
@@ -36460,7 +36059,6 @@ The spelling varies, Jumghur ~ Jumqur.
 
 468
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Mänggü Qa’an. The other aghruqs he took
 with him he left in the vicinity of Almalyk in
@@ -36552,7 +36150,6 @@ steady on her head the Princess was attended by many
 dames who walked beside her” (González de Clavijo,
 Narrative, 258).
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 469
 
@@ -36637,7 +36234,6 @@ His name is variously spelled, Qonqurtai ~ Qongqurtai ~ Qongghurtai.
 
 470
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Gäräi, (5) Tash Temür, and (6) Ashigh Temür.
 Esän Temür was called Kharbanda, and he and
@@ -36720,7 +36316,6 @@ I.e. a second Öljäi Khatun, daughter of the elder Öljäi
 Khatun’s brother Buqa Temür. “Sister” is used here, as
 often, in the sense of niece.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 (14) Taghai Temür.
 Hülägü Khan’s fourteenth son was Taghai
@@ -36808,7 +36403,6 @@ text p. 1056 below.
 
 472
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Part Two, on events leading to his enthronement, a picture of him and his wives, sons,
 grandsons, and commanders at his enthronement; stories of events that occurred during
@@ -36825,7 +36419,6 @@ attention to regulating and arranging affairs of
 state. He dispatched soldiers to the borders in
 all directions, and he gave leave to depart to
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 those in need and those who tended to the affairs of Turk and Tajik who had gathered from
 far and near, after granting their wishes and requests, as will be mentioned in his history.
@@ -36905,7 +36498,6 @@ strong bridges across deep canals and rivers.
 
 474
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 An order was given for Baiju Noyan and the
 troops [976] that had come previously with
@@ -36980,7 +36572,6 @@ frontiers had arranged tuzghus [provisions] and
 placed them station by station, and to the width
 that the passage of his army had been calculated, they cleared the road of debris and had
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 boats ready at crossings of rivers and large
 canals. The princes and commanders that had
@@ -37058,7 +36649,6 @@ Kish (~ Kash), the modern Shahrisabz in Uzbekistan.
 
 476
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 so cold that many animals perished. Hülägü
 Khan remained there the whole of that winter,
@@ -37130,7 +36720,6 @@ books that henna is a deterrent for the pestilence. Nonetheless, an amir’s dau
 been hennaed and then washed. Since water
 was scarce, some people had drunk it, and
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 none of them had died. They took this as proof
 and asked for henna.) In short, those hundred
@@ -37206,7 +36795,6 @@ received with regal acceptance, and Hülägü
 
 478
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 After that, they went to Khabushan, which
 the Mongols call Quchan, a town that had lain
@@ -37282,7 +36870,6 @@ announce that the expedition was in motion. If
 Khwarshah would come out, his offenses
 notwithstanding, he would be pardoned.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 When the imperial banners passed by
 Firozkoh, the emissaries returned accompanied
@@ -37368,7 +36955,6 @@ Buqa Temür, Sayfuddin Bitigchi, and Amir Ket
 
 480
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Buqa insisted on continuing the siege. Hülägü
 Khan sent more emissaries with messages
@@ -37446,7 +37032,6 @@ withdrew. On Monday the 25th [January 13] he
 dismounted in the great ordu seven leagues
 from Qazwin to celebrate the new year (kün-
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 yanglamishi). Banquets were held for a week,
 and the princes and commanders were
@@ -37526,7 +37111,6 @@ Muhammad II, 1166–1210; Jalaluddin Hasan III, 1210–
 
 482
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Hülägü Khan proceeds to Quhistan after
 conquering the Heretics’ strongholds; Baiju
@@ -37604,7 +37188,6 @@ must not swerve from the path of obedience.”
 
 The dawātdār, the inkpot holder, was a high court office under the late Abbasids.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 When Aybak perceived the caliph’s kindness
 and affection, he replied, “If a crime is proven
@@ -37682,7 +37265,6 @@ will not be necessary for us to wreak ven-
 
 484
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 geance, and you may retain your lands, army,
 and subjects. If you do not heed our advice and
@@ -37763,7 +37345,6 @@ where his ordu was, he gave the caliph’s envoys leave to withdraw and sent a m
 saying, “God the eternal elevated Genghis
 Khan and his progeny and gave us all the face
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 of the earth, from east to west. Anyone whose
 heart and tongue are straight with us in submission retains his kingdom, property, women,
@@ -37840,7 +37421,6 @@ they have done to every other country, they
 
 486
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 will leave neither nomad nor city dweller, neither strong nor weak, and they will ravish
 those they take captive. Had the Mongols not
@@ -37917,7 +37497,6 @@ These words served only to increase Hülägü
 Khan’s anger, and he sent the envoys back,
 saying, “ ‘Go build a city and ramparts of iron;
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 raise towers and walls of steel. / Assemble an
 army of demons and fairies, and then come before vengeful me. / If you are above the celestial sphere, I shall bring you down miserably
@@ -37986,7 +37565,6 @@ stars.”
 
 488
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Since the astrologer held an intimate enough
 position to be bold, he said in absolute terms to
@@ -38061,7 +37639,6 @@ Text has Muharram 655 (January 1257), which cannot be correct. It must be a mist
 655, which began on November 10, 1257.
 2
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 Mawlana Khwaja Nasíruddin Tusi, and Sahib
 Sa‘id Ala’uddin Ata-Malik with all the sultans,
@@ -38100,7 +37677,6 @@ and headed for Baghdad’s western frontier.
 
 490
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The Baghdad advance guard was commanded by a Qipchaq named Qara Sonqor. In the
 Mongol yäzäk was Sultanchuq, a descendant of
@@ -38177,7 +37753,6 @@ The al-Harbiyya Quarter lay just north and northwest
 of the Round City of Baghdad on the west bank of the
 river.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 behind the backs of the Baghdad army. At sunrise on Thursday morning, the day of Ashura
 [January 17], Baiju and Buqa Temür attacked
@@ -38249,7 +37824,6 @@ soldiers were patrolling the routes to Madayin
 
 492
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and Basra to prevent anyone from escaping by
 boat.
@@ -38322,7 +37896,6 @@ Mosul by Malik Salih, Badruddin Lu’lu’s son.
 Badruddin, having been a friend of Sulaymanshah’s, wept, but in fear for his own life he
 hung the heads on the gibbet.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 After that, when the Caliph Musta‘sim saw
 that it was all over, he summoned the vizier
@@ -38401,7 +37974,6 @@ Maragha’i, Shihabuddin Zanjani, and Malik
 
 494
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Dilrast to request amnesty. An order was given,
 saying, “Henceforth the killing and pillaging
@@ -38486,7 +38058,6 @@ al-Khuri al-Shartuni, Aqrab al-Mawarid 2:1135).
 Rastdil ~ Dilrast. See text p. 1017 above. He is
 known as Ibn Imran. See Khwandamir, Habibu’s-siyar
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 to the districts of East Baghdad, viz. the
 Khurasan Road, Khalis, and Bandinjin. Nizamuddin Abdul-Mu’min Bandinjin [was made]
@@ -38573,7 +38144,6 @@ Kor. 14:20.
 
 496
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The city of Arbela is conquered by Uruqtu
 Noyan, and he lays siege to the citadel there.
@@ -38638,7 +38208,6 @@ of the month [August 10] Sultan Ruknuddin
 arrived on his heels. Hülägü Khan had been offended by Sultan Izzuddin’s inattention to Baiju Noyan and his having done battle with him,
 and after the conquest of Baghdad Sultan Izzuddin became very apprehensive and tried to
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 save himself by ruse from the brink of the disaster occasioned by his offense. He ordered a
 pair of very fine, regal boots made, and on the
@@ -38701,7 +38270,6 @@ en by Jamaluddin Muhammad Tahir b. Mirza Ulughbeg at Samarkand.
 
 498
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 arrived at Hülägü Khan’s court he was given
 one of Sultan Jalaluddin’s daughters in
@@ -38781,7 +38349,6 @@ Ruha (~ Urhay) is Edessa, the modern Urfa (Şanlıurfa) in Turkey.
 Harim, a small town two stages west of Aleppo and
 one stage from Antioch (Abu’l-Fida, Taqwim, 258f.).
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 asked for amnesty. Ket Buqa sent the nobles
 and dignitaries to Hülägü Khan, who had mercy on them and granted their requests. The
@@ -38867,7 +38434,6 @@ Diyar Rabi‘a, the upper Tigris region.
 
 500
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 much money. They all became wholehearted
 supporters of Quduz’ rule.
@@ -38943,7 +38509,6 @@ troops in ambush and, himself mounted with a
 few others, stood waiting. He clashed with Ket
 Buqa and his several thousand cavalry, all experienced warriors, at Ayn Jalut. The Mongols
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 attacked, raining down arrows, and Quduz
 pulled a feint and started to withdraw. Emboldened, the Mongols lit out after him, killing
@@ -39029,7 +38594,6 @@ news of Ket Buqa arrived, a Syrian said, “Ma-
 
 502
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 lik Nasir of Aleppo is not with you wholeheartedly. He wanted to flee to Syria and assist
 Quduz, and it was his plan to attack Ket
@@ -39106,7 +38670,6 @@ There were two brave riders with Malik Kamil.
 One was Sayfuddin Lukili, and the other was
 Ambar Habashi. They both killed several men
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 and fought hard. After a time they went into
 the city and began to fight from the battlements. [1036]
@@ -39187,7 +38750,6 @@ heed. After the conquest of Baghdad, Kamil
 
 504
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 grew afraid and was in rebellion for two years,
 as has already been mentioned. This time,
@@ -39266,7 +38828,6 @@ Arzan, also known as Arzan al-Rūm, is the modern
 Kurdish fighters.”
 Erzurum in Turkey.
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 awards me my father’s place, it is his to command.” Hülägü Khan pardoned him and gave
 him the realm of Mardin.
@@ -39341,7 +38902,6 @@ the gallop to deal with him. Near Sinjar they
 
 506
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 divided into three units, laid an ambush, and
 attacked the Syrians. The Syrians stood their
@@ -39416,7 +38976,6 @@ day. In the end Hülägü Khan said, “Even if he
 is an elder, since he knows nothing of shame or
 modesty and addresses me with threats and vi-
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 olence, I will no longer treat him with forbearance.”
 When Bärkä was apprised of Hülägü’s anger,
@@ -39498,7 +39057,6 @@ See text p. 1007 above.
 
 508
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they spent three days reveling and carousing
 with lovely girls.
@@ -39581,7 +39139,6 @@ The text’s ‫( ﺗ ــﻐ ــﺎﺗ ــﻮ‬Naghatu) should probably be �
 järgä ~ närgä).
 1
 
-PART TWO, CHAPTER TWO, SECTION TWELVE: HÜLÄGÜ KHAN
 
 they were miracles of cheating and fraud,
 squandering and wasting the stores of the
@@ -39665,7 +39222,6 @@ Seyâhatnâme, 32, 38f.
 
 510
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they could say nothing, and so they accompanied him via Ana and Haditha [1051] heading
 for Syria and Egypt. When this news reached
@@ -39717,19 +39273,11 @@ wives, sons, daughters and grandsons who
 have branched off down to the present, the
 names of his sons-in-law, and a genealogical
 table of his sons’ branches.
-Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; stories of events that occurred during his reign; battles he constantly fought and
 the victories [1054] he achieved; a mention of
 the rebellions and events that occurred.
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
-not included in the previous two sections and
-were culled from various books and persons.
 [1055]
 Part One, on his progeny with details of his
-wives, sons, daughters and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 table of his sons’ branches.
 Abaqa1 Khan was the eldest and best of
 Hülägü Khan’s sons. He was born of Yesünjin
@@ -39782,7 +39330,6 @@ Täspinä Khatun is Maria Despina, illegitimate daughter of the Byzantine Michae
 
 512
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 jin Egächi. Another was Shirin Egächi, who
 later became the wife of Amir Pulad. Another
@@ -39919,7 +39466,6 @@ places. He assigned Dorbai Noyan to Di-
 
 514
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 yarbekir and Diyar Rabi‘a, the border of Syria.
 Georgia was assigned to Chormaqan’s son
@@ -40001,7 +39547,6 @@ The närgä of the text is a dialect form of yärgä (~
 järgä), battle or hunting circle. See Juvaini/Boyle 1:28
 and Doerfer, TMEN 1:291 §161.
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 trench dug, and there he stationed a division of
 Mongols and Muslims to keep guard. Caravans
@@ -40080,7 +39625,6 @@ The modern Sarakhs/Serakhs on the Iran–Turkmenistan border.
 
 516
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 bine named Arighan [1065] had come to
 Hülägü Khan’s service from Qutui Khatun’s
@@ -40156,7 +39700,6 @@ me go and win him over with sweet words.”
 Knowing how persuasive and eloquent Qipchaq could be, they sent him to Samarkand
 with two hundred select horsemen. [1067] He
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 camped in Sughd1 and sent a cavalryman to
 Baraq to announce his arrival and start peace
@@ -40238,7 +39781,6 @@ offense.”
 
 518
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “You are right,” they said. “Henceforth we
 will not remember the past. We will divide the
@@ -40313,7 +39855,6 @@ armies chanced to meet atop a hill. Negüdär
 fled without a fight and headed for Derbent.
 When the others took to the road he was forced
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 to turn his reins toward the mountains of Georgia, where he went into a forest and got lost.
 The Georgian amirs surrounded the forest, and
@@ -40397,7 +39938,6 @@ Maruchuq is the modern Maruchak in Afghanistan.
 
 520
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 In short, Tübshin Oghul went to Mazanderan
 and sent messengers to Abaqa Khan’s court to
@@ -40480,7 +40020,6 @@ The name may be Ayachi. Both Abachi and Ayachi
 are Mongolian names, and both occur as variants of this
 person’s name through this section.
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 “I have no quarrel with Baraq Aqa or with
 you,” Qipchaq said in reply. “I could not tolerate the words of a commoner. As I have come I
@@ -40562,7 +40101,6 @@ take them to task.’ ” Thus they sent envoys off.
 
 522
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When Chabat reached the borders of
 Bukhara, he stopped for a few days on the
@@ -40640,7 +40178,6 @@ From this side Abaqa Khan marched with all
 his brothers except Tübshin and with his commanders, ministers, and innumerable soldiers
 for Persia and Khurasan, setting forth from
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 Azerbaijan on Sunday the 4th of Ramadan 668
 [April 27, 1270] in Yunt Yil. At that time the
@@ -40722,7 +40259,6 @@ three would you choose?”
 
 524
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Yasa’ur, who was the best of the commanders in strategy and tactics, [1081] said, “The
 best thing to do would be to make a truce, for
@@ -40800,7 +40336,6 @@ and pillaged so much in that area that nothing
 is left, and everywhere from Derbent to Armenia and Diyarbekir is covered with foreign
 armies. [1083] If you don’t hasten to return,
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 you won’t find your camps or people.” When
 the commanders heard this, they went to pieces
@@ -40884,7 +40419,6 @@ joy turned to dismay, and he made camp next
 
 526
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 to the Herat River on the banks of the Qara Su
 near the bridge.
@@ -40958,7 +40492,6 @@ he found.
 Then a cry was given to the army, “It is a day
 of glory and renown!” And they made a concerted attack, wielding blade and spear, attack-
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 ing from left and right, and overthrowing their
 opponents.
@@ -41037,7 +40570,6 @@ she said, “Since you are ill, let me mount with
 
 528
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the army, seize Ahmad, and bring him back.”
 Such words struck at Baraq’s honor, so he
@@ -41114,7 +40646,6 @@ now I am stricken by paralysis. With me in this
 condition, Ahmad Oghul has rebelled and gone
 to Beshbaliq. With no reliance any longer on
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 anyone, I have sent Na’uldar with a thousand
 horsemen in pursuit of him. I myself am in a
@@ -41195,7 +40726,6 @@ with troops, our territory will be ruined beneath the hooves of horses. If we do
 
 530
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 assistance, he will withdraw from us and get
 himself with the few troops he has to Beshbaliq. There he will unite himself with the
@@ -41267,7 +40797,6 @@ recovered, we can see each other.”
 When Qaidu heard this, he said to his commanders, “Baraq is near death, but he still
 won’t cease his tricks. He wants to get us out
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 of here by a ruse without seeing us.” That very
 night he had all his soldiers ride and dismount
@@ -41346,7 +40875,6 @@ would not stop bleeding. Qorchan Aqa, the father of Tuq Temür Idächi, picked u
 
 532
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 strung it, and wrapped the string around the
 wound so that it swelled and stopped the flow
@@ -41418,7 +40946,6 @@ K…tü and reported, “Foreign troops on the city. Mas‘ud Beg’s madrasa, t
 other side of the river are being reinforced greatest of the madrasas there, was set afire
 from Bukhara and getting ready to invade and burned along with its precious books. The
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 killing and looting continued for a week.
 [1100] On the last night they were about to set
@@ -41502,7 +41029,6 @@ Armenians and pulled back. Along the way
 
 534
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 their horses were afflicted by a pestilence, and
 many of the soldiers had to go on foot. One of
@@ -41579,7 +41105,6 @@ was reported to Abaqa Khan he ordered Parvana executed. He was put to death by K
 Tughchi on the first of Rabi‘ I 676 [August 2,
 1277] in the summer quarters at Ala Tagh.
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 On the 17th of Rabi‘ II of that year [September 17, 1277] he dispatched Sahib Shamsuddin
 to placate the peasantry, overpower foes, and
@@ -41656,7 +41181,6 @@ and Khwandamir, Habibu’s-siyar 3:106.
 
 536
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the flames of your determination; with the water of your kindness you make settle down dust
 that does not exist.
@@ -41735,7 +41259,6 @@ Negüdäris laid an ambush in the vicinity of
 
 Omitted from JTAZ and JTRM ; taken from JTK.
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 Kalbar, and in front was a large irrigation
 canal. Najmuddin Shul said, “It is not wise to
@@ -41813,7 +41336,6 @@ khwaja patronized him and assigned him two
 
 538
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 or three tasks, one of which was a census of sense in him qualities that inspired trust, he
 Georgia and that region,1 but since he did not was less than enthusiastic in his reception and
@@ -41873,7 +41395,6 @@ him to Mosul and Diyarbekir to collect taxes and tribute
 and pacify the provinces. He accomplished that task too
 satisfactorily and returned.”
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 Divan, and the Sahib-Divan pardoned Majdulmulk [1112] and issued him a writ of governance of Sivas. When he learned of his
 impoverished condition, he gave him a bar of
@@ -41957,7 +41478,6 @@ the same person.
 
 540
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the padishah. On the top of the document the
 khatun wrote a petition for him that induced
@@ -42027,7 +41547,6 @@ The gist of the Arabic expression is that one cannot
 expect good fortune after getting involved in fiscal
 affairs.
 
-PART TWO, CHAPTER TWO, SECTION THIRTEEN: ABAQA KHAN
 
 oc on Muslim territory, devouring grain and
 stirring up strife, Abaqa Khan was angry with
@@ -42111,7 +41630,6 @@ himself. The Angel of Death showed himself
 
 542
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 as a black bird perched on the branch of a tree.
 “What is that black bird?” he cried out. Then
@@ -42137,8 +41655,6 @@ Omitted from JTAZ and JTRM; taken from JTK.
 
 Part Three, on his conduct and character;
 the pronouncements and orders he gave;
-incidents that occurred during his reign that
-were not included in the previous two
 sections and were culled from various books
 and persons.
 *In the year 6__ in the city of Nishapur and
@@ -42161,17 +41677,9 @@ Omitted from JTAZ and JTRM; taken from JTK.
 THE HISTORY OF HÜLÄGÜ KHAN’S SON TÄGÜDÄR, WHO BECAME PADISHAH
 AND WAS CALLED SULTAN AHMAD—IN THREE PARTS.
 Part One is on his progeny with details of his
-wives, sons, daughters and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 table of his sons’ branches.
-Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; stories of events that occurred during his reign; a mention of the rebellions and
 events that occurred.
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
-not included in the previous two sections and
-were culled from various books and persons.
 [1122]
 
 and mother of Toghachaq, who was cast into
@@ -42193,10 +41701,8 @@ Durabai, the amir of Diyarbekir.
 The fourth was Mainu, also by Armini
 Part One, on his progeny with details of his
 Khatun. She was given to Jandan son of Gäräi
-wives, sons, daughters and grandsons who
 have branched off down to the present, the Ba’urchi.
 The fifth was Sailun by Tödägü Khatun, and
-names of his sons-in-law, and a genealogical
 she
 was given to Qaracha, an ev-oghlan of
 table of his sons’ branches.
@@ -42217,7 +41723,6 @@ he married El Qutlugh, daughter of Kin[g]shü
 
 544
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Part Two, on events leading to his
 enthronement, a picture of him and his
@@ -42347,7 +41852,6 @@ been hovering around nursing a grudge against
 
 546
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 him. Some of the Sahib’s friends seduced him
 and took him before the Sahib, who promised
@@ -42420,7 +41924,6 @@ much ambition and craving for the vizierate, / full of
 straw, as his enemies would wish, and every tender limb
 of his body was in someone else’s hands.’ ”
 
-PART TWO, CHAPTER TWO, SECTION FOURTEEN: TÄGÜDÄR KHAN
 
 Prince Arghun set out from Soghurluq for
 Khurasan. On the 4th of Rabi‘ II 681 [July 12,
@@ -42495,7 +41998,6 @@ Jüshkäb with the amirs mentioned above with
 
 548
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 his ordus and took Ordu Qaya and Buqdai Aqtachi with himself.
 When he reached Rayy he had the shahna
@@ -42573,7 +42075,6 @@ At dawn the next day, künyanglamishi, the
 first day of Bechin Yil, they took care of Qonqurtai in Qara Bagh in Arran. The ordu was
 cordoned off, and for six days trials were held.
 
-PART TWO, CHAPTER TWO, SECTION FOURTEEN: TÄGÜDÄR KHAN
 
 Küchük Unuqchi and Shadai Aqtachi were
 executed.
@@ -42657,7 +42158,6 @@ This date cannot be correct in view of the date of the
 
 550
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Arghun sent an envoy to Nawroz for a
 Qara’una division under his command to come
@@ -42736,7 +42236,6 @@ having supported Arghun. The next day Hulachu Oghul and a division of soldiers w
 following battle (16 Safar). However, no other ordinal dispatched to Rayy, and all the amirs were ornumber resembles hijdahum (18th) closely enough to be dered to give written pledges that they would
 commonly confused with it.
 
-PART TWO, CHAPTER TWO, SECTION FOURTEEN: TÄGÜDÄR KHAN
 
 not disobey Buqa. They all acquiesced except
 Alinaq.
@@ -42821,7 +42320,6 @@ he was speaking in threats and had belittled
 
 552
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Buqa and aggrandized Aq Buqa in his place,
 Buqa became more tempted to support Arghun.
@@ -42900,7 +42398,6 @@ of his guards, but Bulughan Khatun encouraged him by saying, “The night is pre
 Amir Buqa wanted to discharge his obligations to Abaqa Khan by doing something to
 make Arghun king, so he won over Yesü Buqa
 
-PART TWO, CHAPTER TWO, SECTION FOURTEEN: TÄGÜDÄR KHAN
 
 Gürägän, Aruq, and Qurumshi, who were relatives of his. After that, he made a proposition
 to Tägänä, and after him to Arqasun Noyan the
@@ -42982,7 +42479,6 @@ but he kept Äbügän. That night they seized Altachu Bitigchi’s son Qara Buqa
 
 554
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and some others, and the next day they killed
 some of them and let others go.
@@ -43061,7 +42557,6 @@ here, between Astarabad (modern Gorgan) and Jurjan
 (modern Gonbad-e-Kavus). See Abu’l-Fida, Taqwim, p.
 419.
 
-PART TWO, CHAPTER TWO, SECTION FOURTEEN: TÄGÜDÄR KHAN
 
 Arghun said, “Leave me alone. I don’t want
 to be ruler. I am content with the Khurasan my
@@ -43141,7 +42636,6 @@ edict was therefore issued for Ahmad to be executed in retaliation for Qonqurtai
 
 556
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On the eve of Thursday the 26th of Jumada I
 683 [August 10, 1284], corresponding to the
@@ -43151,8 +42645,6 @@ killed Qonqurtai. “As you judge so shall you
 be judged.” Pacem. [1149]
 Part Three, on his conduct and character;
 the pronouncements and orders he gave;
-incidents that occurred during his reign that
-were not included in the previous two
 sections and were culled from various books
 and persons.
 *The writer of this blessed book says, “During the reign of Abaqa Khan, when calamity
@@ -43213,19 +42705,12 @@ Yil.2 His life span was thirty-three years,3 and
 he reigned for seven years.
 Part One is on his progeny with details of his
 wives, sons, daughters, and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 chart of his sons’ branches.
-Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; [1151] battles he fought and victories he achieved.
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
 not included in the previous two sections but
 learned from various persons. [1152]
 
 wives, sons, daughters, and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 chart of his sons’ branches.
 Arghun was Abaqa Khan’s eldest son. He
 was born of Qaitmish Egächi.
@@ -43271,7 +42756,6 @@ p. 160 and note to p. 964,.
 
 558
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Third was Öljäitü Sultan, whose mother was
 also Örüg Khatun.
@@ -43411,7 +42895,6 @@ good. Otherwise, I will submit to my fate.”
 
 560
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 With this thought in mind he stopped for a few
 days.
@@ -43495,7 +42978,6 @@ eternal felicity. May all my sons—may God
 
 Kor. 41:30.
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 preserve them—pray for me. They have been
 left in God’s care, and God does not lose what
@@ -43578,7 +43060,6 @@ See text p. 1175 below.
 
 562
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On the 27th of Dhu’l-Hijja 684 [February 23,
 1286] ordu Qaya came from the Qa’an’s court,
@@ -43665,7 +43146,6 @@ The river Panj (Пяндж), the upper Oxus that forms
 the modern border between Afghanistan and Tajikistan
 north of Qonduz.
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 vicinity of Sheberghan, had reached as far as
 Khwaf and Sangan.
@@ -43740,7 +43220,6 @@ tion of Baghdad. Although he had nothing else Öläng, where they turned over th
 
 564
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The padishah was highly pleased. On the 4th
 of Jumada I 687 [June 6, 1288] the office of
@@ -43815,7 +43294,6 @@ shunned and avoided his society. Then some
 Mongol amirs were offended again, and since
 Buqa no longer enjoyed the esteem in the people’s eyes he once had, he ceased going to
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 court on the pretext of being ill. It was reported
 to Arghun Khan that Buqa was only pretending
@@ -43895,7 +43373,6 @@ come that night. The next morning Sultan
 
 566
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Idächi informed Arghun Khan that the night
 before a group of riders with arms had been
@@ -43970,7 +43447,6 @@ killed.
 When it came Amir Zangi’s turn, Arghun
 Khan ordered that, since Öljäi Khatun was responsible for him, he be sent to her. Öljäi
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 Khatun ordered him beheaded, saying, [1172]
 “Were it my own son Anbarchi in Zangi’s
@@ -44054,7 +43530,6 @@ happened. “It is my fault,” the emperor said,
 
 568
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “for leaving him alive.” He then ordered
 Täkächäk, who was in the gazig (bodyguard),
@@ -44127,7 +43602,6 @@ to fulfill their promise, an edict was issued that
 they be executed. Jalaluddin was set free;
 Shamsuddin Husayn Alakani and his son Nizamuddin Abubakr the vizier, Sayfuddin Yusuf,
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 Majduddin Rumi, and Fakhruddin Mubarakshah were martyred in Koshk-i-Zar near
 Shiraz.
@@ -44210,7 +43684,6 @@ station Mawlana Qutbuddin Shirazi came to
 
 570
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 court and presented a map of the western sea
 and its gulfs and shores, which included many
@@ -44291,7 +43764,6 @@ Some said that it was caused by the evil eye,
 and alms should be given. Others reported that
 the shamans had seen that the reason for the
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 illness was sorcery, and the accusation fell
 upon Toghachaq Khatun. She was beaten and
@@ -44352,7 +43824,6 @@ would be amazing if he has actually spoken.”
 
 572
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 The amirs differ after Arghun Khan’s
 death, and an account of them during that
@@ -44415,8 +43886,6 @@ knows best, and untimately to him all things
 return.” [1185]
 Part Three, on his conduct and character;
 the pronouncements and orders he gave;
-incidents that occurred during his reign that
-were not included in the previous two
 sections but learned from various persons.
 *Arghun Khan was an intelligent ruler who
 possessed a refined nature. Anyone who spoke
@@ -44425,7 +43894,6 @@ shadow of his clemency. He was extremely
 fond of building and was an avid builder like
 his father and grandfather. On the western side
 
-PART TWO, CHAPTER TWO, SECTION FIFTEEN: ARGHUN KHAN
 
 of Tabriz, in the vicinity of Shamb, which the
 common people call Sham, he built two magnificent palaces and a city between the two.
@@ -44485,15 +43953,9 @@ of Jumada I 694 [March 24, 1295]. He lived for
 ___ years, and the length of his reign was three
 years and ten months.
 Part One is on his progeny with details of his
-wives, sons, daughters and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 chart of his sons’ branches.
-Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; a history of his reign and events
 that transpired therein. [1188]
-Part Three is on his conduct and character;
-the pronouncements and orders he gave; incidents that occurred during his reign that were
 not included in the previous two sections.
 [1189]
 
@@ -44507,9 +43969,6 @@ usually began around January 10th. In the late thirteenth
 century the first of Bahman was probably around January 15th.
 
 Part One, on his progeny with details of his
-wives, sons, daughters and grandsons who
-have branched off down to the present, the
-names of his sons-in-law, and a genealogical
 chart of his sons’ branches.
 Gaikhatu was Abaqa Khan’s second son. He
 was born of Nuqdan Khatun of the Tatar nation. The bakhshis named him Irinjin Dorji.2
@@ -44616,7 +44075,6 @@ Shiktür Noyan was forgiven, they quickly confessed their crimes. [1192] Toghan 
 
 576
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 oned, and Joshi’s and Ordu Qaya’s wives and
 sons wanted to take retribution on him for their
@@ -44775,7 +44233,6 @@ Arran, and his body was taken to Maragha.
 
 578
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On the 13th of Jumada II [May 21, 1293]
 Gaikhatu went to Tabriz. On the 12th of Rajab
@@ -44938,7 +44395,6 @@ against the SÂHIB DÎWÂN until at length they hurled
 
 580
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On Friday the second of Dhu’l-Qa‘da 693
 [September 24, 1294], corresponding to
@@ -45076,8 +44532,6 @@ terms. Then he set out for this region. His history will be contained in the sec
 Khan, God willing. [1203]
 Part Three, on his conduct and character;
 the pronouncements and orders he gave;
-incidents that occurred during his reign that
-were not included in the previous two
 sections.
 ___ [1204]
 
@@ -45112,9 +44566,7 @@ his wives and children, and a genealogical
 Section missing in JTAZ and JTRM; taken from JTK.
 
 chart of his noble branch.
-Part Two is on events leading to his enthronement, a picture of him and his wives,
 sons, grandsons, and commanders at his enthronement; a history of his reign and the battles he fought and the victories he achieved.
-Part Three is on his conduct and character;
 monuments of his justice and beneficence,
 charity, and piety; the pronouncements and orders he gave for the benefit of all people; and
 rare stories and unusual events not included in
@@ -45235,7 +44687,6 @@ page.” Abaqa Khan approved.
 
 584
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Bulughan Khatun had already set out for
 Sughurluq, and Arghun went out a stage after
@@ -45321,7 +44772,6 @@ Daristan considerably east of the Simnan–Damghan line.
 For the Mongolian custom of yaghlamishi, see text p.
 536 above.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 manded, let me go and offer my father a goblet,” said Ghazan. Abaqa Khan assented, gave
 him a bottle of special wine, and told him to go
@@ -45403,7 +44853,6 @@ See text p. 1131 above.
 
 586
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Some time after [the senior] Bulughan
 Khatun died, Arghun married the [junior] Bulughan Khatun who is now alive and settled in
@@ -45485,7 +44934,6 @@ See text p. 1316 below for the marriage of Öljäi Qutlugh to Prince Bistam.
 See text p. 1321. Her name occurs indifferently as
 Kärämü and Kärämün.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 587
 
@@ -45564,7 +45012,6 @@ Gurzuwan in modern Afghanistan.
 
 588
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 also sent him a message with similar contents
 that frightened him into joining him.
@@ -45644,7 +45091,6 @@ Abu’l-Fida, Taqwim, 454).
 4
 Satilmish ~ Satalmish.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 rumors were being spread that he was in league
 with Nawroz, for Nawroz had written letters to
@@ -45728,7 +45174,6 @@ River, which flows from the mountains north of Nishapur to south of Jājarm.
 
 590
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 at court, gave him the village of Zerabad,
 which was enchü, gave him a decree making
@@ -45810,7 +45255,6 @@ Kharjird (modern Khargird) is a few kilometers south
 of Khwāf (now Rād) on the road leading southeast from
 Turbat-i-Haydariyya.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Nawroz had rounded up every quadruped he
 could find in Khurasan—both those belonging
@@ -45899,7 +45343,6 @@ distributed among the soldiers. Toghan went to
 
 592
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the Badghis vicinity and came back. In early
 summer, because provisions were not to be
@@ -45974,7 +45417,6 @@ In 690 [1291] a rumor was heard that many injuries from pitiless nobodies.’ �
 Nawroz was coming with Sarban, Äbügän
 Oghul, Örüg Temür, Yisa’ur’s amirs, and a
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Qaidu was highly pleased by this story,
 showed him great favor, and housed him near
@@ -46059,7 +45501,6 @@ Mashhad.
 
 594
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ordu and the ladies would have to be sent to Isfarayin that night. The next morning, which
 was the first of Rabi‘ II 690 [April 3, 1291], he
@@ -46132,7 +45573,6 @@ p. 5.
 2
 Unknown word, ‫"ی‬#.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 More killing, pillage, and destruction were
 wrought that year in Khurasan than can be described. The city of Nishapur was besieged,
@@ -46214,7 +45654,6 @@ not present, Saighan Ayachi, Mamlaq, and others conspired to make a surprise att
 
 596
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and drive him away. They pursued him until
 they chased him out of Jurjan and Kabudjama.
@@ -46290,7 +45729,6 @@ of the disturbances in Khurasan that a hundred
 maunds of grain could not be purchased for a
 hundred dinars. Khwaja Sa‘duddin was appointed over all the divan chiefs to arrange for
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 the soldiers’ provisions and to collect the taxes
 of Khurasan, Mazanderan, Qumis, and Rayy.
@@ -46372,7 +45810,6 @@ fomenters of strife. They placated the peas-
 
 598
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 antry and sent them back to their labor before
 withdrawing.
@@ -46450,7 +45887,6 @@ Khatun, and the marriage was held there.
 Amir Muhammad Idächi, who had been
 named as amir of Isfahan, arrived and present-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ed suitable gifts. He was warmly received and
 became a member of the court.
@@ -46537,7 +45973,6 @@ arose from the women and men. Out of his great
 
 600
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 clemency the prince forgave the wretches despite the
 enormity of their transgressions and forbade the soldiers
@@ -46621,7 +46056,6 @@ best course for us.”
 When this notion had taken root in their minds, [876]
 she sent Eygü Temür Khatun, a relative and co-religion-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ist of hers, to the prince’s court to convey Nawroz’s regret and repentance. “He is sorry for what he has done,”
 she said, “and hopes for pardon through your clemency.
@@ -46706,7 +46140,6 @@ the amirs Nurin and Qutlughshah and many soldiers, he
 
 602
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 proceeded toward Yazir, Nasa, and Abivard. When he
 reached Kushk and Bir Husayn in the Yazir region,
@@ -46792,7 +46225,6 @@ From there Nawroz turned back with the Qara’una
 troop and turned his reins toward his own yurt. The foe,
 following in the rear like an unforeseen calamity in fear
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 of the Qara’unas, struck the mothers of children. That
 night they camped in Inchkä Su in the vicinity of Sheberghan, and a command was given, saying, “Let no one
@@ -46875,7 +46307,6 @@ It must be a different Sultan Maydan.
 
 604
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ple and went to the great amirs, who sent them
 to court.
@@ -46949,7 +46380,6 @@ and Bir Husayn, bearing the same message that
 Satilmish had delivered. The prince rewarded
 them and left there for Sarakhs, where he cele-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 605
 
@@ -47038,7 +46468,6 @@ Afghanistan.
 
 606
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 there. They gave banquets for several days and
 presented as many gifts as they could.
@@ -47115,7 +46544,6 @@ When he reached Aq Khwaja in Qazwin,
 Shadai Gürägän, who had been sent by Baidu
 and his amirs, came to court and spoke the
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 very sort of words masters of deception and
 dissimulation use. The gist was as follows: “I
@@ -47195,7 +46623,6 @@ kingdom in his royal hand.)
 
 608
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 When Baidu and his amirs saw that Ildär and
 Tükäl, their greatest champions, had been routed, they realized that they did not have the
@@ -47270,7 +46697,6 @@ decided and we can withdraw.”
 Baidu replied to the amirs, saying, “Prince
 Ghazan knows that Arghun Khan considered
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 me too like his own son, and he assigned every
 son winter quarters in some area, to be accompanied by an amir. Taghachar and the Qara’una
@@ -47353,7 +46779,6 @@ Türgän Mürän, Mongolian for “swift river.”
 
 610
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 keep his promise angered the padishah, who
 ordered all the amirs and their troops to go to
@@ -47428,7 +46853,6 @@ want me to be reprehensible in this world and
 castigated and chastised in the next life? My
 love and support for Ghazan Khan are such
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 that so long as his reign continues, they cannot
 change until my life ends, for today he is the
@@ -47504,7 +46928,6 @@ attained the honor of tägishmishi and reported
 
 612
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 what had happened. “There was nothing to be
 done with them but to plead and entreat until,
@@ -47578,7 +47001,6 @@ is omitted from JTAZ and JTRM.
 
 Kor. 33:38.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 was amenable, and Arghun Khan ordered that
 they should exert themselves to the utmost to
@@ -47657,7 +47079,6 @@ Hebrew ‫ )שכינה‬occurs several times in the Koran (2:248;
 
 614
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the ground before him. In truth, the form of an
 idol is worthy of being placed at the threshold
@@ -47733,7 +47154,6 @@ attack. “They sent me,” he said, “to find out
 whether you were headed in that direction or
 not.” Then an order was given for him to be
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 chained and imprisoned in the fortress of Ustunaband at Habalrod.
 On Friday the 15th of Shawwal [August 28,
@@ -47810,7 +47230,6 @@ Nawruz and Qutlughshah arrived, and Bulughan Khatun and the other ladies came fr
 
 616
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Sughurluq and held banquets in the Adiliyya
 kiosk. Qunchuqbal and Chechäk were put on
@@ -47878,7 +47297,6 @@ emperor was too grave and noble to pay attention. When Sögä did finally appear
 was received very warmly and assigned to
 Khurasan. With him in the vanguard were sent
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 the tümän commanders Barula son of Khwaja
 son of Yisa’ur Noyan of the Olqunu’ut tribe
@@ -47960,7 +47378,6 @@ Arends reads these names as Сати сыну Лаодая.
 
 618
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 force and his amir-ordu, and Qurumshi were
 executed. The amirs Qutlughshah, Chupan,
@@ -48036,7 +47453,6 @@ compassion on him and wanted to save him because he was so helpless and miserabl
 came across a well in that region and said,
 “Get into this well so that our soldiers won’t
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 see you.’ When the troop arrived, because it
 was a sandy desert and the wind was blowing
@@ -48119,7 +47535,6 @@ the enemy had been spotted in the meadows of
 
 620
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Radkan. Nawroz mounted, but when it was investigated, the news was found to be false.
 Then he consulted with the officers in Mashhad at Tus, saying, “I intend to raid as far as
@@ -48194,7 +47609,6 @@ JTAZ and JTRM have ‫اول ﺳـــــــﻮم‬, as read by Arends: Ол-
 
 сум. JTK has ‫ اول ﲰﻢ‬for this name.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 written by Qonqurtai’s son Ildär to Baltu
 [1270] urging him to rebel was shown to the
@@ -48278,7 +47692,6 @@ transcribes it as Сепендан.
 
 622
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Khurasan. Also around that time Izzuddin
 Muzaffar, a nephew of the Amid of Fars, informed on the governor of Fars, Shaykh Jamal
@@ -48346,7 +47759,6 @@ to overthrow him and get the throne of the the Shaykhzada Sadruddin and, promisi
 khanate for the Padishah of Islam Ghazan many good things to put his mind at ease, sent
 Khan so that by means of this good service his him to Baghdad to undertake an investigation
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 of Qaysar and find out whether he had come
 from Khurasan or not.
@@ -48427,7 +47839,6 @@ Nawroz’s people, sons, servants, and followers.
 
 624
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 From there the imperial banners decamped to
 Haruniyya. Hajji was about to mount when
@@ -48501,7 +47912,6 @@ Jam, and he dismounted among his herds, ordering his liege men to lie in ambush 
 JTK has Buqai here; it probably should be Toqtai, as
 on text p. 924.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 the walls. At midnight the army arrived. They
 wanted to rustle the horses, but Nawroz and his
@@ -48587,7 +47997,6 @@ the malik thinks best be done.”
 
 626
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 After putting this plan into action, the malik
 went to Nawroz and said, “The soldiers of Herat and Ghor are not performing well in battle.
@@ -48661,7 +48070,6 @@ Sadruddin Zanjani’s station is elevated
 through the killing of Amir Nawroz; the
 imperial banners come from Ala Tagh to
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Tabriz; a magnificent palace is constructed
 in Shamm-i-Tabriz.
@@ -48738,7 +48146,6 @@ of Jumada II [March 30] to denounce me, and I
 
 628
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 began to answer him. The padishah, however,
 shouted at him and said, “He has never reported your words to me.” Then I began to speak,
@@ -48814,7 +48221,6 @@ and destroyed all the remaining churches and
 synagogues. The Padishah of Islam was angry
 and had some of the instigators executed.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 On Monday the 9th of Dhu’l-Qa‘da [August
 18, 1298] Su’unchaq Noyan’s son Sarban died
@@ -48883,7 +48289,6 @@ gifts. [1288]
 
 630
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On Wednesday the 29th of Jumada I [March
 4] a group of Syrian and Egyptian officers,
@@ -48960,7 +48365,6 @@ crops, and harassing the people. They had surUnknown word: JTK ‫ ;ﻋﻮاﱃ�
 
 1
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 rounded Mardin and taken many Muslims prisoner. [1290] During the month of Ramadan
 they had engaged in abominations with the
@@ -49039,7 +48443,6 @@ Taqwim, 269).
 
 632
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 position to put this side at a disadvantage.
 Then, wondering how he could spoil their
@@ -49122,7 +48525,6 @@ princes were known. JTAZ has ‫ـــﮑـــﻮرﺳـــ<ـــﺲ‬E with
 There are massive variants of the first name. The vocalization of the second is highly uncertain. Arends
 reads them as Яман и Муртад.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 five thousand men. The Padishah of Islam
 went after the Egyptians slowly until he
@@ -49208,7 +48610,6 @@ scour the orchards for limbs that could be used
 
 634
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 in catapults for taking the citadel, a group of
 kötälchis [grooms]—Armenians, Georgians,
@@ -49285,7 +48686,6 @@ The reading of this word is questionable. Texts all 13] a quriltai was commenced
 tates,’ but it is by no means clear that this is the correct [August 20, 1300], Prince Alchu died in Ujan.
 reading.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 His coffin was taken to the Lofty Dome in
 Tabriz.
@@ -49364,7 +48764,6 @@ enemy had arrived. An order was given for the of Siffin, A.H. 37/A.D. 657. See T
 
 636
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 On Thursday the 11th of Rajab [March 22,
 1301] Sultan Yesavul arrived from Syria. On
@@ -49437,7 +48836,6 @@ two were innocent. On Monday the 23rd of
 Dhu’l-Hijja [August 29, 1301] Qazi Sayin,
 lām) as the seat of the “Padishah of Islam.”
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 637
 
@@ -49510,7 +48908,6 @@ matters of state.”
 
 638
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 beasts. When they were between the walls with
 no exit, they all necessarily went into the corral, and the Padishah of Islam and Bulughan
@@ -49583,7 +48980,6 @@ to express our gratitude for this great gift together without hypocrisy and to e
 with humility, pleading for forgiveness of our
 sins. Let us begin with a recitation of the glori-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ous Koran and by performing an act of worship; then we may indulge in sport and play.”
 Having expressed these pure sentiments, he
@@ -49659,7 +49055,6 @@ See text p. 1221 above.
 
 640
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 group of courtiers had been left in a field without a tent, and they slept under a cliff opposite
 which a shady tree had grown. Before Lagzi
@@ -49731,7 +49126,6 @@ the vicinity of Sib,1 Wasit, and the shrine of
 This “Sīb” may be the same as the Bata’ih Sib mentioned above on text p. 936 or the Sib Wahla mentioned
 on p. 926. They are all in the same general vicinity.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Sidi Abu’l-Wafa. He visited the shrine and rewarded the residents with alms and gifts. He
 also ordered improvements made along the
@@ -49815,7 +49209,6 @@ JTK has ‫ ـﺎ‬V‫( در‬darajhá, steps, terraces); JTAZ has ‫ ـﻬ 
 
 642
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 and at a width of a league or more on both
 banks of the Euphrates there are so many contiguous flourishing places that the shade of the
@@ -49893,7 +49286,6 @@ citadel. Good news came from Khurasan that
 Qaidu’s soldiers had been routed, Qaidu was
 dead, and Dua was wounded.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 During this time Amir Qutlughshah, Chupan,
 and Mulai had crossed the Euphrates with their
@@ -49974,7 +49366,6 @@ The reading of this name is uncertain. In the text it is
 
 644
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 stood until around noon, but after that they retreated. In their way was a lot of water and
 mud, and many of the horses got stuck and the
@@ -50045,7 +49436,6 @@ elephants. The people of the city turned out in
 droves, men and women, to watch and pray for
 his health. That night he stopped in Baghistan
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 in Tabriz, and the next day he proceeded on the
 road to Ujan. [1317] He was, however, unable
@@ -50123,7 +49513,6 @@ Reading, with JTAZ, ‫ﺎﰉ‬b (Jäbäi) for JTK’s ‫ﺎﱏ‬d.
 
 646
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Bulghari, and Sayyid Kamaluddin Tamamat.
 Shaykh Rashid was Sadruddin Zanjani’s
@@ -50197,7 +49586,6 @@ some way that his rank and station would be
 increased and his magnificence would be even
 greater. Since the reins of the fiscal affairs and
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 administrtion of the empire had already been
 put into his capable hands—and it was impossible to imagine anything greater than that—
@@ -50277,7 +49665,6 @@ advances day by day. It is best to content one-
 
 648
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 self with what God has allotted, for if people
 lived more than eighty years, their organs
@@ -50349,7 +49736,6 @@ hour,”1 in the late afternoon on Sunday the
 
 Kor. 7:34.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 11th of Shawwal 703 [May 17, 1304] his pure
 spirit was translated from the mortal world to
@@ -50426,7 +49812,6 @@ Hamadan, and the vows he made in the
 
 650
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 provinces; (14) his elimination of forgeries and
 false claims, and his elimination of the treachery of the dishonest; (15) he eliminates the
@@ -50499,7 +49884,6 @@ retake territory Baidu had seized, inasmuch as
 God had foreordained him for happiness and
 destined that the rule be his, that through di-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 vine assistance he should make manifest traces
 of justice and equity in the world, rectify
@@ -50574,7 +49958,6 @@ such perfection. Its body has turned to dust and
 
 652
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 is worthy of being a threshold to be stepped
 on.’
@@ -50650,7 +50033,6 @@ Text has ‫ــ ـﺪد‬
 ‫ﺴ>ﻨﺪد‬j‫ر ﻧﺒﺎﺷﺪ اورا ﺑ‬g ‫ آن‬# ‫ﲢﻴﻞ‬.
 1
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 foolishness, he immediately recognizes his depth. As an example of this, let us tell the following story.
 In Khurasan was a person named Hibatullah
@@ -50725,7 +50107,6 @@ they ate and wore, and what they rode. He also
 
 654
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 knew what their other conditions were and are
 now. He would explain all this in detail to each
@@ -50800,7 +50181,6 @@ added twenty-four non-compound medicines
 that had been tested and were known to all for
 being antidotes, each of which was by itself an
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 absolute antidote. He tested that antidote and
 found it extremely beneficial, and it became
@@ -50875,7 +50255,6 @@ pp. 1377ff. below.
 
 656
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 other men’s wives with lust. In all the times he
 went to conquer Syria, he paid no attention to
@@ -50948,7 +50327,6 @@ report would take too long.
 Nawroz mutinied against him in Khurasan,
 and although he was a servant of the court, he
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 attacked and surrounded the ordus, as has been
 reported in the history. He also attacked several
@@ -51026,7 +50404,6 @@ he banished from court.
 
 658
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Those who knew his nature, who avoided
 speaking evil and stirring up strife, and who
@@ -51100,7 +50477,6 @@ has shown that every time he spoke in seriousness or in sport it happened likewi
 predict that a certain thing would happen to
 someone, or that an envoy of a certain descrip-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 tion would come from someplace, or that a
 prisoner of a certain look would be brought, or
@@ -51173,7 +50549,6 @@ ha had been stolen by the guards over time, was nothing in the treasury. People 
 
 660
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 lieve that the treasury could be so empty and
 attributed it to the emperor’s negligence and
@@ -51250,7 +50625,6 @@ officers gave it away accordingly.
 In recent years he said, “Once upon a time
 the officers gave everything. I too have a desire to give something myself.” During a quril-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 tai in Ujan he ordered the great court tent
 pitched and all the treasures that had been
@@ -51330,7 +50704,6 @@ will be leveled.’
 
 662
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “If we and you are inclined to wealth, generosity, and gift giving, we must practice justice and truth, for it is a characteristic of justice
 that to the extent that we know where the money comes from that fills the treasury, no matter
@@ -51407,7 +50780,6 @@ a temple and put his own image on the walls.
 Now that it is in ruins, snow and rain fall on
 the images of your father, who was an idolater.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 If that place were restored, your father’s soul
 would rest in peace, and his good name would
@@ -51486,7 +50858,6 @@ Story Nine: The Padishah of Islam’s
 
 664
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 bravery, his tactical deployment of the army
 during engagements, and his persistence in
@@ -51565,7 +50936,6 @@ array, as was the custom of kings, where no
 
 See text p. 1264. for this episode.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 one would know where he was. Contrary to
 this, he came forward boldly, positioned the
@@ -51648,7 +51018,6 @@ chaos and disagreement may erupt, another en-
 
 666
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 emy may attack from another direction, there
 may be a rumor of some event, or they may
@@ -51724,7 +51093,6 @@ great and important of these classes came to
 court for a quriltai he said, “You have put on
 the garb of advocacy, and this is a mighty af-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 fair. You do not make this claim with the people, however; you make it with God. It is possible that the people will accept your claim for
 a few days while they are not aware of what
@@ -51799,7 +51167,6 @@ have no effect on me, and the fire of my wrath
 
 668
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 will be kindled against you, and this will result
 in loss for me, for you, and for the people in
@@ -51864,7 +51231,6 @@ ly they returned unsuccessful, they would say, Previously the Mongol emperors an
 “It must have been God’s will, for we did our the Padishah of Islam’s ancestors and forebears
 best and fought with all our strength.” Such liked to build. They began buildings, [1370]
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 but they seldom completed them, as has been
 seen. Everywhere they laid a foundation enormous amounts were spent. Tapqur funds, animals, tools, and hired workers were brought
@@ -51939,7 +51305,6 @@ in endowment to the shrine, [1372] and he purchased with his own money the rest 
 
 670
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 lages that were constructed and endowed them
 all to the Abwabu’l-birr in Tabriz.
@@ -52008,7 +51373,6 @@ there are so many people that they run out of
 room and have to build houses of two and
 three stories. The lanes become narrow, the
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 walls become high, and the air becomes putrid,
 and for that reason contagion appears, all sorts
@@ -52087,7 +51451,6 @@ at Tus in Khurasan and went to the mausoleums of Sultan Bayazid, Abu’l-Hasan K
 
 672
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 raqani, Shaykh Abu-Sa‘id Abi’l-Khayr,1 and
 others, [1376] where he witnessed the arrangements for those holy sites and how the inhabitants were. After that, when he became Muslim, he visited the blessed shrine of the
@@ -52160,7 +51523,6 @@ a dodecahedron.
 The khaṭīb is a mosque official whose duty was to
 pronounce the khuṭba, the Friday sermon.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 Observatory
 Carpets, rugs, cost of tallow, grain, and perfume;
 salaries for teacher of philosophical sciences, drill
@@ -52249,7 +51611,6 @@ sities.’
 
 674
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 FOR THE DESERVING
 
 Every year two thousand sheepskin coats will be
@@ -52319,7 +51680,6 @@ of Safed Koh, in the village of Buzinjird, he
 built a major khanaqah [1385] and endowed it
 with much property. Travelers find rest and repose there, as all can witness.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Furthermore, in every province he went to
 and every time he beseeched God’s court for
@@ -52401,7 +51761,6 @@ Sylistically the texts of the following edicts contain a
 
 676
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Text of an edict on the delegation of judicial
 authority.
@@ -52478,7 +51837,6 @@ In territories dependent upon the province of
 N.___ and included in its judicial jurisdiction, in
 places that are far from the city and worthy of having a judge appointed, a trustworthy magistrate
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 should be appointed, and in accordance with the
 foregoing a pledge should be taken from him, and
 every month he should tend to their affairs in order,
@@ -52506,7 +51864,6 @@ Text of edict ordering that thirty-year-old claims
 not be heard, under the conditions listed.
 In the name of God, the Compassionate, the Merciful, and by the might of God and the auspiciousness
 of the Mohammedan nation.
-Decree of Sultan Mahmud Ghazan.
 Be it known to judges of the realm that our entire
 mind is concentrated upon the elimination of injustice, aggression, and false claims from the people
 so that the world and those in it may spend their
@@ -52564,7 +51921,6 @@ nothing beyond the scope of this order and pledge
 
 678
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 on the reverse. If they contravene this order, they
 will be dismissed from the judgeship and be labeled as criminal. Let them know for certain that I
@@ -52640,7 +51996,6 @@ apparent rightfulness, and if a period of a full thirty
 years passes and the first party does not make a
 claim against the other who is the usurper, he will
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 not thereafter be entitled to bring suit, and the
 judge will not accept to hear the case. [1395]
 Now, I, who am N.___, judge and competent to
@@ -52661,7 +52016,6 @@ Text of edict on proving a seller’s ownership
 prior to sale.
 In the name of God, the Compassionate, the Merciful, and by the might of God and the auspiciousness
 of the Mohammedan nation.
-Decree of Sultan Mahmud Ghazan.
 Be it known to all basqaqs, maliks, judges, bitigchis, deputies, authorities, nobles, elders, and all
 subjects of the province that, in accordance with
 the Koranic text, “O David, we have made thee a
@@ -52718,7 +52072,6 @@ Now, since deeds and titles are considered sufficient evidence, and legal posses
 
 680
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 est weight in the eyes of the law, if duplicate or invalid deeds proliferate in everyone’s hands, to base
 a claim on such things becomes suspect and doubtful. Since certain evil persons are inclined to practice fraud, the best thing to do is for seller and buyer both to go before a judge at the time of sale and
@@ -52797,14 +52150,12 @@ judges of that place and take from them and send a
 pledge to this effect according to the draft we have
 sent. Now, N.___ and N.___ must summon the
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 judges of that place, take a pledge from them in accordance with the draft that has been sent, and send
 it in the company of these messengers. Written in
 the city of ___ in the year ___. [1400]
 Text of edict reaffirming prior orders.
 In the name of God, the Compassionate, the Merciful, and by the might of God and the auspiciousness
 of the Mohammedan nation.
-Decree of Sultan Mahmud Ghazan.
 Be it known to the judges of the realm that, inasmuch as we realize that the smooth functioning of
 the world and those in it depends upon the regulation of legal affairs, prior to now we sent an edict
 to all parts of the realm from the Oxus to the borders of Egypt concerning redress of breaches in the
@@ -52874,7 +52225,6 @@ fear the enormity of such negligence. It happens
 
 682
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 that a case may be critical in and of itself, and if a
 decision is rendered without the truth of the situation having been reached and without precaution
@@ -52946,7 +52296,6 @@ be objected to or challenged, and to it was added an
 appropriate exhortation containing many beneficial
 points. They gathered the models in one volume,
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 and outstanding learned men gave their signatures
 to certify the soundness thereof. When the desideratum was presented, copies were made and sent to
 all parts of the realm so that every type that needed
@@ -53027,7 +52376,6 @@ writer will all be fined and admonished.
 
 684
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Item. Inasmuch as it is obvious to all that in these
 orders that are being executed we have no view
@@ -53098,7 +52446,6 @@ seen those deeds, or they may have been lost or
 pillaged during times of unrest. They may even
 have been stolen from their ancestors and given to the seller, who, knowing that they did not
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 have a record of transfer, brought suit based on
 his old deed and had it validated. There were
@@ -53176,7 +52523,6 @@ court officials, and they instigated claimants,
 
 686
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 encouraged them with promises, and then neglected the cases or left them in abeyance for
 months or even years. In the interim they made
@@ -53250,7 +52596,6 @@ how to reform it by giving an order and appointing trustworthy messengers to ann
 in every territory where there was a fraud
 whose imposture was obvious that others not
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 be allowed to hide or protect him. Those
 whose situations were obvious were summoned at once and executed when their guilt
@@ -53327,7 +52672,6 @@ A governor would levy qubchur on the peas-
 
 688
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ants ten times a year, though in some places
 qubchur was levied twenty or thirty times. It
@@ -53404,7 +52748,6 @@ the vizier would be served, and he would gain
 his object. Because of the conspiracy between
 the provincial governors and the vizier, and because they always took the vizier’s part, the
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 governors grew bold and audacious enough to
 commit all sorts of injustice and outrage. Every
@@ -53481,7 +52824,6 @@ have been recorded in the auditor’s register.
 
 690
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Given that one qubchur did not produce a lot
 of money, and taking into consideration that
@@ -53561,7 +52903,6 @@ the villages and not see a soul he could speak
 to or ask the way. The few who remained had
 stationed lookouts, and when they saw anyone
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 approaching from afar, they would spread the
 word, and everyone would hide in the subterranean water channels or in the sands. When
@@ -53634,7 +52975,6 @@ defend them from these injustices, it had never
 
 692
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 worked, and the general population had
 despaired.
@@ -53708,7 +53048,6 @@ clerks went to the provinces. Despite the fact
 that honest and trustworthy men are few and
 far between, they strove their utmost to record
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 the tax rolls of the provinces and bring them
 back.
@@ -53791,7 +53130,6 @@ they think they can requisition it? This time we
 
 694
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 will overlook it, but if they do any such thing
 again, we will have them executed.”
@@ -53867,7 +53205,6 @@ issue so many billets from the Supreme Divan
 that provincial funds get eaten up by demands,
 and deputies and viziers of the age should not
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 be negligent in their overseership by allowing
 governors to issue billets. Never again should
@@ -53894,7 +53231,6 @@ Divan and forwarded and that maliks and
 governors of provinces never write billets.
 In the name of God, the Compassionate, the
 Merciful.
-Decree of Sultan Mahmud Ghazan.
 Be it known to basqaqs, maliks, deputies, administrators, judges, sayyids, imams, comptrollers, lords,
 grandees, headmen, elders, and all subjects and
 peoples of cities and provinces from the River
@@ -53953,7 +53289,6 @@ Kor. 43:22.
 
 696
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 they themselves and their evil agents and captains
 carried it off so that not only did the divan and
@@ -54031,7 +53366,6 @@ the divan do not know what the base tax of the assessments of any village is in 
 
 Kor. 22:73.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 know how much it is? Naturally they listen to the
 words of the administrator and persons who have
 vested interests. They accept the administrator’s
@@ -54113,7 +53447,6 @@ and if anyone’s contract or deed is lost, they can issue a copy from there.
 
 698
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 We have placed one copy of the tax rolls in the
 Supreme Divan and one in every province and put
@@ -54191,7 +53524,6 @@ gate of every place subject to customs so that they
 can be paid by installment. Let no one create any
 innovation, and let assignors of fiefs not take more
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 than the fees on a pretext that the customs have
 been increased, and let them not establish any new
 custom. [1439]
@@ -54282,7 +53614,6 @@ Kor. 2:181.
 
 700
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 cord with what has been fixed and recorded on the
 back of this edict. Let this be done soon, and anyone who fails will be indicted.
@@ -54358,7 +53689,6 @@ from practicing violence and excess by following his excellent example.
 Every time his exalted mind imagines that
 one of the amirs or soldiers has used force or
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 excess in a province, he has minor amirs indicted and beaten and grand amirs put on trial
 and admonished. One day he said, “I am not
@@ -54429,7 +53759,6 @@ send envoys to attack the other heirs. Since
 
 702
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 such envoys had lifelong employment, other
 people took after them until it became a career
@@ -54502,7 +53831,6 @@ lords traveling on some urgent mission. Those
 who manned the post stations, governors, and
 village headmen knew full well that it was a
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 bald-faced lie. If a real envoy happened to
 travel on important business, he had very little
@@ -54583,7 +53911,6 @@ and with the emperor’s own gold seal.
 
 704
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Every post station was entrusted to a great
 amir, and to defray their expenses designated
@@ -54657,7 +53984,6 @@ in any locale. When they arrive at their destination they will be fed from a spe
 Thus any envoy who was assigned to a
 province was given cash from the treasury to
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 cover his provisions on the way. This became
 known in all provinces and locales, and when
@@ -54738,7 +54064,6 @@ nomads and villagers. Many people knew
 
 706
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 about it, but they would not reveal it; and even
 if it was occasionally discovered, it would not
@@ -54817,7 +54142,6 @@ If a robbery occurred, the patrolman nearest to
 the location would have to capture the thief;
 otherwise he would be responsible for the
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 amount stolen. Written pledges to this effect
 were taken from all the patrolmen, and they
@@ -54893,7 +54217,6 @@ actually] never more than 7:10 or 8:10. The
 
 708
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 aqchas of Anatolia, which were relatively better than those of other places, degenerated to
 the point that not more than two out of ten dinars had the standard amount of silver—all the
@@ -54970,7 +54293,6 @@ Thereby, if an iota of adulteration is present it
 will show up in the color and softness. If it is
 heated in a flame it will immediately be obvi-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ous, and anybody will be able to judge its
 worth.
@@ -55053,7 +54375,6 @@ The Cambridge History of Iran 5:495.
 
 710
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 so that no one would clip them. When coinage
 was standardized throughout the realm, the
@@ -55118,7 +54439,6 @@ Text of the edict the emperor decreed on the
 gold and silver standard in the best way.
 In the name of God, the Compassionate, the
 Merciful.
-Decree of Sultan Mahmud Ghazan.
 Be it known to shahnas, maliks, bitigchis, deputies,
 judges, sayyids, imams, sadrs, grandees, those in
 authority, the eminent, residents in general, travelers, and merchants of the realm that our regal mind
@@ -55133,7 +54453,6 @@ are rife among the general population. We desire to
 unburden them of all sorts of fraud and injustice so
 that they may be freed in this world from sedition
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 and strife and in the next world from torment and
 hell fire.
 Lately, when we have been investigating fiscal
@@ -55220,7 +54539,6 @@ grams. The dirhem weight is 3.2 grams. See Hinz, Islamische Masse, 18.
 
 712
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 gol garrisons, merchants, and strangers go to
 provinces to collect and purchase divan supplies,
@@ -55308,7 +54626,6 @@ here. The gaz is both the yard (equivalent to around 95
 cm) and the ell (equivalent to the canonical ell of 49.875
 cm).
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 amounts: precaution should be taken before
 preparing drafts for such things. Then, together
@@ -55385,7 +54702,6 @@ This is so that it may be clear at what time and
 
 714
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 by what person they were sealed. With such
 elaborate arrangements how can there be any
@@ -55457,7 +54773,6 @@ years, the custom was to give each one a
 badge, and after leaving office each one would
 consider the badge his own and use it to dispatch people anywhere on personal business.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 For shahnas and maliks of middle rank a
 smaller badge was designated with a special
@@ -55527,7 +54842,6 @@ and the fiscal administration of the realm and their protectors, so many conflic
 
 716
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 were constantly being issued that it is beyond
 description. Thus they spent their days, and
@@ -55603,7 +54917,6 @@ shape. Anyone who possesses a badge must bring it
 in within six month so that we can give a new
 badge to any who merits one. After six months any-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 one caught possessing an old badge will be arrested
 and convicted, and his badge will be taken from
 him.
@@ -55685,7 +54998,6 @@ at least originally, it had something to do with clothing
 
 718
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 After witnessing this situation for four or five
 years, the emperor ordered that in every
@@ -55766,11 +55078,9 @@ when snow melts and then refreezes, or when frost
 freezes hard, effectively rendering the underlying pasturage unavailable to grazing animals. The phenomenon
 is called жут in Kazakh and Kyrgyz.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 Text of the edict giving fiefs to the Mongol army.
 In the name of God, the Compassionate, the Merciful, and through the power of God and the auspices
 of the Mohammedan nation.
-Decree of Sultan Mahmud Ghazan.
 Be it known to mothers, grandsons, khatuns, sons,
 daughters, sons-in-law, commanders of tümäns,
 hazaras, sadas, and dahas, sultans, maliks, bitigchis, and the generality of the population of all
@@ -55846,7 +55156,6 @@ demesnes] and dalai [state property], farms both
 
 720
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 flourishing and in ruins as recorded in the registers
 and tax rolls be selected (ilghamishi) and assigned
@@ -55924,7 +55233,6 @@ that they will not undertake any of the sorts of injustice previously practiced,
 Unknown word in the text, ‫ـﺮاﱏ‬E; there are several variants, but none helps. JTRM omits the word.
 2
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 bent that they keep their word and not demand
 anything in the name of tuzghu, alufa, taghar, &c.
 Next, it is established that under no circumstances will billets be written from the divan
@@ -56000,7 +55308,6 @@ year and fall into arrears, or make excuses, or send
 
 722
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 another to the chärig instead of themselves, they
 too will be considered criminal.
@@ -56073,7 +55380,6 @@ present and accounted for. The Padishah of Islam gave them bonuses, allowances, 
 They, and the hazara of the qol, which gradually came to number two or three thousand,
 and the gäzigtäns are in attendance.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 For the past many years there has been contention and strife among the urughs of Jochi,
 Chaghatai, and Ögödäi, i.e. the cousins of the
@@ -56150,7 +55456,6 @@ was maintained, and there were the amirs, ministers, and viziers of his father a
 
 724
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 who came to power during his reign. At that
 time some ortaqs [merchants] invested their
@@ -56222,7 +55527,6 @@ The amazing thing is that if we imagine a
 thousand men stacking their full arms somewhere, it would make a pile as high as a mountain and wouldn’t fit in a hundred storehouses.
 Ten thousand horses can scarcely fit in a field;
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 how then could two or three hundred thousand
 men with arms and several hundred thousand
@@ -56302,7 +55606,6 @@ their expenses.
 
 726
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “We keep nothing hidden from you,” the
 swindlers told the lenders. “Since we owe you
@@ -56378,7 +55681,6 @@ due, and so they avoided taking that job. When
 swindling beggars saw that they could exchange ten years of poverty-stricken life for
 ten days of kingly luxury, they borrowed mon-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ey on interest, paid it in bribes, and got the
 governorships of provinces, thereby attaining
@@ -56458,7 +55760,6 @@ bureaucracies.
 
 728
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 nars, he got not more than six, and it was the
 divan’s money he was wasting.
@@ -56537,7 +55838,6 @@ pay for it.”
 Another time it was reported to him that
 some needy people had urgent requests for
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 loans to transact business. “Why does someone
 who does not have the money to cover his travel expenses come here?” he asked. “What use
@@ -56613,7 +55913,6 @@ from her without any debate or constraint.
 
 730
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 “People also have children, and child support
 is incumbent upon fathers. They also have to
@@ -56685,7 +55984,6 @@ him. Thereby he will be warned and constrained.” According an edict was herald
 Ummu’l-khabā’ith, ‘the mother of abominations,’ the
 common Islamic appellation of wine and intoxicants.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 present no one dares to come into the street
 drunk, much less engage in drunken quarrels.
@@ -56759,7 +56057,6 @@ provisioning was like under such an arrange-
 
 732
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 ment. Food and wine were transported with
 loathing, and there were even disputes about
@@ -56837,7 +56134,6 @@ from their increase. Funds for their meals and
 necessities came from those sources, and they
 were satisfied with that.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 Toward the end of Abaqa Khan’s time a
 small ash tax was instituted, and after that, during Arghun Khan’s time, funds were earmarked for every ordu, with payment assigned
@@ -56916,7 +56212,6 @@ whole thing was so disorganized that there was
 
 734
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 not even a tent: they simply piled things in the
 open and covered them with felt. From this one
@@ -56995,7 +56290,6 @@ once a year the vizier conducts an inspection to
 see whether what has been deposited in the
 treasury is still there or not—as a precaution-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ary measure lest, for any one of many reasons,
 treasury funds be depleted.
@@ -57063,7 +56357,6 @@ treasury. May God cause these blessings to extend throughout his imperial days.
 
 736
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Story Thirty-Three: He organizes the arms
 workshops and armories.
@@ -57141,7 +56434,6 @@ When a comparison was made, it was found
 that now not more than a half of what used to
 be spent on provisions and salaries for craftsmen was earmarked for arms. Thus the expen-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 ditures that used to be made in the provinces
 ceased completely.
@@ -57223,7 +56515,6 @@ guards and shepherds who were exempt from
 
 738
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 taxes—not one was to be found. They made
 excuses, saying they had died in the cold or
@@ -57300,7 +56591,6 @@ ambiguous: both bars and yūz can refer to a variety of
 large hunting felines such as leopards, panthers, and
 cheetahs.
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 or leopards they would take two or three times
 what was allotted for their pay and supplies in
@@ -57378,7 +56668,6 @@ and scattered the birds.” If anyone passed by
 
 740
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 the vicinity of that preserve, they would take
 his horse and clothing or large amounts of
@@ -57439,7 +56728,6 @@ winter, vouchers for provisions with the gold
 seal would be issued against the tax remittances of those places. Since, aside from feed,
 there would be need for doves and chickens
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 when the falcons were bavli [in training] or injured, provisions for chickens and doves for
 royal falcons would also be made in the vouchers as needed. They would be kept in cages,
@@ -57513,7 +56801,6 @@ mentioned in several places previously gave no
 
 742
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 thought whatsoever to the necessity of giving
 the divan’s money back and considered it absolutely their own. The first year they squandered those funds, and at the end of the year,
@@ -57584,7 +56871,6 @@ taking of a sheep, and forbidding the taking of
 a cow would be even more impossible, and so
 on.” An imperial decree was issued that every-
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 where there was a dovecote, hunters absolutely
 must not set traps in the area.
@@ -57657,7 +56943,6 @@ is clear what the rate of devastation of the
 
 744
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 provinces would be if those projects had been
 completed.
@@ -57732,7 +57017,6 @@ After that, he had contracts and edicts written
 with the following stipulations. State properties
 that were long untended and villages and farms
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 that were not cultivated at the time of his accession would all be classified as fallow. He
 had contracts written and sealed with the gold
@@ -57807,7 +57091,6 @@ presumably an estimated tax on produce.
 
 746
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 tracts to people, and vast improvements have
 been made and continue to increase day by
@@ -57879,7 +57162,6 @@ must be that on a day an elchi arrived in town (with his
 retinue), the chärbi would assign some two hundred
 1
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 end, they would quarter them in the houses of
 persons against whom they had a grudge to put
@@ -57959,7 +57241,6 @@ sultan was passing, and his gaze fell upon her.
 
 748
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 He summoned her and asked, ‘How is it that
 you, a young woman, are leading a horse to
@@ -58038,7 +57319,6 @@ the power to resist them, he never thought it
 worthwhile to argue with them because [their
 patrons] would be offended, and they thought
 
-PART TWO, CHAPTER TWO, SECTION SEVENTEEN: GHAZAN KHAN
 
 it was their privilege to have their muleteers,
 camel drivers, and couriers act like this.
@@ -58115,7 +57395,6 @@ will not be possible to forbid it all at once.
 
 750
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Gradual effort must be made so that it may be
 slowly eliminated. Now, women who are not
@@ -58209,7 +57488,6 @@ here, Fesere asara-) + the Turkish participial suffix -mish + the Persian abstra
 
 752
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 a’ughruq, a’uruq
 ayalghu (FeyelgO)
@@ -58397,7 +57675,6 @@ fountain, tribal branch (1072).
 
 754
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 hula’an (folegea)
 huljamishi
@@ -58571,7 +57848,6 @@ a regimental band of drums and clarions; the sounding of drums at certain times 
 
 756
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 narin (Neria)
 na’ur (nego*)
@@ -58754,7 +58030,6 @@ gift, donation (1428, D§211).
 
 758
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 sawqat (Seo(T)
 shahna1 (‫)ﴮﻨﻪ‬
@@ -58958,7 +58233,6 @@ yurt
 yurtchi
 yut
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 = yasa.
 sergeant (90, D§1863).
 bone; family; descent (155n).
@@ -59055,7 +58329,6 @@ dinastie des Mongous ses successeurs, conquerans de
 
 762
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 la Chine; tirée de l’histoire chinoise, et traduite.
 Paris: Briasson, 1739.
@@ -59223,7 +58496,6 @@ London: J. M. Dent & Sons, 1951.
 
 764
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Waldron, Arthur. The Great Wall of China: From History to Myth. Cambridge: At the University Press,
 1992.
@@ -59386,7 +58658,6 @@ and introduction by Mujtabā Mīnuvī. Tehran: Intishārāt-i Dānishkada-i Adab
 
 766
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Vaqfnāma-i Rab‘-i Rashīdī: al-Waqfiyya al-Rashīdiyya
 bi-khaṭṭ al-wāqif fī bayān sharā’iṭ umūr al-waqf
@@ -59633,7 +58904,6 @@ Achu (~ Achuqan), Amīr gs/
 
 766
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Sübädäi Bahadur (Uriangqat)
 156, 199, 898
@@ -59949,7 +59219,6 @@ Aq Temür s/ Qonqurtai (Hül.) 968
 
 768
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Aqbaligh. See Hanzhong and
 Zhendingfu.
@@ -60266,7 +59535,6 @@ Bai Taraq Belchir 366, 389
 
 770
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Bai Temür s/ Chaghatai (Arulat)
 75, 887, 1220, kills Sögä 1263
@@ -60584,7 +59852,6 @@ bodakür 242, 292
 
 772
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 bodatu 244, 292
 Bodonchar Doqolan s/ Tumina
@@ -60902,7 +60169,6 @@ Cathay (China north of the Yellow
 
 774
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 River) 62, 66f, 76, 78, 80f, 105,
 112, 115, 129, 131, 134, 137,
@@ -61219,7 +60485,6 @@ Damietta 484f, 859
 
 776
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Damrila 547
 Damyak 432
@@ -61536,7 +60801,6 @@ Erzinjan 933, 1287
 
 778
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Erzurum 407, 438, 652, 1262
 Esän Bökä s/ Tuq Temür (Chagh.)
@@ -61851,7 +61115,6 @@ Habul 1297
 
 780
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Hadargin clan 44, 201, 245
 Ḥadītha 1003, 1050, 1310
@@ -62167,7 +61430,6 @@ Irinjimma Khatun (Ushin) 940
 
 782
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Irinjin Dorji. See Abaqa Khan.
 Irinjin, Amīr s/ Saricha (Kerayit)
@@ -62484,7 +61746,6 @@ Jüshkäb s/ Jumghur (Hül) 623, 966,
 
 784
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Jusuq (Jä’üriyät) 205, 603
 jusur 198
@@ -62800,7 +62061,6 @@ Kököchü Qirsa’u 392
 
 786
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Kököchü s/ Qubilai Qa’an (Tol.)
 868, 892f, 897, 913, 947, 949,
@@ -63114,7 +62374,6 @@ Mänggü Temür. See Möngkä
 
 788
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Temür.
 Mänggügän d/ Hülägü Khan 102,
@@ -63431,7 +62690,6 @@ Münglig Echigä (Qonqotan) 120,
 
 790
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 595, 598, 601, 608, 792, 943
 Mungqur Jätä 77
@@ -63748,7 +63006,6 @@ Nūruddīn Jarangi 1102
 
 792
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Nūruddīn Muḥammad s/
 Mujiruddin Qara Arslan (d.1185)
@@ -64064,7 +63321,6 @@ Pishkila 988
 
 794
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Poles 741
 Polo, Marco 40n, 297n, 299n,
@@ -64381,7 +63637,6 @@ Sulaymān 429
 
 796
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Qilich Qara (Qalach) 120, 398
 Qilich s/ Sulaymān 430
@@ -64699,7 +63954,6 @@ Quṭbuddīn, Qāzī, Quṭb-i-Jahan
 
 798
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 1196, executed 1284, 1410
 Qutlu Khatun (Qunqirat) 940
@@ -65015,7 +64269,6 @@ Samarqand (Sangar Qum, Qum
 
 800
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Sängir) 735, 808f, 838, 965
 Sambai Tun 99
@@ -65331,7 +64584,6 @@ of Ghor 352, 403, 405, 407, 428,
 
 802
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 430, 433
 Shihābuddīn Zanjani 1017
@@ -65648,7 +64900,6 @@ Tägüdär Aḥmad s/ Hülägü Khan
 
 804
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 606, 967, 986, 1064, offspring
 1122–23, reign 1124–49
@@ -65966,7 +65217,6 @@ Ahmad Tägüdär 1122, 1134,
 
 806
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 1141, 1144, 1147, 1152, marries
 Arghun Khan 1163
@@ -66280,7 +65530,6 @@ Turanshāh s/ Toghrilshāh 352
 
 808
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Turaqun Singut 335
 Turatu Gürägän s/ Tona (Qorolas)
@@ -66591,7 +65840,6 @@ Yangichar s/ Qaidu (Ög.) 627, 714
 
 810
 
-JAMI‘U’T-TAWARIKH: COMPENDIUM OF CHRONICLES
 
 Yangikent, 492, 494, 576
 Yangtse River 851f, 854, 871, 899

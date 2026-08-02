@@ -1,8 +1,5 @@
 # Benefits and Secrets of Fasting
 
-> 来源: Benefits and Secrets of Fasting.pdf
-> 提取于: iSlam/伊斯兰法学（教法）/Benefits and Secrets of Fasting.pdf
-
 Benefits and Secrets of Fasting
 
 Introduction:

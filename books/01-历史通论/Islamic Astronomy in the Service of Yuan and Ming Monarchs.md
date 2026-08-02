@@ -1,9 +1,5 @@
 # Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
-> 来源: Islamic Astronomy in the Service of Yuan and Ming Monarchs.pdf
-
-**提取页数**: 全文
-
 Islamic Astronomy in the Service of Yuan and Ming
 Monarchs
 Shi Yunli 石云里
@@ -179,7 +175,6 @@ Chinese Astronomical Reform of 1280, with an Annotated Translation and Study of 
 Dimensions. Sources and Studies in the History of Mathematics and Physical Sciences. Secaucus,
 NJ: Springer.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 45
 
@@ -304,7 +299,6 @@ Magistrate
 
 1
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 Managing Clerk
 令史
@@ -497,7 +491,6 @@ Officer for Timekeeping
 
 --
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 Student for
 Astrology
@@ -591,7 +584,6 @@ Chen Jiujin陈久金 (1989). “Madeluding fuzi he huihui tianwenxue” 马德�
 天文学 (Madeluding and His Sons’ Contribution to Islamic Astronomy in China)， Ziran
 kexueshi yanjiu自然科学史研究 (Studies in the History of Natural Sciences ), 8(1). pp.28-36.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 51
 
@@ -683,7 +675,6 @@ qintianjian xiaguanzheng Liu Xin shiji kao 明欽天監夏官正劉信考 (A Stu
 Liu Xin, the Summer Officer of the Bureau for the Reverence of the Heaven of the Ming
 Dynasty)”,. Ziran kexueshi yanjiu 自然科學史研究. 2009, vol., 8 (2): pp.205-213.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 53
 
@@ -773,7 +764,6 @@ highly possible that the book is devoted to a step-by-step comparison of the
 The detailed results will be published in another paper.
 Edited by Sun Nengchuan 孫能傳 et al. in 1603.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 55
 
@@ -855,7 +845,6 @@ bk. 1. Original printed version of 1447 now preserved in the National Archives o
 21
 My thanks to Dr. Li Liang for his work on the computer program and the calculation.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 Table 2: The Occultation of the Moon on Fixed Stars
 Date
@@ -1023,7 +1012,6 @@ See, e.g. Qutan Xida (瞿昙悉达). The Kaiyuan Reign Canon of Astrology (Kaiyu
 元占經) , bk. 12-14，19-22，24-29，31-37，39-44，47-52 and 54-59. The book was compiled
 by the Astronomical Bureau of the Tang dynasty during the Kaiyuan Reign (713-741).
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 59
 
@@ -1102,7 +1090,6 @@ the Misdeeds (“Taizu huangxi qinlu jiqi faxain yu jilu yanjiu: jianji yuzhi ji
 明清论丛 (Ming and Qing Study Series) (6). Beijing: Palace Museum Press, pp. 83-110. This text
 was discovered and made available to me by Dr. Li Liang.
 
-Islamic Astronomy in the Service of Yuan and Ming Monarchs
 
 61
 

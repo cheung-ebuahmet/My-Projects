@@ -1,7 +1,5 @@
 # 24 Hours in the Life of a Muslim
 
-> 来源: 24 Hours in the Life of a Muslim.pdf
-
 About The Author
 Now writing under the pen-name of HARUN YAHYA,
 Adnan Oktar was born in Ankara in 1956. Having completed his

@@ -1,7 +1,5 @@
 # Du’as for Relief & Protection
 
-> 来源: Du’as for Relief & Protection.pdf
-
 A COLLECTION OF PROPHETIC PRAYERS BROUGHT TO YOU BY
 
 PREFACE
@@ -263,7 +261,6 @@ for. Beginning the prayer in this fashion reminds us that we are in dire need
 of Allah’s aid at all times. It serves as a way to introduce the request that we
 are making of Allah.
 
-PROTECTIVE BENEFITS
 When we truly understand this duʿāʾ, we will realize that we are seeking
 Allah’s protection from both the sources of evil and the consequences of
 evil. Commenting on this supplication, Ibn al-Qayyim said, “The Prophet ‫ﷺ‬
@@ -317,7 +314,6 @@ me? I swear by Allah, I did not tell a lie about ʿUthmān, nor did ʿUthmān te
 a lie about the Prophet ‫ﷺ‬, but that day when I was afflicted by it, I became
 angry and forgot to recite this supplication.”24
 
-PROTECTIVE BENEFITS
 When we say “bismillāh” at the beginning of an action, we are seeking help
 through the name of Allah and seeking blessing from Him in that action. In
 Arabic there is always a verb implied with “bismillāh.” For example, when we
@@ -394,7 +390,6 @@ and severe suffering. ʿĀfiyah in wealth is that it is preserved from anything 
 destroy it, including floods, fires, and theft. ʿĀfiyah in the hereafter is that one is
 protected from any distress or punishment in the next life.29
 
-PROTECTIVE BENEFITS
 The Prophet ‫ ﷺ‬requested that Allah protect him and grant him security from every
 direction. The greatest evil that we need protection from is the evil of Shayṭān. We
 know that he is lurking, waiting for every chance to turn us away from the path that
@@ -433,7 +428,6 @@ practice. They followed his example and taught those who came after them.
 When we learn new supplications, we should try to learn them and teach
 them to our families and loved ones.
 
-PROTECTIVE BENEFITS
 In this prayer, we are asking Allah to protect our bodies, our hearing, and our
 sight. This means that we are asking to be granted good health and that we
 use that blessing to fulfill our purpose in life. Allah says, “I did not create jinn
@@ -511,7 +505,6 @@ Reading these surahs in order again follows the model set in Sūrat al-Fātiḥa
 al-Ikhlāṣ is dedicated entirely to praising Allah and declaring His Oneness. In Sūrat
 al-Falaq and Sūrat al-Nās we are asking for Allah’s protection.
 
-PROTECTIVE BENEFITS
 These surahs, when recited with conviction, protect from both internal and external
 evils. In Sūrat al-Falaq, we seek refuge in Allah, the “Lord of the daybreak,” from the
 “evil of what He created.” This refers to external dangers that threaten to harm a
@@ -561,7 +554,6 @@ This supplication also appears in the Qur’an. Allah, the Almighty, says,
 If they turn away, say, “Allah is enough for me. There is no true god but Him,
 in Him I put my trust, and He is the Lord of the Great Throne.”45
 
-PROTECTIVE BENEFITS
 Anxiety is a state of uneasiness and apprehension. Usually it comes from
 worrying about the future. By saying “Allah is enough for me” we affirm that
 Allah is sufficient for all of our needs. This should help us temper our worries
@@ -613,7 +605,6 @@ as a family outing to the park.51
 
 Aʿūdhu bi-kalimāti Allāhi al-tāmmāti min sharri mā
 khalaq.
-PROTECTIVE BENEFITS
 
 I seek refuge in the Perfect Words of Allah from the
 evil of what He has created.
@@ -672,7 +663,6 @@ acknowledge that we are weak. Allah will grant us power when we absolve ourselve
 of independent ability. When we remove our egos from the equation, Allah will fill that
 void with His guidance and protection.
 
-PROTECTIVE BENEFITS
 Home is a safe haven, comfort zone, and place of stability. When leaving this familiar
 space, we are reminded to seek Allah’s protection and help. As mentioned previously,
 there is always a verb associated with “bismillāh.” So here we mean “bismillāh I leave
@@ -789,7 +779,6 @@ Ibn Taymīyah asserts that the depth of meaning found in these two verses is “
 the ability of human intellect to fully grasp.”64 This is why it is so important to read them
 every night and reflect deeply on them.65
 
-PROTECTIVE BENEFITS
 The Prophet ‫ ﷺ‬said, “Shayṭān runs away from the home in which Sūrat al-Baqarah is
 recited.” This refers to the entire sūrah. However, the last two verses are especially
 beneficial for protection from devils. The Prophet ‫ ﷺ‬said, “Allah sent down two āyahs
@@ -845,7 +834,6 @@ decree. Therefore, he patiently endures the hardship and anticipates Allah’s r
 he does so, Allah will guide his heart, grant him certainty in faith, and replace whatever
 he lost with something equal or better.72
 
-PROTECTIVE BENEFITS
 
 In addition to the supplication for guidance, this duʿāʾ includes four other requests for
 different kinds of protection..
@@ -935,7 +923,6 @@ he is suffering, as long as he does not show any displeasure with Allah’s decr
 may be able to help him, pray for him, and offer him sound advice that he would
 otherwise be deprived of if they were unaware of his situation.
 
-PROTECTIVE BENEFITS
 This prayer is for relief of pain that one is currently experiencing. It is also a request for
 protection from future complications associated with the original disease. A person
 may worry that the pain will increase or that his illness will become more severe. This
@@ -978,7 +965,6 @@ said, “Certainly!” So Anas prayed, “O Allah, Lord of mankind, Remover of d
 You are the Healer, there is no Healer but You, a healing that leaves behind no
 ailment.”87
 
-PROTECTIVE BENEFITS
 
 Remove the difficulty O Lord of mankind, and heal.
 You are the Healer, no healing avails but Yours, a
@@ -1042,7 +1028,6 @@ hadith, refuge is sought from chronic diseases. That is because they could lead 
 situation where one’s close friends abandon him and only a few are around to care for
 and comfort him. They may even carry a great deal of stigma.96
 
-PROTECTIVE BENEFITS
 Preserving one’s mental health is so important that it is one of the five higher objectives
 of the sharīʿah. This duʿāʾ mentions protection from “madness” or severe mental
 illness. Needless to say, our prayers should be combined with action. Therefore, a
@@ -1101,7 +1086,6 @@ saved from the questioning in which he will be asked about everything, even
 said, ‘If you knew what I knew, you would laugh little and cry much.’99 It is only about
 this that it makes sense to be anxious and to cry.100
 
-PROTECTIVE BENEFITS
 Another prophetic tradition tells us of the efficacy of this duʿāʾ in relieving anxiety. Abū
 Saʿīd al-Khuḍrī reported: The Messenger of Allah ‫ ﷺ‬entered the mosque one day
 and saw a man from the Anṣār named Abū Umāmah. The Prophet ‫ ﷺ‬said, “O Abū
@@ -1184,7 +1168,6 @@ or otherwise. But the greatest calamity is to be afflicted with doubt or disbeli
 what Allah loves, or loving sin and transgression. These are as destructive to one’s soul
 as death is to the body.
 
-PROTECTIVE BENEFITS
 
 This is one of the most comprehensive prayers found in the prophetic tradition. It includes
 protection for the mind, body, and soul.

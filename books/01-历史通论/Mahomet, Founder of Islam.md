@@ -1,8 +1,5 @@
 # Mahomet, Founder of Islam
 
-> 来源: Mahomet, Founder of Islam.epub
-> 提取于: iSlam/先知·穆罕默德/Mahomet, Founder of Islam.epub
-
 []
 
 The Project Gutenberg EBook of Mahomet, by Gladys M. Draycott

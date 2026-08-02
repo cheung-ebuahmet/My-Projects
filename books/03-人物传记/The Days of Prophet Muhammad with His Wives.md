@@ -1,7 +1,5 @@
 # The Days of Prophet Muhammad with His Wives
 
-> 来源: The Days of Prophet Muhammad with His Wives.pdf
-
 IN THE NAME OF
 
 ALLAH
@@ -564,7 +562,6 @@ _________
 
 .,
 
-The days of Prophet Muhammad with his wives
 
 19
 
@@ -656,7 +653,6 @@ Prophet (~) during these early and challenging times accorded
 her an elevated status in the eyes of Allah and His Messenger (~).
 To such an extent was his status that on one occasion Gabriel
 
-The days of Prophet Muhammad with his wives
 
 21
 
@@ -750,7 +746,6 @@ marry out of lust (Editor)
 
 25
 
-The days of Prophet Muhammad with his wives
 
 based on a loftier and more sacred principle; that those who are
 patient and persevere through hardships deserve to be
@@ -885,7 +880,6 @@ Bakr (~)entered their house they said, "0 son of Abu Qal;tafah,
 Abu Bakr meant this figuratively, not literally: He and the Prophet (bpuh)
 were 'brothers in Islam' only, and not blood brothers. (Editor)
 
-The days of Prophet Muhammad with his wives
 
 29
 
@@ -1053,7 +1047,6 @@ On the day of the conquest of Makkah, Abu Sufyan entered
 Islam. In response, the Prophet (~) honoured him and asked a
 caller to proclaim that, "Whoever shall enter the Holy House will
 
-The days of Prophet Muhammad with his wives
 
 35
 
@@ -1131,7 +1124,6 @@ A fifth of the booty was ordained by Allah to be allotted to the leader of the
 Muslims and the Islamic State to be distributed to orphans and other needy
 members of society (see Qur'an 8: 4). (Editor)
 
-The days of Prophet Muhammad with his wives
 
 39
 
@@ -1238,7 +1230,6 @@ which Allah will make manifest. You feared the people, but
 it is more befitting that you should fear Allah. Then when
 Zayd had dissolved [his marriage] with her, We joined her
 
-The days of Prophet Muhammad with his wives
 
 43
 
@@ -1298,7 +1289,6 @@ her. 'A'ishah used to have the strongest confidence regarding her
 status in the eyes of Allah (~) and His Messenger (~), until she
 said, "No woman used to compete with me except Zaynab." She
 
-The days of Prophet Muhammad with his wives
 
 45
 
@@ -1453,7 +1443,6 @@ u &.'
 
 Prophet, and if the Prophet wishes to marry her, a privilege
 
-The days of Prophet Muhammad with his wives
 
 49
 
@@ -1608,7 +1597,6 @@ with her husband and her young son to Madinah. On the way, her
 tribe intercepted them and prevented her husband from taking her,
 saying, "You own yourself and we cannot prevent you from what
 
-The days of Prophet Muhammad with his wives
 
 57
 
@@ -1675,7 +1663,6 @@ grieved and said, 'Allahu Akbar (Allah is the Greatest)' nine times
 during his funeral prayer. Some Muslims asked the Prophet (~),
 "Have you forgotten 0 Messenger of Allah?"
 
-The days of Prophet Muhammad with his wives
 
 59
 

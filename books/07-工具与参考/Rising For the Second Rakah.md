@@ -1,8 +1,5 @@
 # Rising For the Second Rakah
 
-> 来源: Rising For the Second Rakah.pdf
-> 提取于: iSlam/伊斯兰概论·入门/Rising For the Second Rakah.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

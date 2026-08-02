@@ -1,8 +1,5 @@
 # Wudu Example
 
-> 来源: Wudu Example.pdf
-> 提取于: iSlam/伊斯兰概论·入门/Wudu Example.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

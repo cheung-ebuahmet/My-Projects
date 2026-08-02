@@ -1,8 +1,5 @@
 # Islam and the West - a Historical Perspective
 
-> 来源: Islam and the West - a Historical Perspective.pdf
-> 提取于: iSlam/伊斯兰与现代·比较宗教/Islam and the West - a Historical Perspective.pdf
-
 Islam and the West: a Historical Perspective
 fpri.org/article/2003/05/islam-and-the-west-a-historical-perspective/
 

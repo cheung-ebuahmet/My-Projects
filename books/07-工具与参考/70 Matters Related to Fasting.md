@@ -1,8 +1,5 @@
 # 70 Matters Related to Fasting
 
-> 来源: 70 Matters Related to Fasting.pdf
-> 提取于: iSlam/伊斯兰法学（教法）/70 Matters Related to Fasting.pdf
-
 All perfect praise be to Allaah, The Lord of the Worlds. I testify that there
 is none worthy of worship except Allaah, and that Muhammad is His
 slave and Messenger, may Allaah exalt his mention as well as that of his

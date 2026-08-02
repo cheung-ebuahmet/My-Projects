@@ -1,7 +1,5 @@
 # Ming China and Southeast Asia in the 15th Century - A Reappraisal
 
-> 来源: Ming China and Southeast Asia in the 15th Century - A Reappraisal.pdf
-
 Asia Research Institute
 Working Paper Series
 No. 28
@@ -115,7 +113,6 @@ from the Mongol heartlands.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Ming Foreign Policies and Southeast Asia
 As reflected in both official and non-official Chinese texts, the Ming rulers saw
@@ -177,7 +174,6 @@ Studies Volume 34: 3 (October 2003), ", and “Chinese Military Technology and D
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 which can be dealt with first. It needs to be stated at the outset that there was frequent
 exchange of envoys between Ming China and the polities of Southeast Asia. One of
@@ -234,7 +230,6 @@ Memoirs of the Research Department of the Toyo Bunko, No. 33 (1975), pp. 285-347
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Southeast Asia-related Policies of Ming Tai-zu / the Hong-wu Reign (1368-98)
 Early in his reign, Zhu Yuan-zhang, the first Ming emperor, provided instructions as
@@ -294,7 +289,6 @@ Tai-zong shi-lu, juan 15.2a and 16.3a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 was antecedent of Sipsong Panna, was recognised as a “native office” in 1384 with
 the original ruler as the “native official”. In 1385, the Ming established the Yin-yuanluo-bi dian Chief’s Office in Yuan-jiang prefecture, Yun-nan (near the Red River).
@@ -355,7 +349,6 @@ O.W. Wolters, The Fall of Srivijaya in Malay History, Oxford, OUP, 1970, pp. 68-
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 that members of the Ming bureaucracy were likely already heavily involved in
 Southeast Asian maritime politics by the 1390s.
@@ -415,7 +408,6 @@ Tai-zong shi-lu, juan 12B.7a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 polities.36 In 1405, it was ordered that hostels be established under each of the abovenoted provinces to look after the foreign envoys who would come from abroad.37 It
 was already apparent at this early stage of the reign that the Yong-le Emperor was
@@ -479,7 +471,6 @@ Tai-zong shi-lu, juan 80.3b-4a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Confucian schools were established and Chinese persons were appointed to teach in
 them.46 Regardless of how much political hegemony was subsequently thrown off in
@@ -541,7 +532,6 @@ RoutledgeCurzon. 2004.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Invasion of Yun-nan polities under Yong-le
 Prior to Yong-le’s invasion of the Vietnamese polity in 1406, he engaged
@@ -605,7 +595,6 @@ Tai-zong shi-lu, juan 57.2a-b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 The eunuch-led missions were, like Yong-le’s expansions into Yun-nan and
 occupation of Đại Việt, intended to create legitimacy for the usurping emperor,
@@ -670,7 +659,6 @@ Ying-zong shi-lu, juan 231.15a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 The military aspect of these voyages needs underlining, in part because of the
 stress placed on these missions in current PRC scholarship as “voyages of friendship”.
@@ -730,7 +718,6 @@ grams.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 crime…..Fail to comply and there will be no option but to despatch an army to punish
 your crime. What happened in Annam can serve as an example.”73 The threatening
@@ -790,7 +777,6 @@ Tai-zong shi-lu, juan 130.1b-2a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 same manner and at similar levels to those forces which invaded Đại Việt in 1406,
 suggesting similar aims of the forces.79
@@ -845,7 +831,6 @@ Formally designated as the capital by the Yong-le emperor in 1420.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 perhaps above all alleviating distress among the people.”83 He attempted to regularise
 fiscal administration, and yet he revived the eunuch-led maritime voyages, which had
@@ -910,7 +895,6 @@ Xuan-zong shi-lu, juan 106.8a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 missions to the Ming capital were likewise coordinated by eunuch officials sent to
 these polities. In 1433, the eunuch Yun Xian brought to the Court envoys from the
@@ -969,7 +953,6 @@ Ying-zong shi-lu, juan 75.6a
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 that Si Ren-fa had escaped. 100 In August 1442, a further expedition was launched
 against Lu-chuan,101 and both Wang Ji and Jiang Gui were recalled to lead it. The year
@@ -1035,7 +1018,6 @@ Ying-zong shi-lu, juan 241.4b-5a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 all previously agreed payments of gold and silver be cancelled and that they only be
 required to bring local products to the court at fixed intervals.”110
@@ -1095,7 +1077,6 @@ Ying-zong shi-lu, juan 189.3b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 expeditions between 1465 and 1472 against Yao polities in what are today Guangdong and Guang-xi, and these saw some of the bloodiest battles of the century.116
 These expeditions broke the back of many of these traditional polities in a similar way
@@ -1153,7 +1134,6 @@ Xian-zong shi-lu, juan 155.7b-9b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Annam and claimed that those in that country intended to attack Yun-nan, and they
 only desisted after being reproved by the king’s mother….The envoys from Champa
@@ -1211,7 +1191,6 @@ Xian-zong shi-lu, juan 259.5b
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Yun-nan Policies
 The attempts by the Chinese state to bring the Tai polities of Yun-nan more
@@ -1266,7 +1245,6 @@ Xiao-zong shi-lu, juan 73.3a-b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Yun-nan
 As Ming administration extended further into the “native offices” of Yun-nan
@@ -1323,7 +1301,6 @@ Shi-zong shi-lu, juan 118.2b-3a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Overview of Ming Policies Affecting Southeast Asia
 We can condense the range of policies noted above as having been pursued in respect
@@ -1379,7 +1356,6 @@ to Pacification Officers, while Local Commanders were promoted to Police Officer
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Efforts by the Ming to expand its control in the dong140 (洞/峒) areas which
 straddled the region north of Vietnamese control and south of the Ming-administered
@@ -1440,7 +1416,6 @@ Tai-zu shi-lu, juan 210.3a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 the sea.146 Mu-bang (Hsenwi) was a frequent pawn in the Ming-Burma machinations,
 as it lay between the two and was subject to demands by both polities.
@@ -1502,7 +1477,6 @@ Ying-zong shi-lu, juan 105.2b-3a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 (Lanna) into Ba-bai/Da-dian (likely Chiang Mai) and Ba-bai/Zhen-nai (Chiang
 Rai). 155 This was eventually unsuccessful, despite a Chinese-sponsored attack on
@@ -1563,7 +1537,6 @@ Xiao-zong shi-lu, juan 195.3a-4a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 issued during the late 14th century are detailed under the Hong-wu reign above. The
 frequency of the issue of such notices implies that they were, if not ignored, at least
@@ -1629,7 +1602,6 @@ Ying-zong shi-lu, juan 106.8a-b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 them to send only a chief envoy, deputy envoy and a few attendants to the Court. 172
 But, this was not something which only the Javanese saw as beneficial. In 1478, for
@@ -1691,7 +1663,6 @@ Shi-zong shi-lu, juan 108.7a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 occupied Malacca. This arrival was momentous in terms of the eventual links which
 Chinese commerce was to develop thorough it.181
@@ -1751,7 +1722,6 @@ Xiao-zong shi-lu, juan 153.10b-11b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 things.” 187 The accounts of extra-systemic economic exploitation by eunuchs
 continued into the 16th century.
@@ -1811,7 +1781,6 @@ One of the most detailed studies of the kai-zhong system during the Ming dynasty
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 stationed. The system was instituted in Yun-nan during the Hong-wu reign (1368-98)
 in order to feed the Ming forces sent to occupy the region. In the 1420s, with the Ming
@@ -1870,7 +1839,6 @@ and Dietmar Rothermund, Emporia, Commodities and Entrepreneurs in Asian Maritime
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Changes in Southeast Asian Political Topography– Yun-nan
 As detailed in the sections above, the Ming push into the Tai polities of “Yunnan”, and the divide-and-rule policies pursued throughout the 15th century, obviously
@@ -1925,7 +1893,6 @@ in the diverse ways in which this can be construed.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Changes in Southeast Asian Political Topography – Decline of Majapahit’s
 Influence
@@ -1987,7 +1954,6 @@ Tai-zong shi-lu, juan 201.1b.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Changes in Southeast Asian Economic Topography – Rise of New Trade Ports
 The apparent increased in maritime trade during the century also appears to
@@ -2050,7 +2016,6 @@ XI:2 (1980) pp. 266-276; and his “The Vanishing Jong: Insular Southeast Asian 
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 and Needham214 respectively, while Manguin has also looked at the cross-influences
 between the Southeast Asian and Chinese shipbuilding traditions, and posits a hybrid
@@ -2111,7 +2076,6 @@ Blue and White Wares Found in the Philippines, Manila, Bookmark Inc. 1997.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 place in the Southeast Asian ceramic traditions, their origins and period of
 introduction, and whether there was any influx of Chinese potters into Southeast Asia.
@@ -2172,7 +2136,6 @@ Tai-zu shi-lu, juan 152.4a.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 There was constant pressure on newly-colonised peoples in Yun-nan to accord
 with certain Chinese cultural practices. As in Vietnam, these were instilled through
@@ -2231,7 +2194,6 @@ Java in the 15th and 16th Centuries, Monash Papers on Southeast Asia, 1984.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 part from Chinese local accounts in Java, claims that there was a network of Chinese
 Hanafi Muslims throughout Southeast Asia in the 15th century, and that this network,
@@ -2290,7 +2252,6 @@ Entrepreneurs in Asian Maritime Trade, c. 1400-1750.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Bibliography
 Brown, Roxanna M., The ceramics of South-East Asia, their dating and identification,
@@ -2329,7 +2290,6 @@ New York: Columbia University Press, 1976.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Gotuaco, Larry, Rita C. Tan and Allison I. Diem, Chinese and Vietnamese Blue and
 White Wares Found in the Philippines, Manila: Bookmark Inc., 1997.
@@ -2369,7 +2329,6 @@ Journal of Southeast Asian Studies, XI:2 (1980): 266-276.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Manguin, Pierre-Yves, “The Vanishing Jong: Insular Southeast Asian Fleets in Trade
 and War (Fifteenth to Seventeenth Centuries)”, in Southeast Asia in the early
@@ -2410,7 +2369,6 @@ Expansion and Crisis, New Haven: Yale University Press, 1995.
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Reid, Anthony, “The Rise and Fall of Sino-Javanese Shipping”, in Charting the Shape
 of Early Modern Southeast Asia, ed. Anthony Reid, Singapore: Institute of
@@ -2452,7 +2410,6 @@ Society Malaysian Branch, Vol. 41:1 (1968): 11-22
 
 ARI WPS No. 28
 
-Wade, Ming China and Southeast Asia
 
 Wang Gungwu, “China and Southeast Asia 1402-24” in Social History of China and
 Southeast Asia, ed. J. Chen and N. Tarling, Cambridge: Cambridge University

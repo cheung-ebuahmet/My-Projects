@@ -1,7 +1,5 @@
 # Israel - A Concise History of A Nation Reborn
 
-> 来源: Israel - A Concise History of A Nation Reborn.pdf
-
 DEDICATION
 For
 Ella Sara Ben Sasson-Gordis
@@ -13097,7 +13095,6 @@ No. 3 (Fall 2002), p. 129.
 http://www.haaretz.com/print-edition/news/a-mystery-that-defies-solution-1.73913
 [Last
 viewed
-December 8, 2015].
 30 Moshe Reinfeld, “State Commission: Missing Yemenite Babies Not Kidnapped,” Ha’aretz (November
 4, 2001), http://www.haaretz.com/news/state-commission-missing-yemenite-babies-not-kidnapped1.73778 [Last viewed December 8, 2015].
 31 “15,000% Growth in Army Exemptions for Yeshiva Students since 1948,” Hiddush website,
@@ -13206,7 +13203,6 @@ Divided a Nation (New York: HarperCollins, 2013), p. 42.
 18 Lipstadt, The Eichmann Trial, p. 34.
 19 David Ben-Gurion, “The Eichmann Case as Seen by Ben-Gurion,” New York Times (December 18,
 1960), http://timesmachine.nytimes.com/timesmachine/1960/12/18/99904385.html?pageNumber=182
-[Last viewed December 8, 2015].
 20 Lipstadt, The Eichmann Trial, p. 36.
 21 Ibid., p. 53.
 22 Ibid., p. 78.
@@ -13331,7 +13327,6 @@ the Jewish Virtual Library.
 23 Mahmoud Darwish, “Identity Card,” http://www.barghouti.com/poets/darwish/bitaqa.asp.
 24 “The Khartoum Resolutions,” Ministry of Foreign Affairs of Israel (September 1, 1967),
 http://www.mfa.gov.il/mfa/foreignpolicy/peace/guide/pages/the%20khartoum%20resolutions.aspx
-[Last viewed December 8, 2015].
 
 CHAPTER 14: YOM KIPPUR WAR
 1 Martin Gilbert, Israel: A History (New York: HarperPerennial, 1998), p. 423.
@@ -13430,7 +13425,6 @@ State University of New York Press, 1992), p. 55.
 National Defense College, IDF, 2007), p. 271.
 18 Mohamed Fadel Fahmy, “30 Years Later, Questions Remain Over Sadat Killing, Peace with Israel,”
 CNN (October 7, 2011), http://edition.cnn.com/2011/10/06/world/meast/egypt-sadat-assassination/
-[Last viewed December 8, 2015].
 19 Ironically, most of these resisters were not residents of the town.
 20 Gershom Gorenberg, The Accidental Empire: Israel and the Birth of the Settlements, 1967–1977 (New
 York: Henry Holt, 2006), p. 361.
@@ -13664,7 +13658,6 @@ http://www.forbes.com/2010/06/23/israel-hamas-middle-east-opinions-columnists-da
 38 Gerstenfeld, The War of a Million Cuts, pp. 13–14.
 39 Joshua Muravchik, “Muslims and Terror: The Real Story,” Commentary (February 1, 2015),
 https://www.commentarymagazine. com/articles/muslims-and-terror-the-real-story-1/ [Last viewed
-December 9, 2015].
 40
 “Human
 Rights
@@ -13716,7 +13709,6 @@ http://www.timesofisrael.com/pm-says-irans-chief-of-staff-vowed-sunday-to-elimin
 viewed December 9, 2015].
 55 Henry Kissinger and George P. Shultz, “The Iran Deal and Its Consequences,” Wall Street Journal
 (April 7, 2015), http://www.wsj.com/articles/the-iran-deal-and-its-consequences-1428447582 [Last
-viewed December 9, 2015].
 56 Michael B. Oren, Ally: My Journey Across the American-Israeli Divide (New York: Random House,
 2015), p. 360.
 57 Ibid., p. 183.
@@ -13756,12 +13748,10 @@ Work,” Bloomberg Business (August 2, 2010), http://www.bloomberg.com/news/arti
 15 Noah Feldman, “Violence in the Name of the Messiah,” Bloomberg View (November 1, 2015),
 http://www.bloombergview.com/articles/2015–11–01/violence-in-the-name-of-the-messiah
 [Last
-viewed December 9, 2015].
 16 The Forward and Daniel Estrin, “The King’s Torah: A Rabbinic Text or a Call to Terror?” Ha’aretz
 (January 22, 2010,), http://www.haaretz.com/jewish/2.209/the-king-s-torah-a-rabbinic-text-or-a-callto-terror-1.261930 [Last viewed December 9, 2015].
 17 Jeremy Sharon, “‘Torat Hamelech’ Authors Will Not Be Indicted,” Jerusalem Post (May 28, 2012),
 http://www.jpost.com/National-News/A-G-Torat-Hamelech-authors-will-not-be-indicted [Last viewed
-December 9, 2015].
 
 CONCLUSION
 1 Ari Shavit, My Promised Land: The Triumph and Tragedy of Israel (New York: Spiegel & Grau,
@@ -13802,14 +13792,12 @@ A.A.P. “U.N.O. Passes Palestine Partition Plan.” Morning Herald (December 1,
 December 7, 2015].
 “About the Organization.” HaShomer HaHadash website, http://www.shomerisrael.org/index.php?option=com_content&view=
 article&id=100&Itemid=62 [Translation by Daniel Gordis] [Last viewed
-December 9, 2015].
 Above and Beyond. Playmount Productions and Katahdin Productions, produced
 by Nancy Spielberg, 2015.
 Ackerman, Gwen, and Alisa Odenheimer. “Israel Prosperity Seen Unsustainable
 as Haredim Refuse to Work.” Bloomberg Business (August 2, 2010),
 http://www.bloomberg.com/news/arti
 cles/2010–08–01/israel-prosperityseen-unsustainable-as-haredim -refusal-to-work-takes-toll [Last viewed
-December 9, 2015].
 Ahad Ha’am. “The Jewish State and the Jewish Problem.” In The Zionist Idea,
 ed. Arthur Hertzberg. Philadelphia: Jewish Publication Society, 1997.
 Ajami, Fouad. “A Reality Check as Israel Turns 60.” U.S. News & World Report
@@ -13881,7 +13869,6 @@ viewed December 8, 2015].
 Ramat Gan, Israel: Masada Press, 1976.
 Benn, Aluf. “Doomed to Fight.” Ha’aretz (May 9, 2011),
 http://www.haaretz.com/weekend/week-s-end/doomed-to-fight-1.360698
-[Last viewed December 8, 2015].
 Ben Hurin, Yitzhak. “Horrifying Details of Murder of Athletes in Munich
 Revealed: ‘They Were Tortured in Front of Their Friends.” Ynet.co.il
 (December
@@ -13899,7 +13886,6 @@ Bernstein, Robert L. “Rights Watchdog, Lost in the Mideast.” New York Times
 19,
 2009),
 http://www.nytimes.com/2009/10/20/opinion/20bernstein.html [Last viewed
-December 9, 2015].
 Bew, John. “The Tragic Cycle: Western Powers and the Middle East.” New
 Statesman (August 21, 2014), http://www.newstatesman.com/worldaffairs/2014/08/tragic-cycle-western-powers-and-middle -east [Last viewed
 May 1, 2016].
@@ -13921,7 +13907,6 @@ Committee, April 29, 1950,” American Jewish Committee Archives,
 http://www.ajcarchives.org/AJC_DATA/Files/507.PDF
 [Last
 viewed
-December 8, 2015].
 Bloom, Cecil. “Sir Mark Sykes: British Diplomat and a Convert to Zionism.”
 Jewish Historical Studies, Vol. 43 (2011).
 Bloom, Gadi, and Nir Hefez. Ariel Sharon: A Life. New York: Random House,
@@ -13966,7 +13951,6 @@ century/mid-cent-churchill.html [Last viewed December 7, 2015].
 with the author.
 “Clinton to Lead U.S. Delegation.” CNN (November 5, 1995),
 http://edition.cnn.com/WORLD/9511/rabin/clinton/index.html [Last viewed
-December 9, 2015].
 Clinton, Bill. My Life. New York: Vintage Press, 2005.
 Cohel, Eric. “The Spirit of Jewish Conservatism.” Mosaic, http://mosaic
 magazine.com/essay/2015/04/the-spirit-of-jewish-conservatism/.
@@ -14030,13 +14014,11 @@ Eban, Abba. Abba Eban: An Autobiography. Lexington, MA: Plunkett Lake
 Press, 2015.
 Efron, Noah. “The Price of Return.” Ha’aretz (November 23, 2008),
 http://www.haaretz.com/news/the-price-of-return-1.258035 [Last viewed
-December 8, 2015].
 Eglash, Ruth. “Ten Years On, Pain of Dolphinarium Bombing Still Strong.”
 Jerusalem Post (May 29, 2011), http://www.jpost.com/National-News/Tenyears-on-pain-of-Dolphinarium-bombing-still
 -strong
 [Last
 viewed
-December 9, 2015].
 Ehrlich, Tsur. “Nathan the Wise.” Azure, No. 28 (Spring 5767/2007),
 http://azure.org.il/include/print.php?id=445.
 Eldar, Akiva. “Border Control Getting in a State Over the UN Vote.” Ha’aretz
@@ -14071,7 +14053,6 @@ website
 http://www.mfa.gov.il/mfa/foreignpolicy/peace/mfadocuments/pages/
 exchange%20of%20letters%20sharon-bush%2014-apr-2004.aspx
 [Last
-viewed December 9, 2015].
 Fahmy, Mohamed Fadel. “30 Years Later, Questions Remain Over Sadat
 
 Killing,
@@ -14083,7 +14064,6 @@ CNN
 7,
 2011),
 http://edition.cnn.com/2011/10/06/world/meast/egypt-sadat-assassination/
-[Last viewed December 8, 2015].
 Fallows, James. “Who Shot Muhammed Al-Dura.” Atlantic (June 2003),
 http://www.theatlantic.com/magazine/archive/2003/06/who-shot
 mohammed-al-dura/302735/ [Last viewed January 10, 2016].
@@ -14184,7 +14164,6 @@ Prime Minister, Newly Released Papers Show.” Times of Israel (September
 -warnings/
 [Last
 viewed
-December 8, 2015].
 ———. “When Moshe Dayan Delivered the Defining Speech of Zionism,”
 Times of Israel (April 26, 2016), http://www.timesofisrael.com/when-moshedayan-delivered-the-defining-speech-of-zionism/.
 Goldberg, Jeffrey. “The Paranoid, Supremacist, Roots of the Stabbing Intifada.”
@@ -14239,7 +14218,6 @@ Hartman, Ben. “‘Gov’t’ Failed Gaza Evacuees.” Jerusalem Post (June 16,
 http://www.jpost.com/Israel/Govt-failed-Gaza-evacuees
 [Last
 viewed
-December 9, 2015].
 Hasson, Nir. “Jerusalem Neighborhood to Name Streets in Honor of Mizrahi
 Black
 Panthers.”
@@ -14355,7 +14333,6 @@ Globe
 22,
 2015),
 http://www.bostonglobe.com/opinion/2015/10/22/would-rabin-have-pulled plug-peace-process-that-failed/fgHF1Y8bkh7leSbtgHf leL/story.html [Last
-viewed December 9, 2015].
 Jewish Agency. “BeBayit BeYachad: Shiputz Mo’adon Olim Be-Beit Brodsky.”
 http://www.jewishagency.org/he/blog/7606/arti cle/11706 [Last viewed
 December 7, 2015] [In Hebrew].
@@ -14402,7 +14379,6 @@ http://www.nytimes.com/2014/03/13/world/middleeast/israel-restrictsexemptions-fr
 1,
 1967),
 http://www.mfa.gov.il/mfa/foreignpolicy/peace/guide/pages/the%20khartoum%20resoluti
-[Last viewed December 8, 2015].
 Khoury, Jack. “Israeli Arabs Mark Fifteenth Anniversary of October 2000
 Riots.” Ha’aretz (January 10, 2015), http://www.haaretz.com/israel -
 
@@ -14410,7 +14386,6 @@ Riots.” Ha’aretz (January 10, 2015), http://www.haaretz.com/israel -
 King James Bible Online, 2016. http://www.kingjamesbibleonline.org.
 “Kissinger and Ismail Conduct Secret Meetings.” Center for Israel Education,
 http://israeled.org/kissinger-ismail-conduct-secret-meetings/ [Last viewed
-December 8, 2015].
 Kissinger, Henry, and George P. Shultz. “The Iran Deal and Its Consequences.”
 Wall Street Journal (April 7, 2015), http://www.wsj.com/articles/the-irandeal-and-its-consequences-1428447582 [Last viewed December 9, 2015].
 Kraft, Joseph. “For Begin, the End? He Should Be Voted Out for Raid That
@@ -14457,7 +14432,6 @@ Post
 7,
 2013),
 http://www.jpost.com/National-News/2012-West-Bank-settler-popula tiongrowing-almost-three-times-as-fast-as-national-rate-326309 [Last viewed
-December 8, 2015].
 Lelchuk, Alan, and Gershon Shaked. 8 Great Hebrew Short Novels. New
 Milford, CT: Toby Press, 2012.
 Lenhoff, Howard M., and Jerry L. Weaver. Black Jews, Jews, and Other Heroes:
@@ -14478,7 +14452,6 @@ Announce Openly Gay Candidate.” Ha’aretz (January 26, 2015),
 http://www.haaretz.com/israel-news/elections/1.639040
 [Last
 viewed
-December 9, 2015].
 Little, Douglas. American Orientalism: The United States and the Middle East
 Since 1945. London: I. B. Tauris, 2002.
 Lord, Amnon. “Intelligence Failure or Paralysis.” Jewish Political Studies
@@ -14545,7 +14518,6 @@ http://mizrachi.org/the-first-ever-israeli-elections/[Last viewed December 7,
 2015].
 Morris, Benny. “Exposing Abbas.” National Interest (May 19, 2011),
 http://nationalinterest.org/commentary/exposing-abbas-5335 [Last viewed
-December 9, 2015].
 ———.“The Historiography of Deir Yassin.” Journal of Israeli History:
 Politics, Society, Culture, Vol. 24, No. 1 (August 2006).
 ———. “Peace? No Chance.” Guardian (February 21, 2002),
@@ -14656,7 +14628,6 @@ of Homophobia Justified in the Name of God.” Tablet (August 3, 2015),
 http://www.tabletmag.com/scroll/192649/watch-orthodox-rabbi-benny-lauspowerful-denunciation-of-homophobia-justified-in-the-name-of-god
 [Last
 
-viewed December 9, 2015].
 Roskies, David G., ed. The Literature of Destruction: Jewish Responses to
 Catastrophe. Philadelphia: Jewish Publication Society, 1988.
 Ross, Dennis. Doomed to Succeed: The U.S.-Israel Relationships from Truman
@@ -14792,7 +14763,6 @@ http://www.unhcr.org/3ebf9bab0.pdf [Last viewed December 7, 2015].
 http://www.un.org/documents/ga/res/36/a36r027.htm
 [Last
 viewed
-December 8, 2015].
 Weinberg, David M. “Yitzhak Rabin Was ‘Close to Stopping the Oslo Process.’”
 Jerusalem
 Post
@@ -14817,7 +14787,6 @@ Ynetnews.com
 2014),
 
 http://www.ynetnews.com/articles/0,7340,L-4585767,00.html [Last viewed
-December 8, 2015].
 Zipperstein, Steven J. Elusive Prophet: Ahad Ha’am and the Origins of Zionism.
 Berkeley: University of California Press, 1993.
 

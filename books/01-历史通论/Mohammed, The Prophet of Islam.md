@@ -1,8 +1,5 @@
 # Mohammed, The Prophet of Islam
 
-> 来源: Mohammed, The Prophet of Islam.epub
-> 提取于: iSlam/先知·穆罕默德/Mohammed, The Prophet of Islam.epub
-
 []
 
 The Project Gutenberg eBook, Mohammed, The Prophet of Islam, by H. E. E. Hayes
@@ -93,7 +90,6 @@ PRAY FOR ALL CHRISTIAN WORK AMONGST MOSLEMS
 5.  WORLD CONQUEST.
 6.  MOHAMMED AND WOMEN.
 
-------------------------------------------------------------------------
 
 PREFACE.
 
@@ -129,7 +125,6 @@ GREENHITHE:
 
 July, 1914.
 
-------------------------------------------------------------------------
 
 INTRODUCTION.
 
@@ -415,7 +410,6 @@ earth—those men whose claims are ratified by their happy effects. As it
 is, his name is linked with those whose deeds cause a shudder of horror
 and repulsion to all who love honesty, purity, and truth.
 
-------------------------------------------------------------------------
 
 I.—EARLY LIFE.
 
@@ -521,7 +515,6 @@ standing, raising him to a position of equality with the leading men of
 the city. For many years he was content to live quietly as an ordinary
 citizen, engrossed in the accumulation of wealth by legitimate trading.
 
-------------------------------------------------------------------------
 
 II.—THE "CALL" TO THE PROPHETIC OFFICE.
 
@@ -590,7 +583,6 @@ abrogation which he afterwards adopted, for such a policy was necessary
 to enable him to cover or justify his actions which, like those of even
 the best of men, were marked by inconsistency.
 
-------------------------------------------------------------------------
 
 III.—BIRTH OF THE ISLAMIC SOCIETY.
 
@@ -744,7 +736,6 @@ earliest actions after arrival was to consolidate his forces by
 strengthening the brotherhood, making the obligations of his followers
 to one another, and himself, more binding than the ties of blood.
 
-------------------------------------------------------------------------
 
 IV.—GROWTH AND PROGRESS.
 
@@ -959,7 +950,6 @@ prophet, and as such was free of all obligation to those who did not
 follow him, a principle deeply rooted in Islam, which makes the
 violation of all virtuous relations with unbelievers highly meritorious.
 
-------------------------------------------------------------------------
 
 V.—WORLD CONQUEST.
 
@@ -1022,7 +1012,6 @@ rather than a statutory obligation. Thus the regular payments of alms
 became one of the five acts of faith imposed upon all believers. The
 other acts are: confession of creed, prayer, fasting, and pilgrimage.
 
-------------------------------------------------------------------------
 
 VI.—MOHAMMED AND WOMEN.
 
@@ -1186,7 +1175,6 @@ sons and daughters of Islam who sit in darkness and the shadow of death.
 
  
 
-------------------------------------------------------------------------
 
 ***END OF THE PROJECT GUTENBERG EBOOK MOHAMMED, THE PROPHET OF ISLAM***
 

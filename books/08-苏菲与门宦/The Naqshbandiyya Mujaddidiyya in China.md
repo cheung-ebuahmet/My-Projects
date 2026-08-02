@@ -1,7 +1,5 @@
 # The Naqshbandiyya Mujaddidiyya in China
 
-> 来源: The Naqshbandiyya Mujaddidiyya in China.pdf
-
 JRAS, Series 3 (2024), 34, 271–302
 doi:10.1017/S1356186322000773
 
@@ -108,7 +106,6 @@ The specific examples I present for these five sections are 1) the Dingmen 丁�
 order; 3) the Qi 祁lineage; 4) the Huasi 花寺branch of the Khāfiyya order; and 5) the Ikhwānī leader Hu Songshan
 虎嵩山.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 Journal of the Royal Asiatic Society
 
@@ -162,7 +159,6 @@ Naqshbandis in the Ottoman World, 1450–1700 (Albany, 2005).
 Algar, ‘Naqshbandī Order’, p. 143.
 7
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 274
 
@@ -219,9 +215,7 @@ Asiatiques 70.1 (2016), pp. 133–69; N. Tatsuya [中西竜也], Chūka to Taiwa
 Musurimu No Sisōteki Eii [Islam in Dialogue with Chinese Civilization: Intellectual Activities of Chinese Muslims during
 the 17th–19th Centuries] (Kyoto, 2013), p. ix.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 275
 
@@ -271,7 +265,6 @@ Zarcone, ‘Sufi private family archives’; Zarcone, ‘Sufi networks in southe
 lineages among the Salar’; Ziad, Traversing the Indus and the Oxus.
 14
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 276
 
@@ -321,9 +314,7 @@ more difficult to categorise identity groups. However, from at least the sevente
 
 D. Gladney, Muslim Chinese: Ethnic Nationalism in the People’s Republic (Cambridge, MA, 1996).
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 277
 
@@ -375,7 +366,6 @@ Chen Guoguang, ‘Preliminary discussion on Imam Rabbani’.
 ‘About us’, Naqshbadi Sufi, https://www.naqshbandisufi.org/about/ (accessed 19 August 2022).
 17
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 278
 
@@ -435,9 +425,7 @@ Xuepai Dianji, (eds.) Ma Tong and Ma Haibin, pp. 531–38.
 25
 Ibid., p. 532.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 Table 1. Mujaddidı̄ transmissions to Eastern Turkistan
 
@@ -565,14 +553,12 @@ Ibid., p. 497.
 Ibid.
 28
 
-Journal of the Royal Asiatic Society
 
 ‘India’
 
 280
 Rian Thum
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 Table 1. (Continued.)
 
@@ -657,7 +643,6 @@ Weismann, Naqshbandiyya, p. 130.
 
 33
 
-Journal of the Royal Asiatic Society
 
 281
 
@@ -717,7 +702,6 @@ Hong Laotaiye], sohu.com, 24 August 2016, https://www.sohu.com/a/111924555_24387
 40
 Calculation based on Google Earth satellite imagery.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 282
 
@@ -779,9 +763,7 @@ divine name. The second, nafi wa ithbat, is a more advanced practice.’
 Ma Fengyu, ‘Hufuye Hongmen Menhuan’, pp. 25–26. Dao and jiao are glossed in the same passage as tuolegeti
 and shere’erdi, respectively.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 283
 
@@ -837,7 +819,6 @@ these names are for the overarching orders, with the suborders named by mosque, 
 name.
 48
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 284
 
@@ -892,9 +873,7 @@ Luo Yunxi 罗韵希 and Shi Quyang 师初阳 (eds.), ‘Qi Mingde 祁明德’, 
 I obtained my first copy in Urumqi. These works have also served as important sources for foreign academics, notably J. N. Lipman, Familiar Strangers: A History of Muslims in Northwest China (Seattle, 1998); Erie,
 China and Islam.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 285
 
@@ -953,7 +932,6 @@ J. N. Lipman, ‘Head-wagging and the sounds of obscenity: conflicts over sound 
 Ha, Sound of Salvation.
 56
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 286
 
@@ -1010,9 +988,7 @@ including Bahā’ al-Dīn Naqshband, who was retrospectively depicted as the �
 Muḥammad Murād Ramzī used numerous nisbas, including al-Qazānī and al-Makkī. I have used
 al-Manzilāwī throughout because it gives the most specific point of origin, the town of Mizala (Menzelinsk),
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 287
 
@@ -1066,7 +1042,6 @@ Manzilāwī with the title ‘Efendi’.
 65
 [Qi Mingde 祁明德] and [Qi Jiequan 祁介泉], Long Ahong, p. 1.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 288
 
@@ -1122,9 +1097,7 @@ Linxia. See also Erie, China and Islam.
 67
 Author’s fieldwork, 2017.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 289
 
@@ -1177,7 +1150,6 @@ Luo Yunxi 罗韵希 and Shi Quyang 师初阳 (eds.), ‘Maiketubate 麦克图巴
 Quanshu 中国伊斯兰百科全书 [Chinese Encyclopaedia of Islam] (Chengdu, 1994).
 69
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 290
 
@@ -1238,9 +1210,7 @@ M. Emin, Majālis Irshādiyyah (Shanghai, n.d.).
 Ma Tong, Zhongguo Yisilan Jiaopai Yu Menhuan Zhidu Shilüe, p. 96.
 72
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 291
 
@@ -1296,7 +1266,6 @@ B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%85%D8%A7-%D8%A7%D9%86%D8%BA-%D9%8A%D
 82
 Al-Sudairi, ‘Traditions of Māturīdism and anti-Wahhābism in China’, p. 359.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 292
 
@@ -1440,11 +1409,9 @@ Tan Wutie and Fu Yu, Xinjiang Huizu Yisilan Jiao Shilue., p. 398.
 
 Rian Thum
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 Table 2. Mujaddidı̄ transmissions from Eastern Turkistan to and within China proper
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 Ding Xiang
 (丁香)
@@ -1546,7 +1513,6 @@ centuries
 Hong Hairu洪海
 儒
 
-Journal of the Royal Asiatic Society
 
 Circa 1796–1820
 
@@ -1603,9 +1569,7 @@ Ma Fengyu, ‘Hufuye Hongmen Menhuan’, pp. 44–45.
 88
 M. M. Sayrāmī, Tārikh-i Ḥamīdī (Beijing, 1911).
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 295
 
@@ -1658,7 +1622,6 @@ See Guanli Ye, Reshiha’er, p. 18, where Ma Mingxin is said to have the ninth r
 Ziad, Traversing the Indus and the Oxus.
 90
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 296
 
@@ -1715,9 +1678,7 @@ Taẕ kirah’i ḥaz̤ rat haft Muḥammadān.
 Anonymous, Jiu Pin Chengzhuan, p. 78.
 94
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 297
 
@@ -1777,7 +1738,6 @@ R. Thum, ‘“Sunni” veneration of the twelve imams in Khotan’, Journal of 
 (2022), pp. 621–642..
 100
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 298
 
@@ -1833,9 +1793,7 @@ l’Islam. Cheminements et Situations Actuelles, (eds.) A. Popovic and G. Veinst
 109
 Tan Wutie and Fu Yu, Xinjiang Huizu Yisilan Jiao Shilue, p. 28.
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 299
 
@@ -1883,7 +1841,6 @@ cited as a general source of wisdom in other Eastern Turki works, notably severa
 texts. On the trade risāla genre, see J. E. Dagyeli, ‘Gott liebt das Handwerk’: Moral, Identität und religiöse
 Legitimierung in der mittelasiatischen Handwerks-risala (Wiesbaden, 2011).
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 300
 
@@ -1943,9 +1900,7 @@ me the text, which was in a glass display case, but said he did not have the key
 Ziad, Traversing the Indus and the Oxus.
 112
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
-Journal of the Royal Asiatic Society
 
 301
 
@@ -1997,7 +1952,6 @@ China’.
 Author’s fieldwork, 2004–05, 2007–08, 2015.
 115
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press
 
 302
 
@@ -2034,4 +1988,3 @@ Conflicts of interest. None.
 Cite this article: Thum R (2024). The Naqshbandiyya Mujaddidiyya in China. Journal of the Royal Asiatic Society 34,
 271–302. https://doi.org/10.1017/S1356186322000773
 
-https://doi.org/10.1017/S1356186322000773 Published online by Cambridge University Press

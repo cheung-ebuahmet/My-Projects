@@ -1,8 +1,5 @@
 # InstructionsforPerformingMuslimPrayers
 
-> 来源: InstructionsforPerformingMuslimPrayers.pdf
-> 提取于: iSlam/伊斯兰概论·入门/InstructionsforPerformingMuslimPrayers.pdf
-
 Instructions for Performing Muslim Prayers
 Step 1
 

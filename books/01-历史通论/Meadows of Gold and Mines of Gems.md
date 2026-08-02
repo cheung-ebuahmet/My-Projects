@@ -1,7 +1,5 @@
 # Meadows of Gold and Mines of Gems
 
-> 来源: Meadows of Gold and Mines of Gems.pdf
-
 Mas`udi, Muruj al-Dhahab wa Ma`adin al-Jawhar. Translated by Tarif Khalidi
 
 Translator’s Introduction
@@ -726,15 +724,12 @@ Chapter 107. An account of the caliphate of al-Saffah and a brief
 narrative of his history and conduct together with a summary account of
 his days.
 Chapter 108. An account of the caliphate of al-Mansur and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 109. An account of the caliphate of al-Mahdi and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 110. An account of the caliphate of al-Hadi and a brief narrative
 of his history and conduct together with a summary account of his days.
 Chapter 111. An account of the caliphate of al-Rashid and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 20
 
@@ -743,28 +738,20 @@ events of their times.
 Chapter 113. An account of the caliphate of al-Amin and a brief narrative
 of his history and conduct together with a summary account of his days.
 Chapter 114. An account of the caliphate of al-Ma’mun and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 115. An account of the caliphate of al-Mu`tasim and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 116. An account of the caliphate of al-Wathiq and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 117. An account of the caliphate of al-Mutawakkil and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 118. An account of the caliphate of al-Muntasir and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 119. An account of the caliphate of al-Musta`in and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 120. An account of the caliphate of al-Mu`tazz and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 121. An account of the caliphate of al-Muhtadi and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 
 21
@@ -776,20 +763,16 @@ Chapter 123. An account of the caliphate of al-Mu`tadid and a
 comprehensive narrative of his history and conduct together with a
 summary account of his days.
 Chapter 124. An account of the caliphate of al-Muktafi and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 125. An account of the caliphate of al-Muqtadir and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 126. An account of the caliphate of al-Qahir and a brief narrative
 of his history and conduct together with a summary account of his days.
 Chapter 127. An account of the caliphate of al-Radi and a brief narrative
 of his history and conduct together with a summary account of his days.
 Chapter 128. An account of the caliphate of al-Muttaqi and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 129. An account of the caliphate of al-Mustakfi and a brief
-narrative of his history and conduct together with a summary account of
 his days.
 Chapter 130. An account of the caliphate of al-Muti` and a brief narrative
 of his history and conduct together with a summary account of his days.
@@ -9289,7 +9272,6 @@ upon Hurmuz, choked him to death and rejoined Abrawiz. Bahram’s
 cavalry pursued them and there were skirmishes between them at certain
 localities. But they managed to escape the cavalry and Abrawiz resumed
 his journey. Regarding Hurmuz, Waraqa ibn Nawfal* recited the
-following verses:
 None of his treasures were of any use to Hurmuz:
 `Ad had sought eternity but failed to achieve it.
 Nor did Solomon achieve it,
@@ -11303,7 +11285,6 @@ fortress asked to surrender peacefully and were granted safe-conduct.
 However, the story that it was conquered by force is the more prevalent
 version than the one that it surrendered peacefully.
 768. Regarding this event, the poet Abu Nuwas al-Hakami wrote the
-following verses:
 Heraclea fell when it witnessed a wonder:
 Birds falling upon it bearing naphtha and tar.
 As though our fires from the side of their fortress
@@ -14247,7 +14228,6 @@ We lived there before Zamzam,
 Having inherited it from the progeny of Hini son of Nabt son of Jurhum.
 150
 
-He also recited:
 Our shelter was Jurhum, and what a shelter it was!
 Guardians and protectors of God’s House,
 They committed sin, after having been pious,
@@ -15512,7 +15492,6 @@ twenty-three years during the reigns of Ardashir son of Babik and Sabur
 al-Junud (“of the soldiers”), so his reign totaled one hundred and
 eighteen years. Jadhima was known as Abu Malik, and concerning him
 a pre-Islamic poet, Suwaid ibn Abi Kahil al-Yashkuri recited the
-following verses:
 If I taste my death, it was tasted before me by
 Tasm of `Ad and Jadis, of evil deeds,
 As too by Abu Malik, that old man,
@@ -15974,7 +15953,6 @@ When that state of affairs came to an end and passed away, the scream
 of Time fell upon us, dispersing our unity and scattering our
 community. Such is Time, O Sa`d. There are no people who live long in
 happiness but Time will follow this up with grief.” She then recited the
-following verses:
 We once ruled people, and ours was to command,
 When, lo and behold, we became like subjects.
 Fie on a world whose joys do not last!
@@ -16231,7 +16209,6 @@ We remained at the House for ten days of that month,
 215
 
 And made a key for its door.
-He also recited:
 I do not deserve to be called the Yemeni Tubba`
 If my cavalry do not run through the Sawad of Iraq,
 Or if the tribe of Rabi`a is not forced to pay me tribute,
@@ -24428,7 +24405,6 @@ sending to him that group of his fellow tribesmen.
 1636. Poets elegized him, mentioning the manner in which `Amr ibn
 Jurmuz had killed him by stealth. Among those bemoaning him was his
 wife `Atika bint Zaid ibn `Amr ibn Nufail, sister of Sa`id ibn Zaid, in the
-following verses:
 Ibn Jurmuz murdered by stealth a mighty warrior in battle,
 And one who did not flee from an adversary.
 O `Amr, if only you had alerted him to your presence,
@@ -29796,7 +29772,6 @@ them were the women of Hamdan. `Ali had favored Hamdan and it was
 he who recited:
 Had I been a gatekeeper of paradise,
 I would tell Hamdan: “Enter in peace.”
-He also recited:
 I mobilized Hamdan and they mobilized Himyar.
 At Siffin, not a single one of them [i.e. Hamdan] was with Mu`awiya and
 the people of al-Sham, except for a few who lived in the Ghuta of
@@ -32330,7 +32305,6 @@ I find you, my love, to be thus:
 If you wish me to love you more, you will find me unable to offer you any
 greater love.
 Jarir said: “It is all false, may God guide you! But I did compose the
-following verses:
 Who barred the path of hypocrites?
 Or who can overpower enemies like al-Hajjaj?
 Or who protects the honor of women,
@@ -33260,7 +33234,6 @@ said: “This is a punishment from God who intended revenge upon you for
 my failure to read the letter. Had I read it before, I would have carried out
 its instructions.” The Quraish man then left and returned to Sulaiman. AlFarazdaq and others standing by the gate of Sulaiman asked the man what
 Khalid had done to him and he informed them. So al-Farazdaq recited the
-following verses:
 Ask Khalid, and may God not bless Khalid:
 When did Qasr [Khalid’s tribe] ever rule over Quraish or obtain its
 obedience?
@@ -36469,7 +36442,6 @@ Honor for a Bahili, even when careful to protect it,
 Is of no more concern to him than a table napkin.
 2354. The man said: ‘No, by God, I am not from Bahila.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Fazara.’ She said: ‘Do you
-know the fellow who recited:
 Do not, when alone with a Fazari,
 Trust him with your young she-camel,
 But tie up her vulva with a padlock.
@@ -36479,7 +36451,6 @@ They are a people who, when guests approach their territory,
 Tell their mother: Go piss on the fire!
 The man said: ‘No, by God, I am not from Fazara.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Thaqif.’ She said: ‘Do you
-know the fellow who recited:
 Genealogists have lost track of Thaqif’s ancestor,
 For they have no ancestor but wickedness.
 If Thaqif’s descent is described or it describes its descent
@@ -36488,7 +36459,6 @@ They are swine who frequent toilets, so kill them,
 For shedding their blood is licit for you.
 The man said: ‘No, by God, I am not from Thaqif.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from `Abs.’ She said: ‘Do you
-know the fellow who recited:
 When a woman of `Abs gives birth to a boy,
 Bring her glad tidings of yet another malicious person added to their
 number.
@@ -36496,27 +36466,22 @@ number.
 
 2355. The man said: ‘No, by God, I am not from `Abs.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Tha`laba.’ She said: ‘Do
-you know the fellow who recited:
 Tha`laba ibn Qabs are the worst of all tribes:
 The most malicious and most treacherous to a neighbor.
 The man said: ‘No, by God, I am not from Tha`laba.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Ghaniyy.’ She said: ‘Do
-you know the fellow who recited:
 When a woman of Ghaniyy gives birth to a boy,
 Give her glad tidings of the arrival of yet another skillful tailor.
 The man said: ‘No, by God, I am not from Ghaniyy.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Murra.’ She said: ‘Do you
-know the fellow who recited:
 When a Murra woman daubs henna on her hands
 Marry her off and don’t trust her not to be an adulteress.
 2356. The man said: ‘No, by God, I am not from Murra.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Dabba.’ She said: ‘Do you
-know the fellow who recited:
 Your eyes have turned blue, O Ibn Muka`bir,
 Blue from malice, like the eyes of every person from Dabba.
 The man said: ‘No, by God, I am not from Dabba.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Bajila.’ She said: ‘Do you
-know the fellow who recited:
 We asked about Bajila and where it camped
 To find out where it had finally settled.
 For when Bajila is summoned to war,
@@ -36540,12 +36505,10 @@ They sold the Ka`ba of the All-Merciful openly,
 In return for a wine skin. Wretched is he who boasts of wickedness!
 The man said: ‘No, by God, I am not from Khuza`a.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Salih.’ She said: ‘Do you
-know the fellow who recited:
 What’s the matter with Salih? May God frustrate all their endeavors!
 They masturbate using their hands and keep their penises idle.
 2358. The man said: ‘No, by God, I am not from Salih.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Laqit.’ She said: ‘Do you
-know the fellow who recited:
 I assure you: neither the seas nor deserts,
 Are wider than the arseholes of Laqit.
 Laqit is the most evil of those who ride on mounts,
@@ -36565,12 +36528,10 @@ Leave Kinda to its weaving:
 The most it can boast of is cause for shame.
 The man said: ‘No, by God, I am not from Kinda.’ She said: ‘From which
 tribe then?’ He said: ‘I am a man from Khath`am.’ She said: ‘Do you
-know the fellow who recited:
 And if you were to whistle at Khath`am,
 They would fly through the earth like locusts.
 2359. The man said: ‘No, by God, I am not from Khath`am.’ She said:
 ‘From which tribe then?’ He said: ‘I am a man from Tai’.’ She said: ‘Do
-you know the fellow who recited:
 Tai’ is merely a crowd of native peasants, collected together,
 Who said: “We travelled far [taya’na]”, but this was a mere word which
 lasted through time.
@@ -36583,7 +36544,6 @@ Is Muzaina anything but a tribe,
 From which neither generosity nor piety can be expected?
 The man said: ‘No, by God, I am not from Muzaina.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Nakh`.’ She said: ‘Do you
-know the fellow who recited:
 117
 
 If those nasty Nakh` gathered together,
@@ -36592,7 +36552,6 @@ No noble glory can be attributed to them,
 Nor can they be counted as truly honorable.
 2360. The man said: ‘No, by God, I am not from Nakh`.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Awd.’ She said: ‘Do you
-know the fellow who recited:
 If you are ever a guest of the Awd, in their territory,
 Be sure you will not escape them.
 Trust neither an old man, nor a youth,
@@ -36604,13 +36563,11 @@ If a tribe were to boast of ancient glory,
 Boasting of generosity leaves all of Lakhm far behind.
 The man said: ‘No, by God, I am not from Lakhm.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Judham.’ She said: ‘Do you
-know the fellow who recited:
 If a cup of wine were one day to pass around, toasting some noble act,
 It would skip Judham.
 2361. The man said: ‘No, by God, I am not from Judham.’ She said:
 ‘From which tribe then, woe to you! Aren’t you ashamed to lie so much?’
 He said: ‘I am a man from Tanukh, and that’s the truth.’ She said: ‘Do
-you know the fellow who recited:
 When Tanukh, on a raid for vengeance, blocks a watering hole,
 They retire, shamed by God on high,
 And with an evil reputation among their own people and their neighbors.
@@ -36633,12 +36590,10 @@ If a cricket chirps in the land of Yuhabir,
 They die of fright and turn into decaying bones in the earth.
 The man said: ‘No, by God, I am not from Yuhabir.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Qushair.’ She said: ‘Do you
-know the fellow who recited:
 O tribe of Qushair, I have killed your chieftain,
 And now there is no blood-money and no revenge.
 The man said: ‘No, by God, I am not from Qushair.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Umayya.’ She said: ‘Do
-you know the fellow who recited:
 The structure of the Umayya is tottering,
 And it is easy for God to destroy it.
 In the past, their power defied God,
@@ -36656,7 +36611,6 @@ If you say you are the family of the Prophet Muhammad,
 The Christians can say they are the family of Jesus son of Mary.
 The man said: ‘No, by God, I am not from Hashim.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Hamdan.’ She said: ‘Do
-you know the fellow who recited:
 If, one day, the wheels of war turn above the heads of men,
 You’d see Hamdan urging their mounts quickly to escape the fighting.
 2364. The man said: ‘No, by God, I am not from Hamdan.’ She said:
@@ -36668,14 +36622,12 @@ They swing back and forth: neither Qahtan nor Nizar is their ancestor,
 So confine them to hellfire.
 The man said: ‘No, by God, I am not from Quda`a.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Shaiban.’ She said: ‘Do you
-know the fellow who recited:
 Shaiban is a numerous tribe,
 And all are disgusting and malicious.
 Not a single noble or aristocratic person is found among them,
 Nor one who is intelligent or generous.
 The man said: ‘No, by God, I am not from Shaiban.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Numair.’ She said: ‘Do you
-know the fellow who recited:
 120
 
 Lower your gaze for you are from Numair,
@@ -36691,17 +36643,14 @@ When a man from Taghlib clears his throat at meal times,
 He scratches his arse and quotes proverbs.
 The man said: ‘No, by God, I am not from Taghlib.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Mujashi`.’ She said: ‘Do
-you know the fellow who recited:
 A woman from Mujashi`, when her husband is absent, weeps,
 And, when heard, her weeping sounds like a donkey braying.
 The man said: ‘No, by God, I am not from Mujashi`.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Kalb.’ She said: ‘Do you
-know the fellow who recited:
 Do not come anywhere near Kalb or the door of its tent,
 For the night traveller has no hope of glimpsing their fire.
 2366. The man said: ‘No, by God, I am not from Kalb.’ She said: ‘From
 which tribe then?’ He said: ‘I am a man from Taym.’ She said: ‘Do you
-know the fellow who recited:
 A woman of Taym, her clitoris like an elephant’s tusk,
 Guides the millstone with fingers slow in action [reading mahdhum].
 The man said: ‘No, by God, I am not from Taym.’ She said: ‘From which
@@ -36779,7 +36728,6 @@ exposed since he was in a state of ihram.* In another version, he is said to
 have died in al-Batha’, near Bi’r Maimun, and was buried in al-Hajun,
 aged sixty-five.
 A summary narrative of his history and conduct together with a brief
-account of his days
 2371. Sallama, mother of al-Mansur, is reported to have said: “While
 pregnant with Abu Ja`far I dreamt that a lion had come out of my womb,
 sat on his haunches, roared and beat the ground with his tail. Lions then
@@ -38433,7 +38381,6 @@ He rolled up his sleeves for war,
 
 Neither inexperienced nor irresolute.
 A short narrative of his history and conduct together with a brief
-account of his days
 2470. Al-Hadi was hard of heart, with a vile temper and very stubborn,
 but was very fond of literature. He was a stalwart character, courageous, a
 warrior and very generous. The state secretary Yusuf ibn Ibrahim,
@@ -38832,7 +38779,6 @@ twenty-three years, two months and eighteen days in another version. He
 assumed the caliphate aged twenty-one years and two months and died
 aged forty-four years and four months.
 A short narrative of his history and conduct together with a brief
-account of his days
 2494. When the caliphate passed to al-Rashid he summoned Yahya ibn
 Khalid [al-Barmaki] and said to him: “Father, it was you who put me in
 this place through your blessings, good fortune and sound management. I
@@ -39585,7 +39531,6 @@ said: ‘When he told me all this, I remained for a while not knowing where
 I was. Then I said: ‘Now that she has refused you and I know she will
 never accept intercession from anyone else, I can say all hope is
 abandoned.’ Abu’l `Atahiya then wore woolen garments* and recited the
-following verses:
 I cut off all ropes of hope I had of you,
 And took down the baggage on my mount.
 I found the coldness of despair in my heart,
@@ -39621,17 +39566,14 @@ We are terrified for a while when death is mentioned,
 But are seduced by the world, so we amuse ourselves and play.
 We, sons of this world, have been created for another world,
 But while you’re in it, you find it something lovable.
-He also recited:
 Its bereavements stalk you, and life in this world is hardship,
 Its toil is full of trouble, its kingship ever-changing.
-He also recited:
 When a person lives long, his end delayed,
 10
 
 He becomes like a robe which is tattered when once it was new.
 I am surprised by an intelligent person who wastes
 That which he needs on the day of his death.
-He also recited:
 Do not trust this world and its treachery:
 How many like you has it deceived!
 All are agreed in censuring it,
@@ -39641,12 +39583,10 @@ You are merely something borrowed
 From that to which you shall be returned, as all things borrowed are.
 How can one enjoy the pleasure of a few days,
 When his every breath is counted?
-He also recited:
 Your life is a series of breaths that can be counted,
 And as each breath is exhaled, a part of you has passed away.
 Each moment that keeps you alive also kills you,
 While a camel driver chants to you, intending no jollity.
-He also recited:
 O death, I find you inevitable,
 You arrive, neither acting unjustly nor showing favoritism.
 As if you have attacked my grey hairs,
@@ -39656,7 +39596,6 @@ I forgot death, among other things I forgot,
 As if I do not see anyone dying.
 Is not death the end of every living thing?
 So why do I not hasten to do that which must come to pass?
-He also recited:
 11
 
 Certain events have admonished you, silently,
@@ -39664,7 +39603,6 @@ And times gone by have mourned you [reading na`atka azminatun].
 They spoke of bones rotting and shapes that are at rest.
 They showed you your tomb among other tombs,
 While you’re still alive and not yet dead.
-He also recited:
 How many have built a house to rest in its shade,
 But rested in their grave, the house uninhabited.
 2543. Ishaq ibn Ibrahim al-Mawsili reported: “One night, as I sang to alRashid, he was enchanted by my singing and said: ‘Do not leave.’ I
@@ -40952,7 +40890,6 @@ younger than al-Ma’mun. From the moment he was deposed until the
 moment he was killed, he was besieged for a period of one and a half
 years and thirteen days, during two days of which he was imprisoned.
 A brief narrative of his history and conduct together with a summary
-account of his days
 2620. When al-Rashid died, al-Ma’mun was in Merv. Salih ibn al-Rashid
 dispatched Raja’, the royal servant, to Muhammad al-Amin, Raja’ being a
 client of Muhammad, and he brought him the news in twelve days to the
@@ -42222,8 +42159,6 @@ greeted him as caliph and his name would be mentioned on mosque
 pulpits in major cities, in Mecca and Medinah, in smaller towns, and on
 plains and mountains, wherever Tahir had conquered territories in his
 name. Al-Amin was acknowledged as caliph only in Baghdad.
-A brief narrative of his history and conduct together with a summary
-account of his days
 2695. Al-Ma’mun fell under the influence of al-Fadl ibn Sahl to the point
 where the latter competed with him in the matter of a slave girl that alMa’mun wanted to buy, so he had him killed. Some claim that alMa’mun sent someone in secret to murder him. Thereafter, the viziers
 came forward to greet him, among whom were Ahmad ibn Abi Khalid alAhwal, `Amr ibn Mas`ada and Abu `Abbad. All these he officially
@@ -43816,8 +43751,6 @@ bint Shabib. It is said that he obtained homage in the year 219 [834]. He
 died in Surra Man Ra’a [Samarra] in the year 227 [842], aged forty-six
 and ten months, so his caliphate lasted eight years and eight months. His
 tomb is in the palace of Jawsaq, in Surra Man Ra’a.
-A brief narrative of his history and conduct together with a summary
-account of his days
 2787. Al-Mu`tasim appointed Muhammad ibn `Abd al-Malik al-Zayyat
 as his vizier, and he remained in that post to the end of his reign. AlMu`tasim fell under the influence of Ahmad ibn Abi Du’ad, the chief
 judge. Muhammad ibn `Abd al-Malik continued to serve throughout the
@@ -44286,7 +44219,6 @@ of these cities were loud in their calls for help in their mosques and
 wherever they lived. Ibrahim ibn al-Mahdi went in to see al-Mu`tasim
 and recited a long poem in which he described the calamities described
 above and urged him on to victory and to jihad. His poem included the
-following verses:
 O indignation for the sake of God! You have witnessed what happened, so
 take revenge!
 Revenge for these women, none of whom was guilty!
@@ -44411,7 +44343,6 @@ whose walls were charred with fire and whose floor had traces of ashes.
 
 There squatted my father, naked, and with his head between his knees. He
 asked me as if in doubt: ‘Dulaf?’ I answered: ‘Dulaf.’ He recited the
-following verses:
 Had we, when dead, been left alone,
 Death would have been a relief for the living.
 However, once dead, we shall be resurrected,
@@ -44460,8 +44391,6 @@ Dhu’l Hijja, in the year 232, when he was thirty-four years old. His vizier
 was Muhammad ibn `Abd al-Malik as already related above under the
 caliphate of al-Mu`tasim. Their ages and lengths of reign are a subject of
 dispute, with some increasing and others decreasing these dates.
-A brief narrative of his history and conduct together with a summary
-account of his days
 2832. Al-Wathiq was a big eater and drinker, a generous patron, kind to
 his family and concerned for his subjects. As regards his religious views,
 he followed the opinions of his father and uncle in adhering to the
@@ -45184,8 +45113,6 @@ fourteen years, nine months and nine nights. His mother was a
 manumitted Khwarizmian slave called Shuja`. He was murdered on the
 night of Wednesday, the third of Shawwal, in the year 247 [December 10,
 861].
-A brief narrative of his history and conduct together with a summary
-account of his days
 2873. When the caliphate passed to al-Mutawakkil, he ordered a stop to
 all philosophical debates, and all that people had been discussing during
 the days of al-Mu`tasim, al-Wathiq and al-Ma’mun. He ordered people to
@@ -45276,7 +45203,6 @@ days before he died.
 2879. Ibn al-Zayyat was an eloquent writer and an accomplished poet.
 When urging al-Ma’mun to act decisively against his uncle Ibrahim ibn
 al-Mahdi, who had rebelled against him, Ibn al-Zayyat had composed the
-following verses:
 Do you not see how one thing can cause another,
 Just as fire is started by a fire stick?
 That’s how we experienced affairs,
@@ -46270,7 +46196,6 @@ And a lion who protected us from disasters.
 2942. In the year 243 [857-8], al-Mutawakkil left Damascus and headed
 back to Samarra. Between leaving Samarra and returning to it was a
 period of three months and seven days. When he left Samarra, Yazid alMuhallabi composed a lengthy poem from which we selected the
-following verses:
 I fancy al-Sham must regard Iraq with malicious glee,
 Now that the Imam has decided to leave.
 If you abandon Iraq and its inhabitants,
@@ -46774,8 +46699,6 @@ His patronymic was “Abu Ja`far.” His mother was a manumitted slave
 called Hubshiyya, a Byzantine. He assumed the caliphate aged twentyfive and the act of homage took place in the palace known as al-Ja`fari,
 built by al-Mutawakkil. He died in the year 248 [862], his caliphate
 having lasted six months.
-A brief narrative of his history and conduct together with a summary
-account of his days
 2979. The place where al-Mutawakkil was murdered was precisely the
 same place where Shirawayh had killed his father Kisra [Chosroes]
 Abrawiz. That place was known as al-Mahuza. Al-Muntasir remained in
@@ -47299,8 +47222,6 @@ renounced the caliphate and handed it to his brother al-Mu`tazz, so his
 caliphate lasted three years and eight months, or three years and nine
 months in other versions. He died on Wednesday, the third of Shawwal,
 in the year 252 [October 16, 866], and was murdered aged thirty-five.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3016. Al-Musta`in appointed Abu Musa Utamish as his vizier, and the
 man in full charge of the vizierate was a state secretary of Utamish called
 Shuja` ibn al-Qasim. When Utamish and his secretary were murdered,
@@ -47314,7 +47235,6 @@ Wasif and Bugha. The subsequent siege of Baghdad was described in our
 71
 
 book al-Awsat. About al-Musta`in, a poet of that period recited the
-following verses:
 A caliph in a cage,
 Between Wasif and Bugha.
 He repeats what they tell him,
@@ -47480,7 +47400,6 @@ deed. When he was killed, people were greatly distressed, and he was
 lamented by both near and far, grieved by both young and old, and
 bewailed by the high and the low.
 3027. A poet of that time, who bemoaned his loss, composed the
-following verses:
 Horses wept in anguish for Yahya’s loss,
 As did sharp Indian swords.
 Iraq, both east and west, lamented,
@@ -48084,8 +48003,6 @@ paid homage in Samarra and before the abdication of al-Musta`in, and
 until his own abdication, lasted four years, six months and a few days.
 Counting from the homage paid to him in Baghdad, his caliphate lasted
 three years and seven months. He died aged twenty-four years.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3066. When al-Musta`in was forced to abdicate and taken to Wasit, after
 he had testified that he had abdicated the caliphate and was not fit to
 assume it given the current divisions, and had therefore absolved people
@@ -48354,7 +48271,6 @@ She would leave it utterly crushed.
 And when she smiles, you’d imagine you were seeing
 A flash of lightening, or pearls in a string.
 Muhammad said: ‘Well done, Mani! Now improvise an addition to the
-following verses:
 Delights will not be complete unless they are such
 As delight Nanusa.
 She sang a melody which let loose a tear,
@@ -48605,8 +48521,6 @@ the time of his murder, in 256, he had not yet reached his fortieth year.
 
 His reign thus lasted eleven months, and he was buried in Samarra. It is
 said that he was born in the year 218.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3110. Despite the shortness of his reign, al-Muhtadi appointed a number
 of different viziers who thus escaped being murdered by him or otherwise
 punished. Among them was `Isa ibn Farrukhanshah.
@@ -49167,8 +49081,6 @@ year 256 [June 19, 870]. He was twenty-five years old. His patronymic
 was “Abu’l `Abbas”. His mother was a Kufan manumitted slave called
 Fityan. He died in the month of Rajab in the year 279 [892], so his
 caliphate lasted twenty-three years.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3154. When the caliphate passed to al-Mu`tamid, he appointed
 `Ubaidullah ibn Yahya ibn Khaqan, formerly the vizier of al-Mutawakkil,
 as his vizier. When `Ubaidullah died, he appointed al-Hasan ibn
@@ -49511,7 +49423,6 @@ thick garment still on. This reached al-Muwaffaq together with reports
 about his tyrannical conduct.
 3186. Regarding this matter, Abu Muhammad `Abdullah ibn al-Husain
 ibn Sa`d al-Qutrubulli composed a long poem of which we remember the
-following verses:
 144
 
 He glowered when he became tyrannical,
@@ -50297,8 +50208,6 @@ assumed the caliphate aged thirty-one and died in 289, as stated above,
 aged forty and some months, all of which reflects the differences among
 chroniclers and what they recorded in their own days. Success comes
 from God.
-A brief narrative of his history and conduct together with a summary
-account of his days
 170
 
 3242. When the caliphate passed to al-Mu`tadid, all civil wars ceased,
@@ -51776,7 +51685,6 @@ For you rightly ordered to be postponed,
 What they had brought forward.
 219
 
-He also recited:
 The day of your Nawruz is a single day,
 Which cannot be delayed,
 Starting in June,
@@ -51797,7 +51705,6 @@ old mosque, raising his hands in prayer and mounted on a Bactrian, i.e.
 double-humped camel, he had once presented that same breed of camels,
 along with other presents, to al-Mu`tadid before he was captured.
 Regarding this, al-Hasan ibn Muhammad ibn Fahm composed the
-following verses:
 Have you not observed the vagaries of Time,
 And how at times they are hard, at others easy?
 None was more noble or powerful than al-Saffar,
@@ -51888,8 +51795,6 @@ the year 295 [August 14, 908], aged thirty-one years and three months.
 His caliphate lasted six years, seven months and twenty-two days, or else,
 in another version, six years, six months and sixteen days, because of
 differences in dating among people. God knows best.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3358. Until the present time, i.e. the year 332, which is during the
 caliphate of al-Muttaqi, no caliph called `Ali had assumed the caliphate
 except `Ali ibn Abi Talib and al-Muktafi. Arriving at the Hasani palace
@@ -52449,8 +52354,6 @@ prayer on Wednesday, three nights remaining from the month of
 Shawwal, in the year 320 [October 30, 932]. His caliphate thus lasted
 twenty-four years, eleven months and sixteen days, and he was thirtyeight years and fifteen days old. But his age at death is given differently
 in other histories. God knows best.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3397. When al-Muqtadir received homage, the vizier was al-`Abbas ibn
 al-Hasan, who lasted in his post until al-Husain ibn Hamdan, Wasif ibn
 Suwartakin and other clients led a coup against al-`Abbas ibn al-Hasan,
@@ -53089,8 +52992,6 @@ year 320 [October 31, 932]. He was deposed on Wednesday, the fifth of
 Jumada I, 322 [April 23, 934], and was blinded. His caliphate lasted one
 year, six months and six days. His patronymic was “Abu Mansur” and his
 mother was a former slave.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3442. Al-Qahir first appointed Abu `Ali Muhammad ibn `Ali ibn Muqla*
 as vizier in the year 321, then dismissed him and appointed Abu Ja`far
 Muhammad ibn al-Qasim ibn `Ubaidullah ibn Sulaiman, then dismissed
@@ -53450,8 +53351,6 @@ remained in office until the tenth of Rabi` I, in the year 329 [December
 13, 940] and died a natural death in Baghdad. His caliphate thus lasted six
 years, eleven months and eight days. His mother was a manumitted slave
 called Zalum.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3467. Al-Radi first appointed as vizier Abu `Ali Muhammad ibn `Ali ibn
 Muqla, then Abu `Ali `Abd al-Rahman ibn `Isa ibn Dawud ibn al-Jarrah,
 then Abu Ja`far Muhammad ibn al-Qasim al-Karkhi, then Abu’l Qasim
@@ -54031,8 +53930,6 @@ of homage on the tenth of Rabi` I, in the year 329 [December 13, 940].
 He was deposed and blinded on Saturday, the third of Safar, in the year
 333 [September 25, 944]. His caliphate thus lasted three years, eleven
 months and twenty-three days. His mother was a former slave.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3507. When the caliphate passed to al-Muttaqi, he confirmed Sulaiman
 ibn al-Hasan ibn Makhlad as vizier. Later, he appointed Abu’l Husain
 Ahmad ibn Muhammad ibn Maimun, who was his secretary before he
@@ -54316,7 +54213,6 @@ is the worst?’ He replied: ‘He is thick in the crest and loud in clamor, the
 sort of horse which, if you let go of his reins will say ‘Rein me in’ and if
 you rein him in will say ‘Let me go.’
 3523. “The young page added: ‘The best description of a horse is in the
-following verses:
 The best mount for a hero when one day it is said:
 ‘Mount for a raid’!
 Is a great and noble horse, slim of barrel, even-tempered,
@@ -54608,8 +54504,6 @@ received the oath of homage on Saturday, the third of Safar, in the year
 from that month, in the year 334 [March 29, 946]. His caliphate thus
 lasted one year and four months, less a few days. His mother was a
 manumitted slave.
-A brief narrative of his history and conduct together with a summary
-account of his days
 3536. When we recounted the deposition of al-Muttaqi, we mentioned
 that al-Mustakfi received homage at the floodgate of the `Isa canal, in the
 countryside of Baduraya, near the village known al-Sindiyya, at the time

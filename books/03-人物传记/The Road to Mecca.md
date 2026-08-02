@@ -1,12 +1,9 @@
 # The Road to Mecca
 
-> 来源: The Road to Mecca.pdf
-
 © Аи Rights Reserved.
 
 ТН:Е ROAD ТО МАККАН
 Ьу Мипаттаа Asad
-
 
 Reprint Edition- 2004
 
@@ -824,7 +821,6 @@ receiving оп departure presents that var) in accordance with
 
 16
 
-ТНЕ ROAD ТО МЕССА
 
 еасЬ man".s status - from а handfuJ ofsiJver coins or ап аЬауа to
 the heavy purses of goJden sovereigns, horses or dromedariies
@@ -1241,7 +1237,6 @@ fatigue, broken Ьу а thirst that has gradually Ьесоте distressmg;
 
 26
 
-ТНЕ ROAD ТО МЕССА
 
 and, somewhere in those depths which опе does not want to цпcovel' ю oneself, there is that grey, squirming mollusc оС feal~:
 what will Ьарреп to те if 1do not find ту way back to Zayd and
@@ -1854,7 +1849,6 @@ s~ the old stables оГ {Ье palace filled ,vith shiny new motorcars.
 
 ..
 
-ТНЕ ROAD ТО МЕССА
 
 tbrough тапу nights, and stole into Kuwayt, and at last found
 out the truth about the cases of glittering new riyals and rifles
@@ -2078,7 +2072,6 @@ of wasbing away tbe grime and sweat of а 10ng day's journey.
 
 46
 
-ТНЕ ROAD ТО МЕССА
 
 Вш, after all, is there aIways а clearly discemible borderlinc Ьеtween the mundane and the abstruse in life? Could therc Ьауе
 . Ьееп, for instance, anything more mundane than setting out in
@@ -2312,7 +2305,6 @@ course, уои were тисЬ {оо young then todraw further еопсlиsions fr
 .And there were journeys with ту paren15 to Vienna and ВегНп and the Alps and {Ье Bohemian forests and tbe North Sea
 
 52
-ТНЕ ROAD ТО МЕССА
 and the Baltie: places 50 di5tant that they alm05t seemed to ье
 new worlds. Every time опе set out оп 5ueh а journey, the fir5t
 whistle of the train engine and the first jolt of the wheels made
@@ -2539,7 +2531,6 @@ rigid add meaningless: and when \уе young people sa\.... that these
 
 ''1
 
-ТНЕ ROAD ТО МЕССА
 
 aJleg~ divi~e q~alities often stooo in sharp contrast with what
 
@@ -2758,7 +2749,6 @@ that ту boastful game was ир.
 
 64
 
-ТНЕ ROAD ТО МЕССА
 
 '1 accept, sir,' 1 answered with а sitili and а laugh.
 ТЬе following week 1 started ту ne:W job. It was а boring job
@@ -3178,7 +3168,6 @@ t11Зt опе day 1 would kno\v it. And so 1 s\vung along 011 tl1e реп­
 
 74
 
-ТНЕ ROAD ТО МЕССА
 
 dulum of ту heart's content and discontent in exactly the same
 way as тапу other young people were doing in those strange
@@ -3343,7 +3332,6 @@ of тапу people of ту generation - 1 feel that there is something
 
 78
 
-ТНЕ ROAD ТО МЕССА
 
 wrong in making а distinction between the "essential" and the
 "non-essential" in the structure of тап, and in separating spirit
@@ -3423,7 +3411,6 @@ to Ьауе ап existence of its own, rounded in itself: between eternity and e
 
 80
 
-ТНЕ ROAD ТО МЕССА
 
 at seeing зо та,пу new things - Ьш whatever the cause, 1 suddenlу felt in myselfаН the weight of Еигоре: the weight of deliberate
 риrpoзе iri аН оцг actions. 1 thought to myself, 'How difficult it
@@ -3663,7 +3650,6 @@ clad only in а cotton tunic and а headcloth - invites us to раг. take of th
 
 86
 
-ТНЕ аОАО ТО МЕССА
 
 gesture with his Ьаnd, а single movement in ""ЫсЬ the whole
 weight of bls fate is expressed with that artless power оС evocation so peculiar to people who live close to their instincts - 'but
@@ -3743,7 +3729,6 @@ Jt somehow disturbed те to see so г(:3.1 а ргауег combined
 
 88
 
-ТНЕ ROAD ТО МЕССА
 
 with almost mechanical body movements, and опе dзу 1 asked
 the hajji, who understood а little English:
@@ -4076,7 +4061,6 @@ Ldid not feel Ьарру about the outcome of ту intervention. 1
 
 96
 
-ТНЕ ROAD ТО МЕССА
 
 . Ьад of course not expected апу of those present - least ofall Dr.
 Weizmann himself - to subscribe to ту conviction that the
@@ -4323,7 +4307,6 @@ thousand forces - politicaI,social and economic -аге Ьаmшегing at the do
 
 104
 
-ТНЕ ROAD ТО МЕССА
 
 to the pressure оС the Western twentieth century and in the ргоcess lose not only its оwn traditional forms but its spiritual roots
 as well?
@@ -4551,7 +4534,6 @@ conquest of their homeland in the nineteenth century) plodded
 
 110
 
-ТНЕ ROAD ТО МЕССА
 
 heavi1y through thc bazaar, which in spitc of its sma1lness was
 fu11 of а bustle and commotion worthy of а тисЬ larger city.
@@ -5143,7 +5125,6 @@ Suddenly 1 heard the whirr of а rnotor СБ.r. It stopped before
 
 124
 
-ТНЕ ROAD ТО МЕССА
 
 the station gate. А moment later а тап io civilian dress with а
 red tarbush оп his head entered the room wlth а quick step,
@@ -5613,7 +5594,6 @@ doing 50 for years -like а beduin, without а tent and \vithout
 
 136
 
-ТНЕ ROAD ТО МЕССА
 
 апу оС the smaH comCorts which the townspeople оС Najd often
 regard as iitdispensabJe оп long desert joumeys. 1 ат at Ьоте in
@@ -5687,7 +5667,6 @@ the internationally famous Dr. Heincich Simon.
 
 138
 
-ТНЕ ROAD ТО МЕССА
 
 astonishment, atmost forgetting to get ир from his chair; but
 soon Ье regained his composure, rose and shook hands with те:
@@ -5913,7 +5892,6 @@ And ~ I~'ould it ре desirable? 11 mighl Ье, a[ter аll, а bad bargain
 Weslern и'ау о[ thitik;ng:'II'e аге ИJоnl (о zmdereslimale 111e сгеа[ive value О/II,е ил/аттаг and аге allvays lempled (о do ~'iolence
 10it, 10 appropriate il, [о take il over, оп оuг mvn terms, inl00ur
 
-ТНЕ аОАО ТО МЕССА
 
 144
 
@@ -6510,7 +6488,6 @@ radically wrong \vith те.
 
 158
 
-ТНЕ ROAD ТО МЕССА
 
 as she had соте {о те. It was по! а bad deal for the family, who
 kept both the girl and the dower which 1 had paid, together with
@@ -7409,7 +7386,6 @@ people of Najd are not afraid of our hands; they are clean - and
 therefore we eat heartily and Ьу tbe handful!'
 
 180
-ТНЕ ROAD ТО МЕССА
 Sometimes, when Ье is entirely re1axed, а gentle smile plays
 about Ibn Saud's mouth and gives ап almost spiritual quality to
 the beauty ofhi5 face. 1 ат вше that were music not regarded as
@@ -7719,7 +7695,6 @@ Striet (asting is expected оС еуегу Muslim during this month.
 
 188
 
-ТНЕ ROAD ТО МЕССА
 
 food ог drink (and even to smoke) from the moment wben the
 first streak of light оп the eastem horizon annourices the coming
@@ -7795,7 +7770,6 @@ that after 50 тапу centuries their thoughts, instead оС being соп·
 
 190
 
-ТНЕ ROAD ТО МЕССА
 
 tinued and developed, would only ье repeated over and" оуег
 again. as if thcy were ultimate and infaНibIe truths. If there is {о
@@ -7868,7 +7842,6 @@ genius was to find its most lasting ffiOl1timerlt. In building that
 
 192
 
-ТНЕ ROAD ТО МЕССА
 
 monument they did по more than follow ше admonition of tbeir
 Prophet that // ОnУЬodУ ргосееш оп Ьи way in search о/ knowledge, God will make easy/ог him ,Ье way 'о Paradise; that The
@@ -7948,7 +7921,6 @@ moral chaos зпd could never agree оп апу mode of behaviour.
 
 194
 
-ТНЕ аОАО ТО МЕССА
 
 lЪou oou1dstask, оС course, whether there аге по ехсерцопв to
 the general rule - en1ightened people who feel (Ьеу have по- need
@@ -8186,7 +8158,6 @@ badly printed picture postcards were being sold, while пех! to :.
 
 200
 
-ТНЕ ROAD ТО МЕССА
 
 а few beduins were talking about the rainfal1s in the desert and
 about the recent feuds between the Syrian tribe of Bishr-Anaza
@@ -8421,7 +8392,6 @@ the odds and bits of Persian \уЫсЬ 1had managed to pick ир from
 
 206
 
-ТНЕ ROAD ТО МЕССА
 
 Тепгап to Isfahan and Sblraz, and at опе time bad calIed а team
 of horses bls own; Ье had served аэ а тгоорег in the mounted
@@ -8504,7 +8474,6 @@ if they were wa!king оуег the tesselJated floors of тагЫе pa]aces..
 
 ~
 
-ТНЕ ROAD ТО МЕССА
 
 wraps: precious, уеilед women in bIack-апd-гed, blue-silver and
 bordeaux-red - groups of brocaded figures gilding slowly Ьу оп
@@ -10359,7 +10328,6 @@ spectable! Ие was not 80 respectable when I first met Ыт, а
 
 2s4
 
-ТНЕ аОАО ТО МЕССА
 
 little over seven years аво, in the town оС Ваш, to wblch he had
 been 'exiled'. Although he was only twenty-six then, his разt
@@ -10782,7 +10750,6 @@ co//apse /ог по оррагеn! reosoll. WI,ot Ivas tlze reaSO/l? Notllillg
 110\'(' Ь('еl1 burrm\'ing раssщ:еs and rПl'i!iI'S i/i 111l' /oundOlinТlf;,
 
 264
-ТНЕ ROAD ТО МЕССА
 a/ways advancing Ьу а hair's breadth, s/ow1y, patient/y, in aJ/
 directions - unti/at last [Ье wa///oses its Ьа/аnсе and topp/es over.
 We /ranians аге suсЬ апи, We do not oppose the powers о/ (Ье
@@ -11114,7 +11081,6 @@ PERSIAN
 
 272
 
-ТНЕ ROAD ТО МЕССА
 
 must bel9ng to the opposition party. 1 don't know whether it
 might псг ье wise to Ьауе сЬет placed in poliee custody!'
@@ -11590,7 +11556,6 @@ half-heartedly {о herself alone l'
 
 284
 
-ТНЕ ROAD ТО МЕССА
 
 lше, single marriages, but allows а тап to таету ир to four
 wives under exceptional circumstances. One nlight ask why the
@@ -12169,7 +12134,6 @@ Muslims are ignorant and so fe\v сап еуеп read and \vritealthough yopr Pr
 
 298
 
-ТНЕ ROAD ТО МЕССА
 
 Тhe superiority о/ the leamed тап over the теге рюш is like the
 вирепоту о/ the тооп \1:hen it is/ull overall other stars ?'
@@ -12415,7 +12379,6 @@ I
 
 ЗО4
 
-ТНЕ аОАО ТО МЕССА
 
 people concerned. Неге, socia1progress was not, as in all other
 communities and civiJizations knоwn to bistory. а result ofpressure and counterpressure о! conflieting interests, but part and
@@ -12492,7 +12455,6 @@ u
 
 306
 
-ТНЕ ROAD ТО МЕССА
 
 ту mind to the exclusion оС everytblng else. Ву now ту absorption had outgrown its initial stages, when it had Ьееп по more
 тап ап intellectual intere5t in а strange, if attractive, ideology
@@ -12989,7 +12951,6 @@ token heIp.
 
 318
 
-ТНЕ ROAD ТО МЕССА
 
 1п 1917Sayyid Ahmadwas persuaded byhis Turkish advisen
 .to ВО ьу submarine to Istanbul аnd there апапge Сor more

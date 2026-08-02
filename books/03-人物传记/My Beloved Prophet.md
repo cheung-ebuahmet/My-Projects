@@ -1,7 +1,5 @@
 # My Beloved Prophet
 
-> 来源: My Beloved Prophet.pdf
-
 MY BELOVED PROPHET
 (sall-Allâhu ’alaihi wa sallam)
 
@@ -383,7 +381,6 @@ Suyutî, al-Laâli’l-masnûa, I, 272; Ajlûnî, Kashf-ul-hafâ, II, 164.
 
 MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Every prophet is superior to all his people in every respect, in his time, and in his
 place. Yet Our Prophet Muhammad (’alaihis-salâm) is the highest of all of the creatures which have come and will come to the world from the day the World was created
@@ -466,9 +463,7 @@ from him to Nizâr. Nizâr’ means “a little”. He was named Nizâr due to t
 
 11
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 event: When he was born, his father Ma’âdd, being pleased to see the nûr on his son’s
 forehead, gave a feast and said that the feast was only a little thing for such a son, thus
@@ -565,9 +560,7 @@ carried the nûr of Muhammad (’alaihis-salâm), was looking for water, his cam
 
 13
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 had moved a stone and water appeared. Everyone came running. They drank. After
 becoming satiated, they came to themselves.
@@ -651,9 +644,7 @@ Suhaylî, Rawzu’l-unuf, s. I, 123; Shamsaddîn Shâmî, Subulu’l-Hudâ, I
 
 15
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The sons of Israil, who understood that the Prophet of the last of time, who was acknowledged in their book, would not be of their nation, out of envy, they vowed to kill
 Abdullah. They sent seventy warriors to Mecca for this. These people were waiting
@@ -737,9 +728,7 @@ the Kâ’ba). Did he not cause their stratagem (to demolish the Kâ’ba) to mi
 
 17
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 He sent birds in flocks against them. Each of that bird hurled stones, made from
 mud and hardened in fire, down upon them. Finally, Allahu Ta’âlâ destroyed
@@ -820,9 +809,7 @@ obey the commandments of Allahu ta’âlâ and admonish each other from committi
 
 19
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 His prohibitions. Do not be deceived by your temporary power. Refrain from abandoning the truth and making cruelty in Mecca. Because, the cruelty causes the demolishing of the people. I swear by Allahu ta’âlâ that there was no people who stayed here
 and gave up obeying the commandments of Allahu ta’âlâ and was not made extinct by
@@ -870,7 +857,6 @@ that a human being could be a prophet. Some of them believed in Allahu ta’âl�
 
 21
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS HONORING THE WORLD (HIS BIRTH)
 The world was in such a deep darkness that people had abandoned believing in Allahu ta’âlâ and worshipping Him. Due to their ignorance, they worshipped the natural
@@ -901,9 +887,7 @@ Elephant, on Monday the twelfth night of the month of Rabî’ul-awwal, towards 
 
 23
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Allahu ta’âlâ, Muhammad Mustafa (sall-Allâhu ’alaihi wa sallam) was born. With his
 honoring, the universe revived. The darkness was illuminated with this nûr.20
@@ -1050,9 +1034,7 @@ Lady Safiyya narrates in this way,
 nûr. As soon as he came into the world, he prostrated and he kept his blessed head
 25
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 up and clearly he said, ‘Lâ ilâha illallâh, innî rasûlullâh’. When I wanted to wash
 him, I heard a voice saying, ‘We sent him as washed’. He was seen as circumcised
@@ -1158,9 +1140,7 @@ The fourteen towers of Persian ruler’s palace in the city of Medayin were demo
 
 27
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Again that night tremendous fires of the fire-worshippers, which were burning for
 one thousand years, suddenly went out. They recorded the date which the fire went
@@ -1242,9 +1222,7 @@ Halîma narrates,
 
 29
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “When I arrived next to the baby he was swaddled and sleeping on a green silk cover and spreading an odor of musk all around the room. I was amazed and I loved him
 so much that I could not wake him up. When I put my hand on his chest, he awakened,
@@ -1333,9 +1311,7 @@ and for his sake they had a lot of rain and blessings.
 
 31
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 he is alive or not.’ I started to panic. We arrived there quickly and saw him. I kissed
 his beloved head and said, ‘Oh the light of my eyes! Oh the mercy and grace of the
@@ -1431,9 +1407,7 @@ Death of his esteemed mother
 
 33
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 down on the place peculiar to him with his grandson and say to those who wanted to
 prevent, “Leave my son alone, he is great.”27 He constantly warned our Master, the
@@ -1514,7 +1488,6 @@ sake, it rained much. They were rescued from the drought and famine.29
 
 35
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 Priest Bahîra
 One day our Prophet (sall-Allâhu ’alaihi wa sallam), when he was about twelve
@@ -1557,7 +1530,6 @@ a lot of questions and received answers to them all. These answers coincided exa
 with the books he had read before. Then, looking into the eyes of our beloved Prophet,
 36
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 he asked Abû Tâlib, “Does this redness always stay in these blessed eyes?” “Yes,”
 he said, “We have never seen it disappear.” Next, Bahîra wanted to see the Seal of
@@ -1594,7 +1566,6 @@ very high…”31
 
 37
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS YOUTH AND MARRIAGE
 Even during his youth, as the best of all people in all aspects, Muhammad (’alaihis-salâm) was loved by the people of Mecca far more than his peers. Due to his high
@@ -1633,9 +1604,7 @@ had been given as a reference to their association. This association stopped cru
 
 39
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ty and provided security in Mecca again and maintained it’s effect for a long time.
 Our Master Rasûlullah, after his prophethood was communicated to him, told his
@@ -1720,9 +1689,7 @@ Bahira, who had seen many signs of his prophethood, had died and he was replaced
 
 41
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 by his successor Nastûra. After he saw that a dried tree turned green after somebody
 had sat under it, he asked to Maysara “Who is that person sitting under the tree?”
@@ -1803,7 +1770,6 @@ the mahr comprises of things like gold, silver, banknotes, or any kind of proper
 any kind of benefit that is given by a man to the woman he is to marry.) do you want
 me to give? I swear that Muhammad’s grade must be high.” Waraqa bin Nawfal con43
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 firmed his statements. The paternal uncle of Hadrat Khadîja, Amr bin Asad said, “Be
 a witness that I have married Khadîja binti Huwaylid to Muhammad (’alaihis-salâm).”
@@ -1877,7 +1843,6 @@ III, 293-295; Ya’qubî, Târikh, II, 15-16.
 
 45
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 My heart is in fire, I am away from home,
 Neighbor to the Kâ’ba, although I’m separated from mother.
@@ -1918,7 +1883,6 @@ happiness. After that, Ashâb-i kirâm called Zayd as Zayd bin Muhammad (the son
 Muhammad). Later on, as the adoption was removed by Allahu ta’âlâ’s decrees of
 “Call your children with the name of their fathers, this way is better.” “Muham46
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 mad (’alaihis-salâm) is not the father of any one of you (like Zayd)” as stated in the
 5th and 40th verses of Sûrat-ul-Ahzâb, Zayd began to be called as “Zayd bin Hâritha”
@@ -1958,7 +1922,6 @@ He would grant benevolences
 
 47
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS PROPHETHOOD AND HIS CALL
 The Master of the worlds (sall-Allâhu ’alaihi wa sallam), when he was thirty seven
@@ -1996,9 +1959,7 @@ In such darkness, it was necessary for a ray of light of bliss to rise for pacif
 
 49
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 As this sun rises; faith would take the place of disbelief, justice would take the place
 of cruelty; knowledge would take the place of ignorance and the people would gain
@@ -2080,9 +2041,7 @@ II, 299-302; Balâzûrî, Ansâb, I, 111; Qastalânî, Mawâhib-i Ladunniyya, s,
 
 51
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 sitting on a throne standing between the ground and sky. Fear gripped me. I went
 home. I told them to cover me with something. Haqq ta’âlâ sent the initial âyats
@@ -2170,9 +2129,7 @@ prophethood.
 
 53
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 When Muhammad (’alaihis-salâm) announced his prophethood, Hadrat Abû Bakr
 ran to our Master, the Prophet. He asked, “Prophets have proofs of their prophethoods.
@@ -2252,9 +2209,7 @@ Awwâm, Abdurrahmân bin Awf, Sa’d bin Abî Waqqas who were also the notables 
 
 55
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 their tribes.52 These eight people who became Muslim after our mother Hadrat Khadîja were called Sâbiqûn-i Islâm, that is, the early Muslims.
 
@@ -2338,9 +2293,7 @@ protector as long as we are alive.” He turned towards Muhammad (’alaihis-sal
 said, “O my brother’s son! Let us know the time when you want to invite people to
 believe in your Rabb; we will arm ourselves and be present with you.” Then, our Mas57
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ter, Fakhr-i kâinat started talking again and said, “O sons of Abdulmuttalib! I swear
 by Allah that there is no one among Arabs who has brought a thing superior or
@@ -2427,9 +2380,7 @@ does not, we know how to deal with him...” Abû Tâlib eased them and sent the
 
 59
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 He hid this event from our Prophet lest he could be sorry. After a while, the polytheists gathered again and came to Abû Tâlib. They said, “Before, we had come to you
 and informed you of the situation. You did not listen to our words. He still continues
@@ -2516,7 +2467,6 @@ face with his shoes. Hadrat Abû Bakr was drenched in blood. He became unrecogni
 have beaten and killed him. The people from Abû Bakr’s tribe took him away to his
 61
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 home in a sheet. He was exhausted and wretched. They immediately turned back to
 the Kâ’ba and said, “If Abû Bakr dies, we swear that we will finish Utba off!” then
@@ -2532,7 +2482,6 @@ is Rasûlullah’s condition? What is he doing?” His mother answered, “I swe
 that I do not know anything about your friend!” Hadrat Abû Bakr said to her, “Go to
 the daughter of Khattab, Ummu Jamîl and asked her about Rasûlullah!”
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 May Abû Lahab’s Hands Be Broken
 The house of our Master, the Prophet was between the houses of Abû Lahab and
@@ -2607,9 +2556,7 @@ And I divorced your daughter. Neither you nor I like each other any more! Neithe
 
 63
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 you nor I visit each other!” Then he attacked our beloved Prophet and held his collar.
 He tore his shirt and affronted. After these events, our beloved Prophet supplicated,
@@ -2693,9 +2640,7 @@ Again one day, Abû Jahl gathered the polytheists and asked, “Does the orphan 
 Abdullah perform the ritual prayer and wipes his face on the Earth here?” They said,
 65
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “Yes.” Awaiting this reply, Abû Jahl said, “If I see him at this state, I will smash his
 head with my foot.” One day, the Master of the prophets was performing the ritual
@@ -2777,9 +2722,7 @@ clouds. I thanked to Allahu ta’âlâ and told to myself, “O Bilâl! Everythi
 from Janâb-i Haqq is beautiful and nice.”
 67
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Again one day, Umayya bin Halaf brought out Bilâl-i Habashî to torture him. He
 undressed him; left with only his undergarments and made him lie on hot sand in the
@@ -2864,9 +2807,7 @@ polytheist. He went to him to claim it. When Âs bin Wâil said to Khabbâb, “
 you deny Muhammad, I will not give you your due.” Hadrat Khabbâb replied, “I
 69
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 swear by Allah, I cannot reject and deny my prophet, either in life or when I rise up
 from my grave after death. I abandon everything; however, I cannot make this denial.”
@@ -2947,9 +2888,7 @@ become Muslim. The polytheists would torture them more than they tortured Hadrat
 
 71
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Ammâr. During tortures, they would want them to say their words of disbelief, however, they would reply, “Even if you peal our flesh us, even if you cut our flesh into
 pieces, we will not listen to you,” and say “Lâ ilâha illallah, Muhammadun Rasûlullah.” Again, one day, at a place called Bathâ, while the Yâsar family was being
@@ -3029,9 +2968,7 @@ you?” He answered, “I am from the Ghifâr tribe.” Our Prophet asked, “Ho
 have you been here?” He replied, “I have been here for three days and three nights.”
 73
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “Who gave food to you?” “I could not find any food or drink except zamzam. As
 long as I drank zamzam, I felt no thirst or hunger.” Our Master, the Prophet said,
@@ -3115,9 +3052,7 @@ of the polytheists, went to him and said, “O Tufayl! You have come to our home
 
 75
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The orphan of Abdullah, who arose from us, has many amazing states. The words
 which he uttered are like magic. They are separating son from his father, brother from
@@ -3205,9 +3140,7 @@ soothsayers. They say the right and the wrong without hesitation. The recitation
 
 77
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Muhammad are not like the ones which were made up by the soothsayers. Furthermore, we have not heard a lie from Muhammad so far. If we say this, no one will believe us.” This time they said, “Let us call him insane.” Walîd opposed again, saying,
 “No! I swear that he is not insane or crazy. We know and well understand the signs
@@ -3288,7 +3221,6 @@ Muhammad and talk about this problem, so that people will not criticize us and r
 us in the end.” They sent a message to our Master Rasûlullah sall-Allâhu ’alaihi wa
 79
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 sallam. Upon this invitation, our Master, the Prophet came to the Kâ’ba and sat across
 from the polytheists. The polytheists said, “O Muhammad! The reason for our sending
@@ -3372,9 +3304,7 @@ been taken into consideration. If we had made him (the Prophet) an angel, again
 
 81
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 we would have shown him in a man (figure) for sure and again we would have
 thrown them into the same suspicion. They had also ridiculed and mocked the
@@ -3457,7 +3387,6 @@ Hadrat Khâlid said, “If you cut my allowance, surely, Allahu ta’âlâ will 
 
 83
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 food.” His father threatened his other sons by saying, “If any one of you speaks with
 him, I will do to you what I did not do to him.” He imprisoned Hadrat Khâlid in the
@@ -3527,9 +3456,7 @@ Kathîr, al-Bidâya, III, 94.
 
 85
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Negus, ruler of Abyssinia, treated Muslims well. He settled them in his country. The Ashâb-i kirâm said of Abyssinia, “We experienced having a good neighbor
 and protection here. Our religion was intact, we were not hurt. Nor did we hear any
@@ -3617,9 +3544,7 @@ Hadrat ’Umar’s conversion to Islam
 
 87
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 with a great enthusiasm. Even if it was a small request from him, they saw it as a
 command. They were racing against each other to help him and they were not even
@@ -3701,9 +3626,7 @@ ancestors, who came before us, are tormented in Hell and we will go there too! T
 is no way other than killing him! I will give one hundred red camels and innumerable
 89
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 gold coins to the one who will kill him!” Suddenly, the inclination towards Islam disappeared in the heart of ’Umar, son of Khattâb. He jumped and said, “There is no one
 to do that except the son of Khattâb.” They applauded him by saying, “Go ahead, the
@@ -3788,9 +3711,7 @@ religion of Allahu ta’âlâ is going to prevail in Mecca for sure. It will be 
 
 91
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 our tribe behaves, if they want to make a fuss, we will combat them.” Upon that our
 Master, Rasûlullah said, “We are few in number!”
@@ -3875,9 +3796,7 @@ to your ruler. Those who can deal with them best are their own parents and neigh
 
 93
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 They know these people very well.”82 The patriarchs accepted this suggestion. Then,
 the Meccan envoys submitted the presents to Negus. Negus accepted the presents,
@@ -3968,9 +3887,7 @@ and we regarded permitted what He allowed for us and acted so. For this reason, 
 people became an enemy to us and made cruelty to us. They tormented us, to force us
 95
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 to abandon worshipping Allah. They tortured us. They oppressed us. They interfered
 between us and our religion. They wanted us to detach from our religion. So, we left
@@ -4055,9 +3972,7 @@ to strengthen their unity and solidarity. None of them gave up his religion; the
 hesitate to sacrifice their lives for the sake of our Master Rasûlullah. As the tribes of
 97
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Mecca heard of this, their interest in Islam was increasing and the lights of Islam were
 reaching further places. The polytheists were furious with anger when they learned
@@ -4146,9 +4061,7 @@ Thus, they had put away their cruelties and tortures; they had fallen into diffi
 and started to entreat our Master Rasûlullah. Our Master, the Prophet did not remind
 99
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 them of what they had done, upon their promise “We will believe”, he outstretched
 his blessed hands and prayed to Janâb-i-Haqq. Allahu ta’âlâ accepted His Darling’s
@@ -4235,9 +4148,7 @@ Rawzu’l-unuf, II, 159; Ibn Kathîr, as-Sira, II, 69.
 
 101
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Rasûlullah told his Ashâb, “O Abû Salama bin Abdulasad, Arkam bin Abi’l
 Arkam! Witness it!” He told his other Companions near him too, “Witness it!”
@@ -4323,7 +4234,6 @@ animals… Verily, the person who insults you by saying (without posterity) is b
 
 103
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 without posterity… (He is without lineage, not honorable and infamous. As for you,
 O my Darling, your clean lineage, your name will continue until the day of Reckoning.
@@ -4367,7 +4277,6 @@ more severe and he died.92
 
 104
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Demise of our mother Hadrat Khadîja
 Three years before the Hegira, in the beginning of Ramadan, at the age of 65, the
@@ -4406,7 +4315,6 @@ motionless in the air. He could not do anything. He was astonished. He returned 
 
 105
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 same manner. When he reached the polytheists, his hand returned to its previous state
 and the stone fell to the ground.
@@ -4492,9 +4400,7 @@ Balâzûrî, Ansâb, I, 227.
 
 107
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 When I introduced myself to Ibn-i Abd-i Yâlil bin Abd-i Kulâl (that is when I
 announced my prophethood and invited him to the religion) he did not accept. When
@@ -4575,9 +4481,7 @@ people of my duty of prophethood which was given by my Rabb?” They asked,
 “To whom do you belong from the Quraysh?” Our Master answered, “I am from the
 109
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 sons of Abdulmuttalib.” They asked, “If you are from the sons of Abdulmuttalib,
 why do they not protect you?” Our Master Rasûlullah replied, “They have been the
@@ -4632,7 +4536,6 @@ Now, it is very difficult to compensate this missed opportunity.”
 
 111
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 MÎ’RÂJ (ASCENSION)
 Our beloved Prophet (sall-Allâhu ’alaihi wa sallam), in this way explained Islam to
@@ -4666,9 +4569,7 @@ fell asleep.
 
 113
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 At that moment, Allahu ta’âlâ commanded to Hadrat Jabrâil ‘alaihis-salâm’, “I
 have afflicted My beloved Prophet so much. I have hurt his blessed body, his
@@ -4751,9 +4652,7 @@ the ground, then their heads would return to their previous state. As they were
 crushed once more, their heads were taking their former shapes again. ‘Who are
 115
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 they?’ I asked. He replied, ‘Those who abandon the Jum’a (Friday Prayer) and
 jamâ’at and do not properly perform the rukû’s (bowing during salât) and sajdas
@@ -4838,9 +4737,7 @@ right side of that angel. They wore green clothes and had odorous scents. It is
 
 117
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 impossible to look at their faces because of their beauteousness. On the left side of
 that angel, there were angels spreading fire from their mouths. There were fiery
@@ -4920,7 +4817,6 @@ When it was decreed to our Prophet, “Eulogize your Rabb!”, he immediately sa
 
 119
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 and eulogies in all languages, services and worships made by body, favors and benefactions made by all forms of property and humans be for Allahu ta’âlâ). Firstly,
 Allahu ta’âlâ greeted His Habîb by saying without eyes, ears, means and place, “Assalâmu alayke ayyuhannabiyyu wa rahmatullahi wa barakâtuh.” (O My Rasûl!
@@ -5005,9 +4901,7 @@ I have written down your name together with Mine
 
 121
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the world and the Hereafter. I converted the shapes of the sons of Isrâel, from human
 to the appearance of being a bear, monkey and pig. I have done this to none of your
@@ -5094,9 +4988,7 @@ ummat. My mercy has exceeded My wrath against your ummat.
 
 123
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 sound came to the world, all living things would be destroyed. I asked, “For
 which group is this layer?” Mâlik didn’t answer. I asked again, he kept silent…
@@ -5181,9 +5073,7 @@ embarrass our Master Rasûlullah, they started questioning him.
 
 125
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “O Muhammad (’alaihis-salâm)! You claim to have gone to Jerusalem. Tell us now!
 How many doors and how many windows does the masjid have?” were some of their
@@ -5242,19 +5132,15 @@ became fard to the time they started to perform it.
 O the beauty of the light of nobles’ eyes
 Give me hand, O the source of Hudâ’s light
 Your foot’s sole is the kohl of the saints
-Give me hand, O the source of Hudâ’s light
 Nobody can reach to Haqq ta’âlâ without you
 Being acceptable is possible with favor of you
 O Rasûl, you are the mercy for the worlds
-Give me hand, O the source of Hudâ’s light
 I have committed infinite fault and offence
 Became talk friend with the sinners
 Intercede for my sins O the gracious
-Give me hand, O the source of Hudâ’s light
 O great Messenger, the source of generosity
 This Selîmî is miserable and acts faultily
 At your presence, he appeals mercy
-Give me hand, O the source of Hudâ’s light
 YAVUZ SULTAN SELİM (SELÎMÎ)
 
 102 Ibn Sa’d, at-Tabaqât, I, 215.
@@ -5268,7 +5154,6 @@ YAVUZ SULTAN SELİM (SELÎMÎ)
 
 127
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE HEGIRA
 Our beloved Prophet would invite the tribes, which came to visit the Kâ’ba, to the
@@ -5307,7 +5192,6 @@ Râfi’ bin Mâlik, Qutba bin Âmir, Jâbir bin Abdullah ‘radiy-Allâhu anhum
 
 129
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The first allegiance of Aqaba and the sun from Medina
 When the six persons who became Muslim returned to their people in Medina,
@@ -5352,7 +5236,6 @@ The tribal chief of Hadrat As’ad bin Zurâra was Sa’d bin Mu’az. They were
 
 Ibn Sa’d, at-Tabaqât, I, 220; Tabarî, Târikh, II, 356; Balâzûrî, Ansâb, I, 252-253.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Therefore, Sa’d bin Mu’az, who had not embraced Islam yet, did not go to Hadrat
 As’ad bin Zurâra’s house and he did not try to stop him. As a tribal chief, he did not
@@ -5396,9 +5279,7 @@ will go.” Upon these sweet and soft words, Sa’d bin Mu’âz calmed down and
 to listen to them.
 131
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Firstly, Hadrat Mus’ab bin Umayr gave information about Islam to Sa’d bin Mu’âz.
 He explained the fundamentals of Islam. Then he recited a part of the Qur’ân al-kerîm
@@ -5476,9 +5357,7 @@ ta’âlâ and not to attribute any partner to Him; and my condition for you, ab
 myself and my Ashâb is to accommodate us, to help me and my Ashâb and to protect us from that which you defend yourself against and protect yourself from.”
 133
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Barâ bin Ma’rûr said, “I swear by Allahu ta’âlâ, Who sent you as Prophet with the
 right religion and book, that we will protect you in the same manner as we defend and
@@ -5559,7 +5438,6 @@ ta’âlâ will give permission to me too. We shall migrate together.” When Ha
 
 135
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 Abû Bakr asked, “May my mother and my father be sacrificed for your sake! So, there
 is this possibility?” Our Prophet made him happy by saying, “Yes, there is”.
@@ -5644,9 +5522,7 @@ be hurt,” and he went in. He swept and cleaned the interior. There were many h
 
 137
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 small and big, around the cave. He tore up his overcoat and filled the holes. However,
 one of them was left open. He closed it with his heel and invited Rasûlullah into the
@@ -5732,9 +5608,7 @@ Abû Bakr and others and made them drink until they were full. He drank after th
 
 139
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 others. He touched again the udder of the sheep with his blessed hand and milked it,
 then wanted the largest bowl in the tent. He filled it and delivered it to Ummu Ma’bed.
@@ -5817,9 +5691,7 @@ Ibn-i Sa’d narrates: When Surâqa said, “Command me what you wish,” to our
 
 141
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Anything was possible, when Allahu ta’âlâ wished it. When He was trusted sincerely and followed on His path, incomprehensible incidents occured. Surâqa bin Mâlik,
 who had set off with a greed of gaining large booties by killing our Master Rasûlullah, then, became like a mild tempered child. The Almighty Allahu ta’âlâ had turned
@@ -5898,7 +5770,6 @@ Ji’ta bil-amr-il muta!...”119
 
 143
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The wishes of “Welcome O Rasûlullah,” “Please, be welcomed to our home,” was
 beckoned from every direction. Some of the notables of Medina, by holding the bridle
@@ -5967,9 +5838,7 @@ you disliked!” he said, “You may eat it!” Upon that, we ate that food and 
 
 145
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 prepared any food from that vegetable for Rasûlullah since then. Once again, I prepared food which would suffice for our Master Rasûlullah, and Abû Bakr then brought
 it to their presence. Rasûlullah said, “O Ebâ Ayyûb! Invite thirty persons from the
@@ -6055,9 +5924,7 @@ opportunity.
 
 147
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 When Muslims learned of this situation, they did their best to protect our beloved
 Prophet and united around him. They were unable to go out at nights, unable to sleep
@@ -6147,9 +6014,7 @@ order of Rasûlullah.
 
 149
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It was informed in another report as follows: Rasûl ’alaihis-salâm said to the trunk
 of the dry date palm, “If you want, let me put you in the garden you were in. You
@@ -6232,9 +6097,7 @@ One day, at the time of morning prayer, Bilâl-i Habashî had called, “As-sal�
 
 151
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 saying this is! Say this too, while you call the adhân of morning prayers.” Thus, it
 began that this expression was recited in the adhân of morning prayers.
@@ -6319,9 +6182,7 @@ Dictionary, II, 57 - “Türkiye” Newspaper Publications.
 
 153
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Suffa Companions! Glad tidings to you! If there remains one person among my
 Ummat who consents to the difficult conditions which you are now in, is for sure
@@ -6405,9 +6266,7 @@ mouth of Rasûlullah?)
 
 155
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 At that moment, a person, like the moon rising, came near to us. His attire was very
 white and his hair was so black. There was no sign of travel, such as dust, soil or sweat
@@ -6489,7 +6348,6 @@ to witnesses, and solved the most difficult disagreements.
 
 157
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Salmân-i Fârisî’s becoming Muslim
 Day by day, the spreading of the light of Islam and the blessed name of our Master Rasûlullah taking place in the hearts wherever it was heard, commenced. Those
@@ -6497,7 +6355,6 @@ knowledgeable people, who were yearning for his coming, were rushing to Medina
 excitedly, in search of becoming Muslim. One of those people was Hadrat Salmân-i
 Fârisî. He related about how he became Muslim, as follows:
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 I could not stay here and I joined the caravan and set off for Damascus. In Damascus,
 I asked who the greatest scholar was in the Christian religion. They described to me a
@@ -6583,9 +6440,7 @@ but does not accept sadaqa (alms). He has a seal of prophethood in between his t
 
 159
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 shoulders.” After this person had died, I decided to go to the Arab region according
 to his sayings.
@@ -6755,9 +6610,7 @@ Messenger.” Upon this, the Jews said, “He is our worst and son of our worst!
 
 163
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 then made slanders about me and they accused me of some faults. I said, “This was
 what I feared. O Rasûlullah! I had told you that they are a cruel, lying, slandering nation who do not refrain from evil, had I not? All these have happened.” Rasûlullah told
@@ -6841,9 +6694,7 @@ among Muslims, would say that they had embraced the Islamic religion; however,
 behind Muslim’s backs, they would make mockery of them. Secretly, they started to
 165
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 cause disharmony. They went so far as to try to change and misrepresent our beloved
 Prophet’s blessed words.
@@ -6927,9 +6778,7 @@ he thought the Muslims could be defeated. Hoping that the Muslims’ state would
 
 167
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hamza and his friends returned to Medina. When Majdî’s acts were told to our Master,
 the Prophet (’alaihis-salâm), expressed his pleasure and said, “He has done a blessed,
@@ -7013,7 +6862,6 @@ our Master, Habîb-i akram, and they turned towards that direction. That masjid 
 
 169
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 named Masjid-i Qiblatayn, that is, the masjid with two qiblas. Our Master Rasûlullah went to Quba and, by himself, rebuilt the niche of the first masjid that was built
 and changed the walls of the masjid.151
@@ -7059,9 +6907,7 @@ Ibn Hishâm, as-Sira, I, 549; Suhaylî, Rawzu’l-unuf, I, 409.
 
 171
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Sa’d bin Abî Wakkâs reported, “When our Master Rasûlullah wanted to send back
 the children who would like to go to war with us, I saw that my brother, Umayr, was
@@ -7153,9 +6999,7 @@ Ibn Hishâm, as-Sira, II, 607; Suhaylî, Rawzu’l-unuf, III, 47.
 
 173
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 If the Muslims run across them, what a pity it will be for the Quraysh!” He had the
 caravan sent to Mecca and caught up with the army.”
@@ -7242,9 +7086,7 @@ Ibn Sa’d, at-Tabaqât, II, 14.
 
 175
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 of them were caught. One of them was Ashlam, slave of the sons of Hajjâj, the other
 one was Arîz Abû Yasâr, slave of the sons of As bin Sa’îd. When they were brought
@@ -7333,9 +7175,7 @@ Wâqidî, al-Maghâzî, I, 58; Ibn Sa’d, at-Tabaqât, II, 373.
 
 177
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 beloved Prophet asked, “Why did you do that,” he replied, “O Rasûlullah, may my
 parents and I be sacrificed for your sake! Today I can see that the term of my life has
@@ -7423,9 +7263,7 @@ Sûrat al-Qamar, 54/ 45-46.
 
 179
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our beloved Prophet came to lead his army. Then he recited the following âyat-i
 karîmas, purporting, “O the believers! When you encounter the community of an
@@ -7515,9 +7353,7 @@ Ibn Hishâm, as-Sira, I, 708; Ibn Sa’d, at-Tabaqât, II, 17; Tabarî, Târikh,
 
 181
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 waited for the signal started acting according to the given instruction. Amidst the shoutings
 of “Allahu Akbar!...Allahu Akbar!...”, arrows began to buzz and stones hit their targets,
@@ -7597,7 +7433,6 @@ bodies and dropped to the ground even before our swords touched their targets!�
 
 183
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The killing of Abû Jahl
 Abû Azîz bin Umayr, the flagman of the polytheists, was captured. Their commander, Abû Jahl, to encourage the Qurayshîs, was reciting poems ceaselessly and he was
@@ -7637,7 +7472,6 @@ started to fight Hadrat Mu’âz bin Amr.
 
 184
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 At that moment, the brothers Mu’âz and Mu’awwaz sprang forward like a falcon.
 They downed everyone before them and reached Abû Jahl. They struck him with their
@@ -7679,9 +7513,7 @@ III, 83; Suhaylî, Rawzu’l-unuf, III, 77.
 
 185
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 rejoiced so much to hear that news, and he recited takbîr by saying, “Allahu akbar!”
 and said, “Allahu ta’âlâ accepted my invocation that I made regarding him.”
@@ -7763,9 +7595,7 @@ give the good news of victory.
 
 187
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hadrat Asim bin Adiy asked, “O Ibn-i Rawaha! Is what you said true?” Abdullah
 bin Rawaha said, “Yes, I swear by Allah it is true! Inshâallah (if Allah wills), Rasûlullah will come tomorrow with the captives whose hands are tied!”
@@ -7845,7 +7675,6 @@ the animals and they went on foot.”
 
 189
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 The fact that the polytheists were routed at the Badr and they fled from the battlefield in a deplorable state, caused a great surprise in Mecca. A totally unexpected
 result had come about. Abû Lahab and other polytheists did not believe the words of
@@ -7921,9 +7750,7 @@ And, the heart destroyed by the trouble of love, prospers.)
 
 191
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Badr victory caused a great exultation among Muslims. The polytheists sunk into
 sorrow and disappointment. Negus, ruler of Abyssina, gave the good news to the
@@ -8004,9 +7831,7 @@ are present, he had me marry His blessed daughter Fâtima with a mihr of 400 mit
 
 193
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 our Master, the Prophet said. I witness and consent to this too. I exactly accept it.
 Allahu ta’âlâ witnesses for all of our words and He is helper for all of us.” 177
@@ -8092,9 +7917,7 @@ made your daughter marry your brother?” Then our Master Rasûlullah said, “Y
 When Rasûlullah asked if his brother was there, Ummu Ayman supposed that the marriage would not be allowed. But, when our Master Rasûlullah said, “Yes,” he wanted
 195
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 to indicate that the obstacle to marriage is from being born from the same mother.
 (Note: Hadrat Ali is the son of our Prophet’s uncle.)
@@ -8181,9 +8004,7 @@ al-Mu’jamu’l Kabîr, XX, 407.
 
 197
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 them. All of them deemed it suitable and said, “We will kill him together.” Together,
 they went to our Master, the Prophet. They said, “O Rasûlullah! If you give permission, may we say some words, which Ka’b will like, about you while we talk with
@@ -8277,7 +8098,6 @@ Ibn Sa’d, at-Tabaqât, II, 29.
 
 199
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 of them ought to have been killed, our beloved Prophet, who was sent as a mercy for
 the worlds, pitied them and he let the Jews of Kaynûka go to Damascus. Thereby, they
@@ -8336,9 +8156,7 @@ find us against them!...” Thus, she provoked the Quraysh to war with all her p
 
 201
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Jubayr bin Mut’im, one of the polytheists, had a slave named Wahshî, who was a
 real expert in throwing spears. He was a sharp shooter. Hind and Jubayr were demanding revenge from Hadrat Hamza, since he had killed Hind’s father Utba and Jubayr’s
@@ -8420,9 +8238,7 @@ have perseverance and patience, Janâb-i-Haqq will grant you His help again.
 Our duty is to be determined and to endeavor.”
 203
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Having conducted the afternoon prayer, our Master, the Prophet reached his blessed
 home. After him, Hadrat Abû Bakr and Hadrat ’Umar took permission and entered the
@@ -8507,9 +8323,7 @@ Kathîr, as-Sira, III, 30.
 
 205
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Master of the prophets (sall-Allâhu ’alaihi wa sallam) put the mujahids (Muslim warriors) in array.
 
@@ -8594,9 +8408,7 @@ victory of Hadrat Zubayr. It was seen that Zubayr bin Awwâm jumped over the pol
 
 207
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 theist’s camel when he came near. A deadly struggle began on the camel. Meanwhile,
 it was heard that our beloved Prophet commanded, “Make him fall down to the
@@ -8679,9 +8491,7 @@ al-Musannaf, VII, 562, VIII, 491; Tabarânî, al-Mu’jamu’l Kabîr, XIX, 9.
 
 209
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 of that polytheist, stuck in Abû Dujâna’s shield. He pulled his sword but could not take
 it out. Now, it was Abû Dujâna’s turn. He killed his enemy by a single sword blow.
@@ -8766,9 +8576,7 @@ goods behind, Muslim soldiers became happy and thanked Allahu ta’âlâ for hav
 
 211
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 attained the victory which He promised. Although they had much superiority in number and power, polytheists were wretched before the Muslims. While they were fleeing, the glorious Companions were chasing them and killing them when they caught
 them. Meanwhile, Hadrat Hanzala bin Abû Amîr reached Abû Sufyân, the commander in chief of the polytheist army. Abû Sufyân was trying to escape on his horse. He
@@ -8850,9 +8658,7 @@ him, “Who will face this military unit?” It was seen that Hadrat Wahb bin K�
 
 213
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 said, “May my life be sacrificed for the sake of you, O Rasûlullah! I will,” and sprang
 forward. With a drawn sword, this hero, who recited the sacred name of Allahu ta’âlâ
@@ -8940,9 +8746,7 @@ heard that voice. Fighting, he found Âsim bin Abî Awf and killed him immediate
 
 215
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 However, the polytheist Ma’bad, behind Âsim bin Abî Awf, brandished his sword,
 with all his power. As a bestowal of Allahu ta’âlâ, Abû Dujâna suddenly and quickly
@@ -9021,9 +8825,7 @@ and planning to kill him by shooting an arrow at the earliest opportunity. He re
 
 217
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 close to our Master Rasûlullah, drew his bow and targeted the blessed head of our
 beloved Prophet, and shot his arrow. There was not even enough time to blink an eye.
@@ -9112,9 +8914,7 @@ that he would never cease to fight, he would not retreat, and he would fight unt
 
 219
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 given a new life. Hadrat Alî and Talha bin Ubaydullah came immediately and took
 him out of the pit. Hadrat Abû Ubayd bin Jarrâh, with his teeth, pulled out the rings of
@@ -9201,7 +9001,6 @@ rest your soul!...”
 
 221
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 Meanwhile, a woman, hurriedly coming, was seen. She was our beloved Prophet’s
 paternal aunt, our mother Hadrat Safiyya. Like other ladies, she had run to Uhud,
@@ -9292,9 +9091,7 @@ His own kaftan did not cover his entire body. If they covered the head, his feet
 
 223
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ta’âlâ. Many unimaginable events of heroism of the Ashâb-i kirâm had been witnessed, and another lesson had been taught to the disbelievers.
 
@@ -9378,7 +9175,6 @@ within one year.
 
 225
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Raji’ incident
 Hadrat Âsim bin Thâbit, one of the prominent archers of the Holy War of Uhud,
@@ -9420,7 +9216,6 @@ giving a definite promise. We swear by Allahu ta’âlâ that we do not want to 
 However, we wish to get ransom for you from the Meccans.”
 226
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Âsim bin Thâbit, Marsad bin Abî Marsad and Khâlid bin Abî Bukayr rejected all
 the offers, saying, “We will never accept the promises and the pledges of polytheists.”
@@ -9463,9 +9258,7 @@ away the blessed body of Âsim bin Thâbit to an unknown place. They thoroughly
 searched for him, however, they could not find him. Thus, the polytheists were unable
 227
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 to cut Hadrat Âsim bin Thâbit. When this incident was mentioned, Hadrat ’Umar said,
 “Verily, Allahu ta’âlâ protects His believer slave. As Âsim bin Thâbit was protected in
@@ -9549,9 +9342,7 @@ Hubayb.”224
 
 229
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Quraysh polytheists, gathered around Hubayb, had youngsters attack him with
 spears by saying, “This is the man who killed your fathers,” and started wounding his
@@ -9632,9 +9423,7 @@ Sa’d, at-Tabaqât, II, 51-54.
 
 231
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 homeland! Do not stay here with me! You conspired to kill me. I am giving you
 ten days. After that time, whomsoever from you is seen here will be beheaded.”
@@ -9724,7 +9513,6 @@ have armed them and marched towards Medina. When this news reached our belov233 
 
 233
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ed Prophet, a military expedition, against the sons of Mustaliq, with seven hundred
 troops began immediately. The military headquarters was established at the well of
@@ -9747,7 +9535,6 @@ a woman more auspicious than Juwayriyya.”235
 As the Islamic army started returning to the luminous Medina, the surrounding polytheist tribes had been intimidated and they had understood how dangerous it would
 be to dare to attack Muslims.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 You are the physician to the worlds, I am so ill,
 I have brought my heart to you, hoping I will get well.
@@ -9777,7 +9564,6 @@ MAWLÂNÂ KHÂLİD-İ BAGHDÂDÎ
 
 235
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE HOLY BATTLE OF TRENCH
 It was the fifth year of the Hegira. The Jewish sons of Nâdir, who were a source of
@@ -9815,9 +9601,7 @@ permission to talk and said, “O Rasûlullah! We have a war method. When we fea
 
 237
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 that the enemy might raid, we used to dig a trench around us and make defense.” Our
 Master, the Prophet and the Companions liked this method and it was decided to fight
@@ -9904,9 +9688,7 @@ people by himself. While he was digging the place allotted to himself with his f
 
 239
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 he faced a very hard and big white rock. They persevered to break it apart. However,
 all their efforts were in vain. Furthermore, their sledgehammers and shovels were
@@ -9989,7 +9771,6 @@ be dug deep and wide enough. Our Master, the Prophet expressed his concerns abou
 
 241
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 this place and said; “The polytheists could not pass, except here.” He set sentries
 there.
@@ -10077,9 +9858,7 @@ al-Musnad, I, 126.
 
 243
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 they had joined the Holy Wars of Badr and Uhud so far. They had defeated the polytheists, who were in large numbers and more powerful, with the permission of Allahu
 ta’âlâ and the benediction of our Master, the Prophet’s invocation. As long as “the
@@ -10168,9 +9947,7 @@ except delaying the end. The polytheists understood that they could not overcome
 
 245
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 them in that manner and decided that the most suitable way was to attack from all
 around the trench. They attacked. The large enemy army of ten thousand soldiers tried
@@ -10254,9 +10031,7 @@ After their struggles to demolish Islam completely, the polytheists understood t
 they could not overcome Muslims in day light. According to them, the only solution
 247
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 was to organize sudden attacks at night. The Muslims could be defeated only in this
 way. They carried out their decision immediately. They started making night raids,
@@ -10340,9 +10115,7 @@ able to join the war, you need to give many notables of yours to us as hostage. 
 
 249
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 siege period extends and if you become helpless and return to your lands, it will mean
 that you have delivered us to Muhammad. If you give us hostages, you will not abandon us!...” When this news reached the Quraysh commander, he said, “So, the words
@@ -10428,9 +10201,7 @@ The streets of Medina were flooded with children. They were out to meet the sult
 
 251
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the worlds and their blessed fathers, paternal uncles, maternal uncles, older brothers.
 Our Master, the Prophet replied to them by smiling…
@@ -10594,9 +10365,7 @@ the Prophet came near Sa’d bin Mu’âz he saw that he had passed away. He sai
 
 255
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 mentioning the nick name of Sa’d bin Mu’âz, “O Abû Amr! You were the best of the
 chieftains. May Allahu ta’âlâ grant you bliss and the best rewards! You have fulfilled
@@ -10648,11 +10417,9 @@ Make me happy with your beauty since I am scorched O Rasûlullah.
 You are remedy for a burning heart, and an unequaled healing,
 You are a great salvation and a pathfinder
 You are the beloved of Allah, you are Muhammad Mustafâ
-Make me happy with your beauty since I am scorched O Rasûlullah.
 Roses do not bloom, waterfalls do not flow if there were not your nûr,
 World wanes, breath ends if you don’t look at the sky
 Separation cries, union cries if infinity is not cryptic of yours
-Make me happy with your beauty since I am scorched O Rasûlullah.
 
 Abû Sa’îd-il Hudrî narrated that his grandfather told him, “I was one of the persons
 who dug the grave of Sa’d bin Mu’âz. When we started the digging of his grave, an
@@ -10684,7 +10451,6 @@ Ibn Sa’d, at-Tabaqât, I, 291.
 
 257
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE PEACE TREATY OF HUDAYBIYA
 After the Holy War of Trench, some of the surrounding tribes acknowledged the
@@ -10722,9 +10488,7 @@ the rain of one week stopped and those place mentioned, began to receive the rai
 
 259
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It was the month of Dhu’l-qa’da in the sixth year of the Hegira. One night our
 esteemed Prophet sall-Allâhu ’alaihi wa sallam in his dream saw that he, together
@@ -10811,9 +10575,7 @@ them than their own lives and children!”
 
 261
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Allahu ta’âlâ informed our Master, the Prophet of their words by sending a revelation by Jabrâil ’alaihis-salâm.
 
@@ -10897,9 +10659,7 @@ offered to the headquarters of the Quraysh. From Budayl, the polytheists listene
 what our Master Rasûlullah had said. Then, they sent one of their prominent men,
 263
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Urwa bin Mas’ûd, to our Master, the Prophet for talks. When Urwa declared that the
 Quraysh was determined not to allow anyone to enter Mecca, our Master Habîb-i
@@ -10980,9 +10740,7 @@ under the tree will enter Hell.” This bî’at was called Bî’at-i Ridwân.2
 
 265
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Ashâb-i kirâm had unsheathed their swords, very eagerly; they were looking
 forward to a signal from Rasûl ’alaihis-salâm.
@@ -11062,7 +10820,6 @@ They shall be free to unite with Muslims or polytheists.264
 
 267
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 The Peace Treaty was written down in two copies and signed by both parties. The
 polytheists returned to their military headquarters.265
@@ -11149,7 +10906,6 @@ continued. They became fifty people, one hundred people, two hundred people, and
 
 269
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 three hundred people. While going to Damascus, the Quraysh caravans had to pass
 there. Hadrat Abû Basîr, with the Muslims around him, caught the polytheists who
@@ -11212,9 +10968,7 @@ al-Mu’jamu’l Kabîr, IV, 301; VII, 4; Huzâî, et-Tahrîj, s, 183-184; Katt�
 
 271
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 He is As-Salâm (He is the One who delivers His slaves from all danger and the One
 who greets His fortunate slaves in Paradise). He is Al Mu’min (He is the One who
@@ -11293,9 +11047,7 @@ the guidance of Allahu ta’âlâ, who attain the true path!” After this, “(
 of Romans!), I invite you to Islam. Embrace Islam so that you will obtain salvation. Be Muslim so that Allahu ta’âlâ will grant you two fold rewards. If you turn
 273
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 away from it, all the sins of Christians will be on your shoulders!” “Say: O (Jews
 and Christians who are) People of the Book! Come to the word which is shared
@@ -11383,9 +11135,7 @@ Hadrat Dihya stood in front of Heraclius. With his blessed beautiful face and sw
 voice, he said to Heraclius, “O Emperor! A person (Hâris) from Busra sent me to you.
 He is more auspicious than you are. I swear by Allahu ta’âlâ that the person (Rasû275
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 lullah) who sent me to him is more auspicious than both him and you. You should
 listen to my words in humbleness and you should accept the given advice! For, if you
@@ -11470,7 +11220,6 @@ detail. He read out the letter of Heraclius to our Master, the Prophet. Rasûlul
 
 277
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 “He will stay (at his throne) for some time. As long as my letter is with them, their
 rule will continue.”
@@ -11553,9 +11302,7 @@ many more questions about our Prophet. Then they spoke as follows,
 
 279
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 -If you answer the questions which I will ask about him correctly, I want to ask you
 three things.
@@ -11636,7 +11383,6 @@ the 96th Caliph. It was put in the Sacred Trusts Section of Topkapi Palace in Is
 
 281
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 Abdullah bin Huzâfa had been sent to the ruler of Iran. When Hadrat Abdullah submitted the precious letter of the Master of the worlds to the arrogant ruler of Iran, he
 gave it to his secretary to read aloud.
@@ -11718,7 +11464,6 @@ for the ruler of Yamâma, he had treated the Islamic envoy mildly.
 
 283
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Souls pine, longing for that essence of rose benevolence,
 Look, the sun shines and burns out of desire to see your face,
@@ -11766,9 +11511,7 @@ at-Tabaqât, II, 196.
 
 285
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Labîd, the Jew was caught and brought to the presence of our Master Rasûlullah.
 When our Master, the Prophet told him, “Allahu ta’âlâ has informed me of your
@@ -11848,7 +11591,6 @@ I confess that I am unable to express my gratitude to you properly.
 
 287
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Let me groaningly weep and offer my heart to you,
 And let me shed burning tears of love for you,
@@ -11890,7 +11632,6 @@ akbar! Allahu akbar! Khaybar has been ruined,” and he repeated this blessed wo
 his three times.
 288
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Master, the Prophet sall-Allâhu ’alaihi wa sallam told the Jews either to become
 Muslim, or surrender and give kharaj (land tax paid by non-Muslims) and jizya (tax
@@ -11932,7 +11673,6 @@ The siege continued on the third, fourth and fifth days too. The Jews were alway
 
 289
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the defensive. Our beloved Prophet had an acute headache and he could not be present among the mujâhidins for two days. On the first day, he gave the banner to Hadrat
 Abû Bakr, on the second day, to Hadrat ’Umar. Both of them, in charge of the Ashâb-i
@@ -11972,7 +11712,6 @@ any reason. They lost their hope. They became very sorry that they called the Gh
 
 290
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The heroism of Hadrat Ali
 During that day again, intense fights occurred before Khaybar. However, the fortress could not be conquered. In the evening, the sultan of the universe gave the glad
@@ -12092,9 +11831,7 @@ by saying “Bismillâhirrahmânirrahîm.” After he chewed it a few times, he 
 informed me that it has been poisoned.” The Companions did not touch the meal.
 293
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 However, the body of Hadrat Bishr bin Barâ, who had eaten a bit of the meat, became
 purple and he became martyred. Jabrâil (’alaihis-salâm) came to our beloved Prophet
@@ -12157,7 +11894,6 @@ as-Sira, II, 330; Wâqidî, al-Maghâzî, II, 669; Ibn Sa’d, at-Tabaqât, VIII
 
 295
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE EXPEDITION TO UMRAT-UL-KAZÂ
 One year had passed since the Hudaybiya Peace Treaty. One month before the
@@ -12192,9 +11928,7 @@ him. Everyone was in white. Now, the journey to Mecca for making Umra had starte
 
 297
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Lâ sharîka laka labbayk! Innal hamda wan-ni’mata laka wal-mulka, lâ sharîka
 lak.” The journey was very joyful by praising Allahu ta’âlâ and supplicating to Him,
@@ -12268,7 +12002,6 @@ the Hajar-ul-Aswad. Our Master, the Prophet ’alaihis-salâm and his Companions
 approaching the Hajar-ul-Aswad, kissing it and outstretching their arms towards it.
 299
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The polytheists were watching the Ashâb. They were amazed by this majestic and
 spectacular marching. They had been told that Muslims were weakened and fell ill.
@@ -12298,11 +12031,9 @@ off for Medina.
 What a great blessing it is to pass away on your path
 Will it not be my share to die in your sacred abode
 It will be easy to die longing for you, while my eyes are losing their glimmer
-Make me happy with your beauty since I am scorched O Rasûlullah.
 I bowed my head, I am wretched, you have the cure of my pain
 My lips are burned with fire, around your feet, reminding of your name
 Reward this dog whenever my heart wishes to see you
-Make me happy with your beauty since I am scorched O Rasûlullah.
 
 300
 
@@ -12416,7 +12147,6 @@ How can I endure to be there?”
 
 303
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 His friends invoked blessings for him, “May Allahu ta’âlâ make you one of His beloved
 slaves, May you be one of the Pious!” Then, Hadrat Abdullah bin Rawâha said, “I wish for
@@ -12492,7 +12222,6 @@ Anymore I do not care,
 Trees or palm dates!”
 305
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 When I heard these, I wept. Abdullah bin Rawâha touched me with his lash and
 said, “O you naughty one! What is happening to you? What harm is done to you
@@ -12560,7 +12289,6 @@ the Prophet, a committee from the Islamic Army advanced towards the Roman milita
 pay jizya (a tax taken by Islamic State from its non-Muslim subjects). However, they
 307
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 rejected this proposal. There was no time to lose. The commander, Hadrat Zayd bin
 Hârisa, holding the holy banner of Islam, ordered his army to attack. The mujâhids,
@@ -12595,7 +12323,6 @@ banner of Islam, which fell to the ground, and handed it over to Hadrat Abdullah
 Rawâha. By waving the banner, he attacked the enemy on his horseback. On the one
 hand, he was killing anyone before him, on the other hand, he was saying:
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “O my nafs,
 You will obey me, certainly,
@@ -12636,9 +12363,7 @@ tried to wave the banner.
 
 309
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 He searched for an older and more mature person than he, from among the Companions. He saw Thâbit bin Akram. He delivered the banner to him. Hadrat Thâbit
 set the banner in front of the mujâhids and said, “O my brothers! Urgently, choose
@@ -12727,7 +12452,6 @@ al-Bidâya, III, 474; IV, 251; Suhaylî, Rawzu’l-unuf, IV, 126; Haythamî, Maj
 
 311
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Master Habîb-i akram sall-Allâhu ’alaihi wa sallam returned to his house of
 bliss. He told his pure wives, “Do not forget to prepare food for Ja’far’s family!”
@@ -12781,7 +12505,6 @@ However, our beloved Prophet had learned of the incident instantaneously. In add
 
 313
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 forty horsemen and told Rasûl-i akram (sall-Allahu ’alaihi wa sallam) what happened.
 Our Master, the Darling of Allahu ta’âlâ said, “May I not be helped, if I do not help
@@ -12823,7 +12546,6 @@ haven’t you?” There was nothing left for them except to wait.
 
 314
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Whoever takes refuge in Masjîd-i Haram…
 When Abû Sufyân left Medina, our beloved Prophet decided to conquer Mecca. The
@@ -12864,9 +12586,7 @@ the name of Allahu ta’âlâ. They were going to Mecca, their homeland from whi
 
 315
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 they were expelled by tortures and torments eight years before. They were going to
 free the Great Kâ’ba from the idols. They were going to show the path of truth, justice
@@ -13037,9 +12757,7 @@ their homes, were waiting in fear.
 
 319
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Then, the Master of the worlds and his glorious Companions began to make tawâf
 (circumambulation) around the Kâ’ba. After finishing the seventh round of the tawâf,
@@ -13120,7 +12838,6 @@ Dimashq, LXII, 404.
 
 321
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE HOLY WAR OF HUNAYN
 When our Master, Sarwar-î âlam sall-Allâhu ’alaihi wa sallam went out of Medina, with the intention of conquering Mecca, two large tribes around Mecca, called
@@ -13159,7 +12876,6 @@ from this unexpected rain of arrows. This quick return caused a break in the ord
 
 323
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 of the soldiers coming behind. When they too returned in retreat, it was seen that the
 enemy army of twenty thousand soldiers began to pour into the valley.
@@ -13181,7 +12897,6 @@ Ashâb, who showed great heroism in Badr, Uhud, Handak and Khaybar, especially
 Hadrat Alî, Abû Dujâna, Zubayr bin Awwâm were fighting vehemently and they were
 repelling the enemy.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 May my life be sacrificed for you,
 Muhammad, whose name is beautiful, whose person is beautiful,
@@ -13224,7 +12939,6 @@ immediately.
 
 325
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 THE EXPEDITION TO TÂIF
 The Master of the worlds (sall-Allâhu ’alaihi wa sallam) wanted a definite resolution against the enemy who ran into Tâif. This fort near Mecca was one of the last,
@@ -13260,7 +12974,6 @@ and goats and countless jewelry had been taken as booty. He had them distributed
 
 327
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the rightful-owner mujâhids. At that time, it was learned that a delegation from the
 Hawâzin tribe requested an audience. The permission was granted. When the delegation declared that all the Hawâzin tribe embraced Islam, the Master of the worlds
@@ -13325,9 +13038,7 @@ When Rasûl-i akram asked him, “O Abû Bakr! What have you left for your house
 
 329
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 hold?”, he replied, “I have left Allahu ta’âlâ and His Messenger.” Hadrat ’Umar had
 brought half of his goods. Our Master, the Prophet asked him, “O ’Umar! What have
@@ -13421,9 +13132,7 @@ again.
 
 331
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 That morning, there was no water left in the water jugs. Everyone was about to
 die of thirst. The hypocrites saw this as an opportunity and tried to cause disorder by
@@ -13504,7 +13213,6 @@ of the worlds ordered his Companions to encamp at the place called Zî-Awân, wh
 
 333
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 was very close to Medina. While the companions were resting, a few hypocrites came
 and asked for our beloved Prophet’s honoring the Dirâr Mosque.
@@ -13575,7 +13283,6 @@ al-Iktifâ, II, 409; Kattânî, at-Tarâtîbu’l-idâriyya, I, 256.
 
 335
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 4- Whoever has an agreement with Rasûlullah (’alaihis-salâm), it is valid until its
 time expires. Apart from these, others are given four months. After that, there shall be
@@ -13648,9 +13355,7 @@ effect and domination on your lands. However, if you abide by him in some deeds
 that you deem unimportant, other than those which I have cancelled, such acts
 337
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 of yours shall make him pleased. In order to protect your religion, beware of
 these too!
@@ -13723,7 +13428,6 @@ Dimashq, LXII, 404.
 
 339
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS PASSING AWAY
 It was the eleventh year of Hegira. When Jabrâil ’alaihis-salâm came that year, he
@@ -13759,9 +13463,7 @@ my camel and approached you. My purpose was for kissing your blessed body, howev
 
 341
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Then our Master, the Prophet said, “O Uqâsha! May Allahu ta’âlâ protect you
 from being whipped by His Messenger intentionally” and ordered, “O Bilâl! Go
@@ -13848,9 +13550,7 @@ ta’âlâ for the forgiveness of those who were buried there. When the Companio
 
 343
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 were with Rasûlullah, heard the insistent invocations of our Master, the Prophet, they
 said, “If only we were also buried here and honored by attaining the invocations of our
@@ -13941,9 +13641,7 @@ Allahu ta’âlâ and overpower His Will, He will subdue him with His Wrath and
 
 345
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ruin him. If a person tries to trick and deceive Allahu ta’âlâ, he will deceive
 himself and lose control of his own affairs. Be it known that I am compassionate
@@ -14031,9 +13729,7 @@ rubbed them gently on him. This meant that he asked a blessing on him.
 
 347
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It was a Monday on which our beloved Prophet both honored the world by his birth,
 and passed away. It was the thirteenth and the last day of his illness… On Monday the
@@ -14115,9 +13811,7 @@ gave the order to move.346
 
 349
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Master of the worlds was drawing his last breaths… The time was quite close…
 Allahu ta’âlâ revealed to Azrâil ‘alaihis-salâm,’ “Go to my beloved in your most
@@ -14201,9 +13895,7 @@ all other communities.” Our beloved Prophet said to Jabrâil ‘alaihis-salâm
 
 351
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 three wishes from Allahu ta’âlâ: One of them is to allow me to be intercessor for
 the sinners of my Community, the second is to not torment them due to the sins
@@ -14285,9 +13977,7 @@ of separation deeply wounded all hearts.
 
 353
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The Ashâb-i kirâm ‘alaihim-ur-ridwân,’ firstly elected Hadrat Abû Bakr as Khalîfa
 (Caliph) for maintaining order and managing all affairs. Then they paid homage to
@@ -14375,7 +14065,6 @@ this affair as Rasûl (‘alaihis-salâm) declared! I had heard him say, while s
 
 355
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 alone where I am now standing, “Say La ilâha illallah with me, so that, Arabs may
 become Muslims by taking you as an example and the non-Arabs will pay jizya
@@ -14440,7 +14129,6 @@ ta’âlâ showed me. Mûsâ (’alaihis-salâm) was performing namâz while sta
 
 357
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 He was thin. His hair was not straggly. He was like a young man from the tribe of
 Shan’a. Isâ (’alaihis-salâm) resembled Urwa bin Mas’ud Sakafi.”361
@@ -14527,9 +14215,7 @@ XVII, 428.
 
 359
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hadrat Qusam bin Abbas was honored by being in the service of our Master Rasûlullah’s burial. After completing his duty he came out from the grave last of all. Then
 he said,
@@ -14609,9 +14295,7 @@ the namâz) in the five times of namâz (ritual prayer) every day. In case he co
 see our Prophet, he would perform that namâz again.
 361
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 One of the greatest Islamic scholars, Imâm-i Rabbânî Ahmad Faruqî Sarhandî,
 who was theamujaddid (strengthener, renewer of Islam) of the second millennium
@@ -14695,7 +14379,6 @@ distinguishable for the one who does not recognize Rasûlullah.
 
 363
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Some of the scholars said, “Seeing our Prophet in a dream, in another appearance, is
 again seeing him. However this indicates that the one who had this dream is defective
@@ -14734,7 +14417,6 @@ Those scholars and sulahâ’ who came later would come to Medina after hajj and
 our ’ulamâ’ (scholars) of fiqh did. It is for this reason that pilgrims have been visiting
 al-Medina-i munawwara.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Beware of immodesty! Here where Allah’s Beloved is!
 To where the Divine Look is directed; Maqâm al-Mustafâ this is!
@@ -14776,7 +14458,6 @@ in your mind that Rasûlullah sees you, hears your salâm and prayers and answer
 
 365
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 and says âmîn. For, our Master Rasûlullah said, “When someone says salât to me
 at my grave, I hear it.” Again in a hadîth-i sherîf, it was declared that at the blessed
@@ -14858,9 +14539,7 @@ like. Then you come to the Rawda-i mutahhara. Here is a square place. You perfor
 
 367
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 namâz as much as you would like and say prayers. You say tasbîhs and thanks and
 praise Allahu ta’âlâ. Then you come to the pulpit and with the intention of receiving
@@ -14942,9 +14621,7 @@ and constructed a 1/53 model and sent it to Istanbul. The model was placed in th
 Khirka-i Sharîf Mosque, which was built by ’Abd al-Majîd Khân.
 369
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Following repairs by ’Abd al-Majîd Khan, the distance between the qibla wall and
 the Shabakat as-Sa’âda became seven and a half meters; from the eastern wall to the
@@ -15025,9 +14702,7 @@ request.” That poor man, seeing his problems solved at once, came to ’Uthmâ
 
 371
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hanîf and cheerfully said, “May Allahu ta’âlâ bless you! I wouldn’t have been able to
 get rid of these troubles if you hadn’t had a word with the Khalîfa.” He supposed that
@@ -15112,9 +14787,7 @@ Abu ’l-Khair ’Aqta’ (rahimah-Allâhu ta’âlâ), after five days of hunge
 came to the Hujrat as-Sa’âda and greeted Rasûlullah. He said he was hungry and soon
 373
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 fell asleep off to the side. In his dream he saw Rasûlullah coming, Abu Bakr as-Siddîq
 on his right, ’Umar Fârûq on his left and Alî al-Murtadâ (radî-Allâhu ta’âlâ ’anhum
@@ -15198,7 +14871,6 @@ The advice given to Khalîfa Mansûr by Hadrat Imâm Mâlik (rahimah-Allâhu ta�
 shows that those who pray in front of the Hujrat as-Sa’âda should be very vigilant; it
 375
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 is not right for those who cannot show the modesty and respect appropriate for that
 place to stay long in al-Madinat al-Munawwara.
@@ -15240,7 +14912,6 @@ one salawât on you; Allahu ta’âlâ recites ten salawât in return’.”373
 
 376
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Some of the hadîth-i sherîfs about this are as below:
 “May the nose of he, who does not recite salât-u-salâm on me when my name
@@ -15282,9 +14953,7 @@ closer to your body than your soul and closer to your eyes than their light?” 
 
 377
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 he said, “Yes, O my Rabb!” Allahu ta’âlâ decreed, “Then recite many salawât on
 Muhammad (Sall-Allâhu ’alaihi wa sallam).” Allahu ta’âlâ said, “O Mûsâ, do you
@@ -15378,9 +15047,7 @@ was. They said, “He used to recite salawât every Friday.”
 
 379
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 In Sheikh Aynî’s book Zaynu’l-Majalis, it is written: “On the Day of Judgment,
 except for three groups of people, there will be no shade under the Arsh.” When
@@ -15458,9 +15125,7 @@ Judgment. I am Akib, after whom; there will be no other prophet.”380
 
 381
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our beloved Prophet had been called also as “Abu’l Qâsim” due to his son Qâsim
 who was born from Hadrat Khadîja and died when he was a young child. Again,
@@ -15544,9 +15209,7 @@ beard were less than twenty. He used to trim his blessed moustache. The length a
 the shape of his moustache were as much as and like his blessed eye brows. He had
 private barbers in his service. He used to look in a mirror when he combed his bless383
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 ed hair and beard. Fakhr-i kâinat used to walk fast while looking down at the ground
 in front of him. When he went past a place, he would be recognized by his odorous
@@ -15637,9 +15300,7 @@ Qastalânî, Mawâhib-i Ladunniyya, s, 319.
 
 385
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 a seal. “Muhammadun Rasûlullah” was written on his ring. His bed was made of
 leather filled with shredding from palm date trees. Sometimes he laid on the bed and
@@ -15795,7 +15456,6 @@ who have reached even one drop of water from the ocean of his beauty, say;
 
 389
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 “He who saw your beautiful cheek,
 Will never look at a rose,
@@ -15829,7 +15489,6 @@ blessed words or behaviors, in a way which exalts his glory. It is compatible wi
 reverence toward him to not describe Rasûlullah by the words which are used for low
 status people.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 wa sallam) saying, “I never eat while leaning against somewhere.”390 It is included
 in the reverence to Rasûlullah to pay attention these facts. Not to pay attention to them
@@ -15872,7 +15531,6 @@ al-Mustadrak, II, 528.
 
 391
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS SUPERIORITIES
 Rasûlullah’s ‘sall-Allâhu ’alaihi wa sallam’ Beautiful Moral Qualities and
@@ -15998,9 +15656,7 @@ Shamsaddîn Shâmî, Subulu’l-Hudâ, VI, 7.
 
 395
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Master Rasûlullah ’alaihis-salâm called his Companions with the most beautiful names. He would not interrupt anyone while they were speaking. Unless the
 person himself ceased to speak, or stood up to leave, he would not interrupt them.
@@ -16084,9 +15740,7 @@ given to him.”
 
 397
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 There was an old woman who was Rasûlullah’s ‘sall-Allâhu alaihi wa sallam’
 neighbor. She sent her daughter to Rasûlullah ‘sall-Allâhu alaihi wa sallam’ to beg of
@@ -16175,9 +15829,7 @@ firewood.
 
 399
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 3-
 
@@ -16282,9 +15934,7 @@ special fragrant ointment to his hair.
 
 401
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 18- He would put musk and other sorts of fragrances on his hands and head, and
 incense himself with ud (scented wood) camphor.
@@ -16387,7 +16037,6 @@ milk.
 to him and told him that he needed help for his daughter’s matrimony. The
 403
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 blessed Messenger had nothing to give him at that moment. He put some of
 his sweat in a small bottle and gave the bottle to the man. Whenever that girl
@@ -16428,7 +16077,6 @@ be read in Arabic all over the world), in advising, (in prayers said) at times o
 
 404
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 trouble or melancholy, in the grave, at the place of Judgment, in Paradise, and
 in languages spoken by all creatures, Allahu ta’âlâ put his name beside His
@@ -16470,7 +16118,6 @@ one for knowledge pertaining to manners and ethics.
 
 405
 
-MÓJ UMIŁOWANY PROROK (sallallahu alejhi we sellem)
 
 39- Muhammad ‘alaihis-salâm’ was innocent. He never committed sins, neither
 intentionally nor inadvertently, neither grave sins nor venial ones, neither before he was forty years old nor afterwards. He was never seen to behave in an
@@ -16550,9 +16197,7 @@ performs namâz in his grave. So is the case with all the other Prophets ‘alai
 
 407
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 61- Angels hear the people reciting the Salawât for Rasûlullah ‘sall-Allâhu ’alaihi
 wa sallam’ all over the world, bring all the prayers of Salawât recited to his
@@ -16639,9 +16284,7 @@ Allahu ta’âlâ seventy times each day and night” and “A curtain [that pre
 
 409
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 lights from coming] becomes drawn across my heart. Therefore, I say istighfâr seventy times each day” and “I say one hundred istighfâr to Allahu ta’âlâ each day”.422
 
@@ -16743,9 +16386,7 @@ Qutnî, as-Sunan, III, 264; Hâkim, al-Mustadrak, I, 692; Bayhaqî, as-Sunan, II
 
 411
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Fear comes to Prophets and scholars. Awliya [dear slaves of Allahu ta’âlâ] and martyrs, fearing Allahu ta’âlâ’s punishment, which is unbearable to endure, cry. While
 they are in this condition, a light, which is much more intense than the sun’s light,
@@ -16823,9 +16464,7 @@ Himself with such extolments.
 
 413
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 At Mahshar, the people’s situation becomes extremely worse. Their difficulties increase. Each of them shoulder the property that they clung to in the world. Those
 who did not pay the zakât of their camels, are burdened with a camel. It clamours and
@@ -16910,7 +16549,6 @@ Iyâd, Shifâ-i Sharîf, s, 220.
 
 415
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 HIS MIRACLES
 There are innumerable witnesses testifying to the fact that Muhammad ‘alaihis-salâm’ is the true Prophet. Allahu ta’âlâ commanded, “Had it not been for you,
@@ -16949,7 +16587,6 @@ Tired as you normally may be, you never feel bored. It is a fact established
 
 417
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 with innumerable events experienced that reading it or listening to someone
 reading it cures difficulties. Being awe struck or sudden feelings of fear upon
@@ -17001,7 +16638,6 @@ to recite the following prayer, Yâ Rabbî (O my Allah)! I beg You. I ask of
 You through the intercession of Your beloved Prophet Muhammad ‘alaihis-salâm’. O Hadrat Muhammad ‘alaihis-salâm,’ whom I dearly love! I
 beg my Rabb through you. I ask Him to accept my invocation for your
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 sake. Yâ Rabbî! Make this exalted Prophet my intercessor! For his sake,
 accept my invocation!” The man made an ablution and said the prayer. His
@@ -17058,7 +16694,6 @@ bin Abbâs ‘radiy-Allâhu ’anhumâ’ and made the following prayer: “Yâ 
 
 419
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Make this person a profound scholar in the religion and an owner of hikmat
 (knowledge pertaining to halâls and harâms)! Bestow on him the knowledge of
@@ -17102,7 +16737,6 @@ Messenger of Allah ‘sall-Allâhu ta’âlâ ’alaihi wa sallam’ had dried h
 
 420
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 face once. Anas would dry his face with that handkerchief and put it in a fire
 when it became dirty. The dirt would burn while the handkerchief would not
@@ -17145,7 +16779,6 @@ that tried to hit such a person must be cut off, their bones must be broken.” 
 his sword and struck his wrist. He cut off his hand.
 421
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 He felt a great pain. However, his heart was calm now. He took his amputated
 hand and came to the Masjid-i Nabî directly. He asked the Ashâb-i kirâm where our
@@ -17202,9 +16835,7 @@ and became rich and comfortable there. Owing to her, the Muslims of that area be
 
 423
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 given the good news of the highest grade of Paradise. All the pleasures and blessings
 of this world are almost nothing when compared to this good news. This nikâh was
@@ -17291,9 +16922,7 @@ to you.” Since her nikâh (Islamic marriage contract) had been made by Allahu 
 
 425
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Rasûlullah ‘alaihis-salâm did not perform another nikâh for her. Hadrat Zaynab was
 mentioning that every time and she would say, “Every woman is given in marriage by
@@ -17374,9 +17003,7 @@ into the world three years before the prophethood in Mecca. His mother is Khadî
 
 427
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Zaynab: She is the first of the four daughters of Rasûlullah ’alaihis-salâm. She
 came into the world when our Master, the Prophet was thirty years old. Before Rasûlullah was notified of his prophethood, she had been married to Abu’l-As bin Rabî
@@ -17478,9 +17105,7 @@ Tabarânî, al-Mu’jamu’l Kabîr, III, 55; Hâkim, al-Mustadrak, II, 451.
 
 429
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Loving the Ahl-i Bayt an-Nabawî causes one to go to the Hereafter with îmân, to
 reach salvation at the last breath. Loving the Ahl-i Bayt is fard for each Muslim. Sarwar-i Âlam sall-Allâhu ’alaihi wa sallam declared in one of his hadîth-i sherîfs, “My
@@ -17568,9 +17193,7 @@ every Muslim’s duty to esteem and show respect to the Ahl-i Bayt.
 
 431
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Great Islamic scholar Imam-î Rabbânî (rahmat-Allahi ’alaih) said, “My father was
 a very profound scholar in apparent and concealed knowledge, that is, in spiritual
@@ -17650,9 +17273,7 @@ hundred and twenty thousand living Sahâbîs by the time of the death of Rasûlu
 
 433
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The following blessed Sahâbîs outlived all the others: Abdullah bin Awfâ ‘radiyAllâhu ta’âlâ ’anh’ passed away in the city of Kûfa in the eighty-sixth year of the
 Hegira (A.D. 705). Abdullah bin Yesr passed away in Damascus in the eighty eighth
@@ -17739,7 +17360,6 @@ Ahmad bin Hanbal, al-Musnad, III, 11; Bayhaqî, as-Sunan, II, 116.
 
 435
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 SOME OF THE ZAWÂID471 SUNNATS OF OUR
 MASTER RASÛLULLAH
@@ -17778,9 +17398,7 @@ Sa’d, at-Tabaqât, I, 428.
 
 437
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the Prophet used to grow his hair so that it would reach to his shoulders. Sometimes
 he used to have his hair cut so that it would reach his earlobes or the middle part of
@@ -17957,9 +17575,7 @@ food separately from others.
 
 441
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Master, the Prophet (sall-Allâhu ’alaihi wa sallam) would sit and eat his meal
 on the ground. He would say, “I sit and eat as a born slave. I am just a born slave!
@@ -18055,9 +17671,7 @@ in his stomach!”
 
 443
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Master, the Prophet would begin, as frequently as possible, from the right side,
 in ablution, in ghusl, when putting on his shoes and combing his hair; when taking or
@@ -18147,9 +17761,7 @@ Tirmidhî, Shamâil-i Sharîf, s, 334; Baghawî, al-Anwâr, I, 299; Qastalânî,
 
 445
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Months would pass without any fire being lit or smoke being seen any in any of the
 homes of Rasûlullah (’alaihis-salâm)!
@@ -18251,9 +17863,7 @@ Ibn Sa’d, at-Tabaqât, I, 393.
 
 447
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It was also reported that our Master, the Prophet said, “O Abu Zer! When you
 cook meat, make plenty of broth and consider your neighbors, share what you
@@ -18346,9 +17956,7 @@ Muslim, “Ashriba”, 142; Abû Dâwûd, “Atima”, 20; Ahmad bin Hanbal, al-
 
 449
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Morsels of food should be small and should be chewed well. Do not look around,
 but rather at the morsels of food in front you. Do not open your mouth widely, Do not
@@ -18436,9 +18044,7 @@ drop of it should not go to waste. Pomegranate is good for palpitation. It stren
 
 451
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 the stomach. If it is squeezed with its pulp and then drunk, it cleans the gall bladder
 and relieves constipation. Figs relieve the heart. It removes pains of the digestive tract.
@@ -18519,9 +18125,7 @@ Kabîr, II, 289; Suhaylî, Rawzu’l-unuf, IV, 364.
 
 453
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 among one another, with respect to taqwâ (abstaining from harâm). They were all
 humble.
@@ -18602,9 +18206,7 @@ Dimashq, III, 267; Baghawî, al-Anwâr, I, 352; Qastalânî, Mawâhib-i Ladunniy
 
 455
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It was related by Anas bin Mâlik that, when our Master, the Prophet ‘alaihis-salâm
 came across somebody, he would make musâfaha (when two persons coming across
@@ -18696,9 +18298,7 @@ at-Tabaqât, I, 453; Qastalânî, Mawâhib-i Ladunniyya, s, 326; Suyutî, Awsaf-
 
 457
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Our Prophet would perform his prayers in the cold winter nights, wearing an izar
 that had a weave which was neither so hard nor so soft.
@@ -18784,9 +18384,7 @@ more auspicious and more beautiful than this!”
 
 459
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Then he sent that fur to Hadrat Jafar bin Abi Tâlib. When Hadrat Jafar wore it, our
 Prophet said, “I did not send it to you in order for you to wear it!” Hadrat Jafar
@@ -18876,9 +18474,7 @@ Kabîr, VI, 169; Bayhaqî, as-Sunan, II, 346.
 
 461
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 It had been worn by the caliphs on the Eid days. When Caliph Muqtadir was killed,
 his blood smeared it. Abbasids took it with them when they went to Egypt. When
@@ -18964,9 +18560,7 @@ Tirmidhî, Shamâil-i Sharîf, s, 121.
 
 463
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Upon this, our Prophet acquired a silver ring, the stone of which had three lines on it:
 
@@ -19050,7 +18644,6 @@ from us for carrying their dead and we gave donations. Hadrat Abû Bakr’s and 
 
 465
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hadrat Âisha said, “Rasûl ’alaihis-salâm had a mat on which he would perform
 namâz during the night and lay it on the ground to sit with people during the daytime.”543
@@ -19074,7 +18667,6 @@ One day our Prophet took Abdullah bin Unays from the masjid to his house, he gav
 him a walking staff and told him, “Keep this walking staff with you O Abdullah
 bin Unays!”
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Seven things that our Prophet would hold
 Our Prophet ‘alaihis-salâm had a mihjan the length of which was one arshin (about
@@ -19141,7 +18733,6 @@ to him to immediately go out and tidy his hair and beard. After he had done so a
 		
 467
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 came back, our Prophet said, “Which is better: One coming here with tidy hair and
 beard like this, or with messy hair and beard like Satan?”
@@ -19176,7 +18767,6 @@ night has elapsed).548
 Hadrat Âisha said, “There was never a night or a day that Prophet (’alaihis-salâm),
 when awakening, did not use miswâk before performing a ritual ablution!”
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The swords of our Master, Rasûlullah
 Our Prophet ‘alaihis-salâm had nine swords: The sword named Ma’sur, was inherited from his father. This sword was with our Prophet during his migration to Medina.549
@@ -19225,11 +18815,9 @@ manner.
 
 469
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The bows and shields of our Master, Rasûlullah
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The flags and banners of our Prophet
 
@@ -19325,7 +18913,6 @@ Holy Battle of Uhud.560
 
 471
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 There was some white on the lip of Sakb. Three of its legs had patches, but one right
 leg did not. Sakb was a swift horse. It would ride smoothly. Our Prophet had bought
@@ -19342,7 +18929,6 @@ of Hegira, had given the horse named Mirwah to our Prophet as a gift. When a rid
 would mount and ride Mirwah in front of our Prophet, our Prophet would enjoy this
 very much.
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 The camels of our Master, the Prophet
 Quswa: This camel of our Prophet ‘alaihis-salâm was also called Jad’a and Adba.
@@ -19418,9 +19004,7 @@ of the masjîd.
 
 473
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 As our Prophet ‘alaihis-salâm married other wives, the number of rooms increased,
 constructed between Hadrat Âisha’s room and the qibla, that is, on the east side of the
@@ -19505,7 +19089,6 @@ Zuhrî regarding ilm (religous knowledge).
 
 475
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 May blessings and salutations be upon him and his Companions,
 For, he, who is the source of generosity, befriended them.
@@ -19547,9 +19130,7 @@ that, as we know for certain that fire burns, snakes kill by poisoning and we av
 
 477
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 them, we should deem Allahu ta’âlâ and His attributes great, be fully certain of this by
 heart, strive for his consent (ridâ’) and run to His beauty (jamâl), and beware of His
@@ -19635,9 +19216,7 @@ everything, angels have duties. They carry out Allâhu ta’âlâ’s commands e
 They are intermediaries between Allahu ta’âlâ and creatures. Some of them are the
 479
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 commanders of other angels. Some of them brought messages to the prophets among
 human beings. Some angels bring good thoughts, called “ilhâm” (inspiration), to the
@@ -19722,9 +19301,7 @@ truthful. No one could stand against their mu’jizas. The community of a prophe
 called his umma. On the Day of Judgment, prophets will be permitted to intercede for
 481
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 those who were gravely sinful of their ummas, and their intercession will be accepted.
 Allahu ta’âlâ will also permit the ulamâ’ (scholars), sulahâ’ (those who are pious)
@@ -19807,9 +19384,7 @@ Day of Qiyâma (Day of Rising).
 
 483
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 All living creatures will gather at the place of Mahshar (place of gathering). The
 deed-books will fly to their owners. Almighty Allah, the Creator of the earth, heavens,
@@ -19891,9 +19466,7 @@ Fire does not have anything to do with burning. But His Custom (’Âdat) is suc
 unless fire touches something He does not create burning. Fire does nothing except
 485
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 to heat up to the ignition temperature. It is not fire that unites carbon and hydrogen
 with oxygen in organic substances or that supplies movement of electrons. Those who
@@ -19979,9 +19552,7 @@ Therefore, today, it is impossible to follow the madhhab of any of the Ashâb-i 
 
 487
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 There were imams, who reached the grade of mutlaq (absolute) mujtahids [scholars profoundly learned (enough to perform ijtihâd)] by achieving great heights in religious knowledge, some were from among the Taba-i Tâbiîn, who learned Islam from the Tâbiîn,
 and some were from among the Tâbiîn, who learned Islam from the Ashâb-i kirâm. They
@@ -20065,9 +19636,7 @@ For reaching the goal, the aircraft is obtained. That is, îmân and worships ar
 the way of tasawwuf.
 489
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Tasawwuf has two purposes. The first is to make the faith secure and to be conscientious and firm in the heart, so that it cannot be undermined by effects that arouse
 doubt. The îmân which is strengthened through mind, through reasoning, through
@@ -20148,9 +19717,7 @@ world, causing their next world to be destroyed. That is, it will be nothing but
 For adapting oneself to Muhammad ’alaihis-salâtu was-salâm’ completely and flawlessly, one needs to love him completely and faultlessly. The symptom of complete
 491
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 and perfect love is to keep away from his enemies, and to dislike those who dislike
 him. Love cannot include sloth. Lovers, being crazy about their darlings, cannot do
@@ -20234,7 +19801,6 @@ to perform evil deeds. Hell is the worst of destinations.
 
 493
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Hadrat Ahmad bin Hanbal said:
 “One day, I was in a gathering. They raced to go into the water. As for me, abiding
@@ -20398,9 +19964,7 @@ Like hailstones polished with paste.
 Had set fire to that exquisite being.
 495
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Ibni Abbâs said, the Creator’s Most Beloved,
 
@@ -20660,7 +20224,6 @@ If a person confronted him suddenly,
 
 497
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 Footnotes of HILYA-I SA’ÂDAT
 i
@@ -20739,7 +20302,6 @@ xvi The Messenger of Allah.
 
 499
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 
 CHRONOLOGY
 571 The birth of Hadrat Muhammad ’alaihis-salâm (12 Rabi’al-awwal – 20th of April, 571).
@@ -20785,7 +20347,6 @@ The Conquest of Khaybar.
 
 501
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 629 The Holy War of Mûta.
 630 The Conquest of Mecca.
 The demise of his daughter Hadrat Zaynab.
@@ -20947,7 +20508,6 @@ Ibn Sa’d, at-Tabaqât
 
 503
 
-MY BELOVED PROPHET (sall-Allâhu ’alaihi wa sallam)
 v
 
 Ibn Abi Shayba, al-Musannaf

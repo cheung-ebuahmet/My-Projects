@@ -1,7 +1,5 @@
 # The Travels of Ibn Battuta
 
-> 来源: The Travels of Ibn Battuta.pdf
-
 1
 
 THE TRAVELS OF IBN BATUTA

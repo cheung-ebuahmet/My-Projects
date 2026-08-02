@@ -1,7 +1,5 @@
 # Dhul-Hijjah Activity Book
 
-> 来源: Dhul-Hijjah Activity Book.pdf
-
 Dhul Hijjah Activity Book
 
 ©studioarabiya.com
@@ -37,9 +35,7 @@ the most of it, insha'Allah! Bismillah!
 
 www.studioarabiya.com
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Dhul Hijjah Good Deed Tracker
 Make the most of Dhul Hijjah and keep track of
@@ -75,18 +71,14 @@ I didn't get anyone upset
 ___________________________
 TOTAL
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 I Spy With My Little Eye
 Something Starting With...
 
 ‫ك‬
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Laa ilaaha illAllah
 ٰ‫َ ٰ َ ﱠ ﱠ‬
@@ -97,9 +89,7 @@ Allahu Akbar
 ‫ﷲُ أﻛ َﺒﺮ‬
 AlHamdulillah
 ‫ْاﻟﺤَ ْﻤﺪُ ﻟِﻠﱠﻪ‬
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Match each word with the right picture!
 ‫ْاﻟ َﺒ َﻘﺮَة‬
@@ -114,9 +104,7 @@ www.studioarabiya.com
 ‫ْاﻟﺨَﺮُوف‬
 ‫ْاﻟﺠَﻤَ ﻞ‬
 ‫ﺗُﻤُ ﻮر‬
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 The Talbiyah (Arabic: ‫ )ﺗﻠﺒﻴﺔ‬is a special dua that pilgrims during Hajj or
 Umrah recite after making the intention to enter into the state of Ihram
@@ -132,9 +120,7 @@ inna l-ḥamda wa n-ni’mata, laka wa l-mulk(a), lā sharīka lak]
 "Here I am [at your service] O Allah, here I am. Here I am, You have no partner, here I am.
 Verily all praise, sovereignty and bounty belong to you, You have no partner."
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Arabic Maze
 Find your way through this Arabic maze
@@ -156,30 +142,22 @@ If you need some help, here are the letters you need to find:
 ‫ل ب ب ي ك ا ل ل ه م م ل ب ب ي ك‬
 BONUS: Can you find the only letter from
 the Arabic alphabet that does not appear in the maze?
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Connect The Dots
 Level: Beginner
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Connect The Dots
 Level: Intermediate
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Connect The Dots
 Level: Advanced
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Hajj Word Search
 Learn more about Hajj by finding all the words below!
@@ -188,52 +166,35 @@ ARAFAH - EID - DHUL HIJJAH - FARD - HAJJ - IHRAM - KAABAH
 MADINAH - MAKKAH - MARWAH - MINA - MUSLIMS - PILLAR - RAMI
 SAFA - TAKBIR - TAWAF - ZAMZAM
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Hajj Maze
 Khadeejah and Abdullah are going for Hajj insha'Allah!
 Can you help them find their way to the Kaa'bah
 so they can start their blessed journey?
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Eid Cards
 
 Learn Arabic, Quran & Islamic Studies Online
 
-Learn Arabic, Quran & Islamic Studies Online
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Eid Cards
 
-Learn Arabic, Quran & Islamic Studies Online
 
-Learn Arabic, Quran & Islamic Studies Online
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Eid Cards
 
-Learn Arabic, Quran & Islamic Studies Online
 
-Learn Arabic, Quran & Islamic Studies Online
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Answer Key
 I Spy With My Little Eye
@@ -278,7 +239,6 @@ Arabic Maze
 
 BONUS: The letter ‫[ خ‬khaa] is missing!
 
-© Studio Arabiya Institute
 
 Match each word with the right picture!
 
@@ -298,7 +258,6 @@ ARAFAH - EID - DHUL HIJJAH - FARD - HAJJ - IHRAM - KAABAH
 MADINAH - MAKKAH - MARWAH - MINA - MUSLIMS - PILLAR - RAMI
 SAFA - TAKBIR - TAWAF - ZAMZAM
 
-www.studioarabiya.com
 
 Do you want to keep learning
 Arabic, Quran & Islamic Studies
@@ -315,6 +274,4 @@ Parent account to monitor progress
 
 ENROLL TODAY AT
 studioarabiya.com
-© Studio Arabiya Institute
 
-www.studioarabiya.com

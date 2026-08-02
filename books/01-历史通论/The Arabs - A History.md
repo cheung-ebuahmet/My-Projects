@@ -1,7 +1,5 @@
 # The Arabs - A History
 
-> 来源: The Arabs - A History.pdf
-
 Table of Contents
 Title Page
 Dedication
@@ -27444,7 +27442,6 @@ Balfour, Lord Arthur
 Balfour Declaration
 Balkans
 nationalism
-under Ottoman rule
 Banking reform, Ottoman Empire
 Banna, Hasan alBarbarossa (Khayr al-Din)
 Barbary corsairs (pirates)
@@ -27508,7 +27505,6 @@ Byron, Lord
 Byzantine Empire
 Cairo
 burns, on Black Saturday
-under Ottoman rule
 as publishing center
 revolt against Ottomans
 Cairo Accord of November 1969
@@ -27574,7 +27570,6 @@ Cromer, Lord (Sir Evelyn Baring)
 Crusades
 Cyprus
 Damascus
-under Ottoman rule
 prostitution in
 revolt against French
 revolt against Ottomans
@@ -27625,7 +27620,6 @@ Greek War
 land taxation
 under Nasser, Gamal Abdel. See Nasser, Gamal Abdel
 newspapers
-under Ottoman rule
 peace treaty with Israel, 1979
 post-World War I,
 revolt against Ottomans
@@ -27973,7 +27967,6 @@ Israeli-Lebanese Agreement of May 17, 1983
 National Movement
 National Pact, 1943
 nationalists. See Nationalists, Lebanese
-under Ottoman rule
 Palestinian guerrillas in
 population, by religion
 post-Israeli war
@@ -27991,7 +27984,6 @@ Egypt attacks, 1977
 under Italian colonialism
 1969 revolution
 oil production
-under Ottoman rule
 Likud government, Israel
 London Conference of May 1832,
 London Convention for the Pacification of the Levant, 1840
@@ -28128,7 +28120,6 @@ battle for
 North Africa (continued)
 
 nationalism
-under Ottoman rule
 North African colonialism
 North Atlantic Treaty Organization (NATO)
 Nuqrashi, Mahmud Fahmi alNusseibeh, Sari
@@ -28213,7 +28204,6 @@ public opinion
 second intifada
 severed from Transjordan
 two-state solution
-under Ottoman rule
 United Nations Special Committee on Palestine (UNSCOP)
 uprising. See Intifada
 Palestine Liberation Army
@@ -28438,7 +28428,6 @@ Islamists in
 local leaders co-opted
 losses to Israel
 Muhammad ’Ali invades
-under Ottoman rule
 post-World War I
 
 role in First World War
@@ -28506,7 +28495,6 @@ battle for
 declares bankruptcy
 under French colonialism
 independence
-under Ottoman rule
 reforms, nineteenth century
 Tunisian Constitution of 1861
 Turayqi, Abdullah alTurco-Circassians
@@ -28609,7 +28597,6 @@ Yassin, Shaykh Ahmad
 Yemen
 civil war
 independent
-under Ottoman rule
 Yishuv (Jewish community in Palestine). See Zionism, Zionists
 Yom Kippur War. See Arab-Israeli Wars, 1973 War
 Younes, Mahmoud

@@ -1,8 +1,5 @@
 # Prophet Muhammad - The Greatest Person
 
-> 来源: Prophet Muhammad - The Greatest Person.pdf
-> 提取于: iSlam/先知·穆罕默德/Prophet Muhammad - The Greatest Person.pdf
-
 Prophet
 Muhammad (‫)ﷺ‬:
 The Greatest
@@ -41,7 +38,6 @@ about him (‫)ﷺ‬, spread this knowledge around
 us, and try our best to follow his example (‫ )ﷺ‬in
 all aspects of our lives.
 
-© www.studioarabiya.com
 
 Page 2
 
@@ -86,7 +82,6 @@ The Prophet (‫ )ﷺ‬was completely devoted to
 serving Allah SWT in all aspects of his life, and
 remembered Allah SWT in everything that
 he (‫ )ﷺ‬would do.
-© www.studioarabiya.com
 
 Page 3
 
@@ -116,7 +111,6 @@ Even in the most difficult situations such as this
 one (the Hijrah of the Prophet (‫ )ﷺ‬with Abu Bakr
 (‫))رﺿﻰ ﷲ ﻋﻨﻪ‬, the Prophet (‫ )ﷺ‬always put his
 complete trust in Allah SWT and His Plans.
-© www.studioarabiya.com
 
 Page 4
 
@@ -139,7 +133,6 @@ are young, but adults need role models just
 as much as we navigate our moral compass.
 Allah SWT has given us the best role model to
 look up to: Prophet Muhammad (‫)ﷺ‬.
-© www.studioarabiya.com
 
 Page 5
 
@@ -177,7 +170,6 @@ things, about the character of the
 Prophet (‫)ﷺ‬. He (‫ )ﷺ‬was applying the Qur'an
 in all aspects of his life including in his
 character and manners.
-© www.studioarabiya.com
 
 Page 6
 
@@ -210,7 +202,6 @@ around him who didn't want to accept the
 message Allah SWT has given him, He SWT
 also affirms the greatness of the Prophet's
 nature and character (‫)ﷺ‬.
-© www.studioarabiya.com
 
 Page 7
 
@@ -234,7 +225,6 @@ Muhammad (‫ )ﷺ‬was known as ‫اﻟﺼَ ﺎدِق اﻷَﻣِ ﻴﻦ‬
 As-Sādiq Al-Amīn, meaning "the Truthful, the
 Trustworthy", laying a strong foundation for
 his Prophethood (‫)ﷺ‬.
-© www.studioarabiya.com
 
 Page 8
 
@@ -254,7 +244,6 @@ death except a white mule, his arms and a piece
 of land which he left to be given in charity.
 Sahih al-Bukhari 2873
 
-© www.studioarabiya.com
 
 Page 9
 
@@ -275,7 +264,6 @@ grief over them, [O Muhammad], if they do not
 believe in this message, [and] out of sorrow."
 Surah Al-Kahf, 18:6
 
-© www.studioarabiya.com
 
 Page 10
 
@@ -297,7 +285,6 @@ what you suffer; [he is] concerned over you and
 to the believers is kind and merciful."
 Surah At-Tawbah, 9:128
 
-© www.studioarabiya.com
 
 Page 11
 
@@ -324,7 +311,6 @@ realities of this world, as Allah SWT had given
 him knowledge and wisdom that no one else
 around him had. This again shows how much
 he (‫ )ﷺ‬cared about others.
-© www.studioarabiya.com
 
 Page 12
 
@@ -342,7 +328,6 @@ not know. And ever has the favor of Allah upon
 you been great."
 Surah An-Nisaa', 4:113
 
-© www.studioarabiya.com
 
 Page 13
 
@@ -377,7 +362,6 @@ teaching: the Qur'an. There was never any
 vulgarity or disrespect in his language or
 behavior. Even his reprimands were carefully
 crafted.
-© www.studioarabiya.com
 
 Page 14
 
@@ -397,7 +381,6 @@ used to teach us the Suras from the Holy
 Qur'an.
 Sahih al-Bukhari 6382
 
-© www.studioarabiya.com
 
 Page 15
 
@@ -419,7 +402,6 @@ Narrated Ibn `Abbas: The Prophet (‫ )ﷺ‬was the
 most generous of all the people.
 Sahih al-Bukhari 3554
 
-© www.studioarabiya.com
 
 Page 16
 
@@ -440,7 +422,6 @@ may Allah be pleased with her
 
 Sources:
 
-© www.studioarabiya.com
 
 Page 17
 

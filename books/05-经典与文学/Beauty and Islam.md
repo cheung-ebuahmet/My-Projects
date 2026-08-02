@@ -1,7 +1,5 @@
 # Beauty and Islam
 
-> 来源: Beauty and Islam.pdf
-
 The Institute of Ismaili Studies
 
 The Institute of Ismaili Studies was established in 1977 with the object
@@ -165,7 +163,6 @@ enumerative perspectives, Gonzalez takes a substantive and daring
 
 xi
 
-beauty and islam
 methodological leap. She uses aesthetics both at the meta- and the objectlevel, and both as theory and method, to explicate not only Islamic texts
 containing conceptual discourses on beauty, as Puerta Vílchez has so
 ably done, but also to analyse in the framework of aesthetic phenomenology the actual embodiment of the works of art themselves. It is here
@@ -230,7 +227,6 @@ Gonzalez concludes the book with a chapter on the aesthetic system of
 
 xiii
 
-beauty and islam
 inscriptions. For this final discourse, she builds upon the methodological
 ground that she has prepared in the preceding chapters. Having cogently
 argued that inscriptions constitute an autonomous artistic sphere in Islam, she now has the justification and the prospects for studying
@@ -290,7 +286,6 @@ linked to the rules, principles and logic of this tradition and, consequently, n
 
 1
 
-beauty and islam
 civilisations. The second, of a cultural order, deals with the Islamic concept of the practice of the arts, or more accurately, what this is commonly
 considered to be. On the one hand, this concept carries—as everyone
 knows—some normative constraints (against the representation of living things in visual forms) and, on the other hand, it has no clearly
@@ -349,7 +344,6 @@ it appears to the sight, providing an invaluable source of knowledge. All
 
 3
 
-beauty and islam
 of these authors have dealt with aesthetics and art and, finding their
 words illuminating, I have not hesitated to quote them, to rely on them
 and to incorporate them in my own argument. Similarly it has seemed
@@ -392,7 +386,6 @@ by the Scholastics.
 
 5
 
-beauty and islam
 Before beginning our enquiry, let us recall the two principal works
 dealing with medieval aesthetics which we have used as sources for both
 original and translated material: Historia del pensamiento estético árabe, alAndalus y la estética árabe clásica (History of Arabic Aesthetic Thought,
@@ -455,7 +448,6 @@ precede modern thinkers in their attempt to isolate the question of aesthetics f
 
 7
 
-beauty and islam
 human ontology. In other words, he is the first aesthetician if we consider his work from a contemporary perspective formed by centuries of
 positive thought. In any case, it is precisely these various philosophical
 colours that make up the richness and originality of medieval aesthetics.
@@ -487,7 +479,6 @@ is unanimously perceived by the souls (ma˙sïs fí’l-nufïs) when they see it
 
 8
 
-aesthetics in classical arabic thought
 ‘alå l-wajh), a glance (ishråq) that inclines hearts towards it (yastamíl alqulïb na˙wa-hu), in such a way that opinions (‘arå’) coincide in judging it
 beautiful (isti˙såni-hi) and, although it does not possess fine qualities (˚ifat
 jamíla), everyone that sees it, admires it (råqa-hu), considers it beautiful
@@ -519,7 +510,6 @@ neither the wonders of nature, nor the splendours of art. A highly poetic
 
 9
 
-beauty and islam
 and vivid passage in ‘The Necklace of the Dove’ appears particularly
 characteristic of Ibn Óazm’s approach to beauty:
 Neither the leaves and the plants flourishing after the rain, nor the brightness of the flowers after the clouds pass over with the showers of the
@@ -549,7 +539,6 @@ qualities, of physical as well as mental properties of attraction. Let us
 
 10
 
-aesthetics in classical arabic thought
 once again quote the thinker from Cordoba, who as a specialist of fiqh or
 Islamic jurisprudence, has this to say:
 If I love someone it is for myself and for my soul which delights itself with
@@ -581,7 +570,6 @@ Unlike úåhirí thought, the metaphysical aesthetics of the Neoplatonists
 like al-Fåråbí and Ibn Sínå in the eastern Islamic world, or Ibn ®ufayl
 11
 
-beauty and islam
 and Ibn Båjja in al-Andalus, considers beauty in a radically different manner. In accordance with Neoplatonic ideas, the value of the beautiful
 defended by these thinkers can only be conceived in a spiritual light,
 more precisely in the light of emanationist cosmology inspired by Greek
@@ -614,7 +602,6 @@ concerns an elevating and fundamentally cerebral experience in which
 
 12
 
-aesthetics in classical arabic thought
 sensory perception constitutes only the initial and necessary level of a
 process of perception graduated in ascending stages, the intellectual
 perception (al-idråk al-‘aqlí) residing in the superior degree. The ultimate goal remains the beatific aspiration to the luminous and radiant
@@ -643,7 +630,6 @@ of Healing) and from what forms a kind of summary of it, Kitåb al-Najå
 
 13
 
-beauty and islam
 inhabiting all kinds of objects, things and beings, an essentialist conception that he expresses in this concise and absolute postulate:
 The beauty (jamål) and splendour (bahå‘) of all things consists in that
 everything has to be as it has to be.14
@@ -677,7 +663,6 @@ it—to ugliness as a major concept opposed to beauty defined by the
 
 14
 
-aesthetics in classical arabic thought
 Divine Attributes; a scheme of opposing concepts which in the event
 characterises the ontological duality of earthly existence in beauty and
 ugliness, good and evil, and so on. Imperfection and evil, says Ibn Sínå,
@@ -711,7 +696,6 @@ Aristotle’s works, 21 and it is from this that the Latins gave him the
 
 15
 
-beauty and islam
 sobriquet ‘the commentator’. His philosophy, and, by extension, his conception of the beautiful thus appears impregnated with the principles of
 logic and physics of the Greek master. The aesthetics subtending the
 Rushdian analysis of concreteness or, more precisely, what we can interpret as such, are developed as part of the noetic and metaphysical
@@ -744,7 +728,6 @@ observable notions of order (tartíb), structural cohesiveness and physical harm
 
 16
 
-aesthetics in classical arabic thought
 aesthetics sustained by logical principles of the causality and finality of
 natural laws. Accordingly, things in general are included in a hierarchy
 in terms of nobility instead of beauty, a principle that evidently implies
@@ -775,7 +758,6 @@ syllogistic activity; then, in the activity of making known something hidden, wh
 
 17
 
-beauty and islam
 example put instead of it, there is, in a sense, one of the sorts of teaching
 that occurs through syllogism, for the imagination of the thing takes relative to it (the thing) the rank of the premise, and the thing that one seeks
 to imagine and understand takes the rank of the conclusion; and because
@@ -809,7 +791,6 @@ beauty for qualifying works of art, a criterion which replaces the hierarchic va
 
 18
 
-aesthetics in classical arabic thought
 emanating from the ontological order conceived by Ibn Rushd. From
 this point of view, it seems relevant to establish once again a link with
 the medieval Christian perception of art which presents some aspects in
@@ -845,7 +826,6 @@ In his famous treatise Kitåb al-manåúir (The Book of Optics),31 Ibn alHaytham
 
 19
 
-beauty and islam
 and psychophysics, as a primary cognitive experience in general. From
 then on he builds a theory of the sensitive appreciation of beautiful things
 (idråk al-˙usn) in particular. But first of all, this corpus provides a scientifically important proposition about the physical process of seeing, thanks
@@ -878,7 +858,6 @@ even by a child, in an inner way, at the primary stage of aesthetic
 
 20
 
-aesthetics in classical arabic thought
 development in the sense that the child already discerns, compares and
 evaluates things according to the degree of the qualities they convey
 and display to the sight. A celebrated text from the second volume of
@@ -912,7 +891,6 @@ except their lightness and brightness’.37
 
 21
 
-beauty and islam
 The second principle is the modulator or the shaping principle of
 this beauty per se, conveyed by the generic visual concepts into a particular,
 single beauty, thus a measurable, quantifiable and therefore classifiable
@@ -945,7 +923,6 @@ sound. Indeed, writing is considered beautiful when of regular
 
 22
 
-aesthetics in classical arabic thought
 composition, even though the letters in it are not quite sound. Similarly,
 many forms of visible objects are felt to be beautiful and appealing only
 because of the composition and order of their parts among themselves.39
@@ -981,7 +958,6 @@ Jean Peckham. The De Perspectiva treatise of the first (Witelo), dedicated
 
 23
 
-beauty and islam
 to Guillaume de Moerbeke (around 1270), will be commented on by
 Kepler, the second one (Peckham) deeply inspires the Trattato della pittura
 (The Treatise of Painting) by Leonardo da Vinci, whose aesthetic-scientific trends are well known.43
@@ -1012,7 +988,6 @@ intuitive mode ‘the instinctive infrastructure of perception’ as opposed
 
 24
 
-aesthetics in classical arabic thought
 to logical modes of thought, which he refers to as the ‘superstructures of
 perception established by the exercise of intelligence’.46
 Indeed, in Ibn al-Haytham’s work, as Puerta Vílchez rightly says, aesthetic appreciation appears entirely circumscribed within the intuitive
@@ -1088,7 +1063,6 @@ deals with the arts in general, and so with works conceived in order to be
 
 27
 
-beauty and islam
 at once beautiful, cognitive and expressive, which thus suppose an intellectual undertaking and a purely aesthetic conceptualisation beyond any
 functional purpose.7 Within this category of thought, the aesthetics of
 perceptual forms possess a specific status because, being concerned with
@@ -1120,7 +1094,6 @@ Western concept, but rather the one who initiates artistic creation and
 
 28
 
-the solomonic parable
 defines it by stressing its proper aesthetic and ethical values within the
 universal body of knowledge.
 In other respects, one knows that within the monotheistic tradition,
@@ -1153,7 +1126,6 @@ al-majålis:
 
 29
 
-beauty and islam
 When she arrived in Solomon’s presence, she was told: Enter the court!
 The reason for this was as follows: when Bilqís drew near in search of him,
 Solomon ordered the satans to build him a court (˚ar˙). That was a palace
@@ -1191,7 +1163,6 @@ that, by virtue of its structurally ambiguous appearance, Solomon’s glass-
 
 30
 
-the solomonic parable
 work constituted in the eyes of a medieval thinker an object open to
 interpretation concerning its specific character and perceptual qualities: the transparency and flatness of the material, its white or green
 colour, the apparent presence of living sea creatures, the real water beneath it and so on. In our opinion, this discussion reveals the deep
@@ -1221,7 +1192,6 @@ by evoking the experience of the ˚ar˙ by the Queen of Sheba:
 
 31
 
-beauty and islam
 It is as if Solomon’s jinn (spirits) had built it from carefully studied plans.
 And if the Queen of Sheba would cross it, she would say, ‘It resembles the
 floor paved with slabs of glass’.16
@@ -1257,7 +1227,6 @@ to Oleg Grabar, these ornaments probably manifested an attempt to
 
 32
 
-the solomonic parable
 imitate or to create an aesthetic evocation of the Solomonic pattern in
 Qur’an 27:44.18
 These selected examples demonstrate the paradigmatic influence of
@@ -1292,7 +1261,6 @@ words, thanks to its rhetorical power, the manifest meaning gives to the
 
 33
 
-beauty and islam
 induced meaning a maximal cognitive effectiveness. Relative to this peculiar signifying system, the semantic configuration of the Qur’anic
 passage stands out in the following terms:
 At the literal level, by showing the queen making a mistaken gesture
@@ -1321,7 +1289,6 @@ and walk upon, suggesting at least a floor if not a whole room or building.
 
 34
 
-the solomonic parable
 Neither the parable, nor the exegesis that proposes various linguistic
 interpretations,20 allows us to set a firm structural determination of the
 object in terms of two- or three-dimensionality. It could refer equally to
@@ -1354,7 +1321,6 @@ paving a floor or panelling a wall or any type of wainscot. Each glass
 
 35
 
-beauty and islam
 fragment appears equal to all others and is inlaid at the same depth in
 order to give a quality of smoothness to the surface. Only a geometrical
 principle could produce such a setting and bring it to a perfect finish.
@@ -1386,7 +1352,6 @@ is a ‘pattern of intention’ according to the meaningful expression coined
 
 36
 
-the solomonic parable
 by the philosopher of art Michael Baxandall.23 More accurately, the
 manifest intention in the aesthetic system of the ˚ar˙ is to sharpen the
 close similarity between glass and water which serves the rhetorical purpose of the story. In order to fulfil this project, the watery theme has
@@ -1418,7 +1383,6 @@ plastic system of covering a functional space in a regular way with a chosen mat
 
 37
 
-beauty and islam
 organisation corresponds with what we usually call ‘ornament’, forming
 an ‘overall’ decoration of combined and repeated elements that adorn
 a wall, floor, arch or the like. A determined symbolism or representation cannot be identified in these ornaments, but some of them definitely
@@ -1452,7 +1416,6 @@ in nature. Works of art display apparent likeness with natural objects
 
 38
 
-the solomonic parable
 because of the fundamentally imitative character of the artistic creation,
 following the Aristotelian concept of mimesis, ‘imitation’. In this case
 mimesis must be understood in its generic significance, not in the specific sense of ‘realistic copy’ or ‘reproduction’ of the real. Sometimes art
@@ -1483,7 +1446,6 @@ the positive or the negative value of this aesthetic phenomenon is relevant to t
 
 39
 
-beauty and islam
 and experience of art, the aesthetic value of an optical illusion changes
 according to the cultural context or is culturally determined. In fact, the
 phenomenon can be understood as the positive result of the perception
@@ -1518,7 +1480,6 @@ or substitution between them. Both entities are absolutely distinct in
 
 40
 
-the solomonic parable
 essence, and a failure to grasp this ontological truth is a serious error.
 Appearances are not realities, they are only a part of them.
 This analysis has only demonstrated the immediate aesthetic sense of
@@ -1612,7 +1573,6 @@ the darkest shadows remaining in the gloom ...’
 
 43
 
-beauty and islam
 other cupolas vanish and disappear,
 To which the constellations of the Twins extend the hand of salutation,
 and to converse with which the full moon deserts her station in heaven.
@@ -1653,7 +1613,6 @@ Blessed be he who has entrusted you with the command of his servants
 
 44
 
-the comares hall
 and who through you exalted [the world of] Islam in benefits and
 favours;
 And how many infidel lands did you reach in the morning only to
@@ -1692,7 +1651,6 @@ characterises almost all Na˚rid architecture, except for a few figurative
 
 45
 
-beauty and islam
 paintings and, possibly, the ambiguous disposition of the Court of the
 Lions. As a result, the art of the palace has been categorised under the
 specific representational concept of the visual symbol.5 The terms of
@@ -1723,7 +1681,6 @@ the decorative networks, conversely the parietal texts display an intensely
 
 46
 
-the comares hall
 vital literature. Consequently, the type of connection proposed by scholars is very difficult to establish. First of all, the decorative features, the
 figurative frescoes and vault paintings, from which one would expect to
 find clear representational articulation relative to the texts, do not reveal any meaningful links. The anthropomorphic motifs shaping the
@@ -1755,7 +1712,6 @@ and prophylactic patterns, such as the escutcheon, the key and the hand
 
 47
 
-beauty and islam
 symbolic language contains a very reduced vocabulary and cannot
 therefore be considered as an element of great significance within the
 overall semantic system of the Na˚rid monument. To summarise, all of
@@ -1790,7 +1746,6 @@ found in the Alhambra: the autonomy of the two artistic spheres of architectural
 
 48
 
-the comares hall
 in order to form a double set of semantics, they are not governed by a
 strictly codified system, but by a softer and more open type of association, not totally established in advance. This system one guesses is, in the
 event, the metaphor. We propose to show how such a metaphorical association works by studying the Comares Hall, once again beginning with
@@ -1822,7 +1777,6 @@ from the evil of darkness when it gathers,
 
 49
 
-beauty and islam
 from the evil of those who blow on knots,
 from the evil of an envier when he envies.
 
@@ -1862,7 +1816,6 @@ and ontological questions related to the Creation, that is to say the
 
 50
 
-the comares hall
 relationship between God and His creatures, the Divine Attributes of
 power, the issue of life and death, the duality of the believers and unbelievers, and so on, but it also provides cosmographical features, i.e. a
 kind of physical description of the world with its division on two planes:
@@ -1897,7 +1850,6 @@ To return to our semantic analysis of the poetic inscription, by invoking
 
 51
 
-beauty and islam
 the sun and the signs of the zodiac, and using the word ‘daughters’ for
 the metaphorical designation of the alcoves (‘This is the light dome and
 we are its daughters’), the poem situates the area of the building it is
@@ -1932,7 +1884,6 @@ interrelation and interactivity between the practical significance of the
 
 52
 
-the comares hall
 place and the abstract significance of the words. Thus, through the
 specific physico-semantic link that relates them appropriately to their
 material basis, the inscriptions make the latter resound with the cosmological evocations they carry, and transform it metaphorically into a
@@ -1965,7 +1916,6 @@ outside world through a panoramic view onto the city. Above these big
 
 53
 
-beauty and islam
 windows, a large area of the walls remains blind, creating an interval
 before the upper level of the square is reached, as though passing into a
 space disconnected from the lower and from the outside world. Upwards,
@@ -1996,7 +1946,6 @@ representation of the cosmology of the Qur’an. Indeed all the visual
 
 54
 
-the comares hall
 signs assembled in the architectural work function as a kind of metaphysical itinerary in matter. They create a progressive elevation from
 bottom to top, through a succession of different spatial entities formed
 by the diverse planes of the square, until they reach the place of ultimate splendour and marvel, the wooden dome. For Western observers,
@@ -2030,7 +1979,6 @@ representation is distinct from the concept of artistic identification,
 
 55
 
-beauty and islam
 insofar as, to borrow Arthur Danto’s elucidating words, ‘the fact that A is
 identical to B is compatible with the lack of literal identity’.19 So do we
 find in the Comares dome an objective system of signs susceptible to
@@ -2061,7 +2009,6 @@ on’, in order to reach infinity.”20
 
 56
 
-the comares hall
 So each type of star pattern is conceived as a series that indeed conceals the power of being indefinitely extensible. Having no specific link
 with the sacred numerology in the Qur’an, the conclusion is that no
 observable parameter permits one to read in the ceiling’s geometry
@@ -2095,7 +2042,6 @@ As a general rule, any type of aesthetic morphology is defined by the
 
 57
 
-beauty and islam
 nature and content of its matter and the mode of spreading of this matter within space, namely the position of its limits, its horizon. Thus, the
 affirmation or, on the contrary, the negation of the edges of this morphology constitutes a determining element for its ontological status,
 relative to the aesthetic dialectics between finitude and infinitude involved in the phenomenology of created visual spaces, above all in the
@@ -2125,7 +2071,6 @@ the paintings that present concentric stripes. (Plate viii) They are
 
 58
 
-the comares hall
 deductive structures in the sense that they (the paintings as well as the
 Na˚rid device) ‘have been, so as to speak, generated in toto by the specific forms of their outer edges’.24
 Naturally, such a conception for the ceiling cannot have come about
@@ -2152,7 +2097,6 @@ a visual metaphor.
 
 59
 
-beauty and islam
 the comares dome as visual metaphor
 The aesthetic articulation between the visual and textual materials of
 the Comares Hall proceeds from metaphorisation which thereby provides
@@ -2183,7 +2127,6 @@ inspired by constellations or the firmament. Starting from this deduction,
 
 60
 
-the comares hall
 it is easier to go deeper into the problem. Actually, the visual mechanism in question originates from a conjunction of two distinct
 phenomena: firstly, a phenomenon of imaging suggestion emanating from
 the architecture, precisely from the general formal configuration which
@@ -2214,7 +2157,6 @@ That is why He [the Creator] shaped the celestial spheres with the spherical for
 
 61
 
-beauty and islam
 the broader and the farthest one from any defect and the speedier one; it
 has its centre in the central point, all its parts are equivalent, only one
 surface surrounds it, nothing else than one surface can touch it on one
@@ -2249,7 +2191,6 @@ properly lead to the formation or the definition of the metaphor, by an
 
 62
 
-the comares hall
 effective identification of the epigraphic sense with the artistic matter.
 As a mental process, they belong to the subjective field of the imagination which is stimulated on purpose by visual suggestion. In this way,
 they constitute the experimental part of the metaphorisation which occurs during the perceptive activity, namely during the spectator’s
@@ -2281,7 +2222,6 @@ that instead of following determined and univocal rules of understanding the bui
 
 63
 
-beauty and islam
 of the formal and textual cognitions received from it, in accordance
 with one’s own imaginative and cognitive disposition. This occurs in such
 a fashion that one necessarily adapts the epigraphic significations to the
@@ -2313,7 +2253,6 @@ relies on the so-called ‘as if’ principle, widely discussed by Wittgenstein:
 
 64
 
-the comares hall
 Here is a game played by children: they say that a chest, for example, is a
 house; and thereupon it is interpreted as a house in every detail. A piece
 of fancy is worked into it. And does the child now see the chest as a house?
@@ -2352,7 +2291,6 @@ under the phenomenological concept of ‘the imaging metaphor’: a non-
 
 65
 
-beauty and islam
 representational proposition invested with a figurative power38 that produces materialised inner, mental, images, such as the celestial picture in
 question. Wittgenstein, again, concisely describes this process of inner
 visualisation:
@@ -2382,7 +2320,6 @@ conceptual principle clearly defined by the contemporary French painter
 
 66
 
-the comares hall
 Yves Klein as ‘an abstract idea represented in an abstract manner’.40 In
 this third case, the dome appears as a conceptual support to the metaphysical concept of the superior heavenly world that derives from the
 inscriptions. The perceptual properties of abstraction proper to geometrical drawings fully sustain this vision of the work of art. To borrow,
@@ -2415,7 +2352,6 @@ mind cannot give either form or figure to immensity. If it did, immensity
 
 67
 
-beauty and islam
 would be thought of as finite, and if this happened, immensity would
 not be thought of as immensity.’43
 
@@ -2444,7 +2380,6 @@ Ages to the modern period, starting with the study of modular drawings
 
 69
 
-beauty and islam
 from the Timurid period, in the so-called ‘Topkapi scroll’. In particular,
 Necipo@lu explains the rise of artistic geometry in close and logical correlation with the overall intellectual framework of medieval Islam,
 focusing primarily upon the Abbasid court in Baghdad, which was marked
@@ -2503,7 +2438,6 @@ benefit equally from this Western knowledge of artistic geometry, notably
 
 71
 
-beauty and islam
 by establishing parallels and comparisons with contemporary artistic
 works.
 Far from seeming anachronistic, these works will help to answer an
@@ -2533,7 +2467,6 @@ modules of variable scale around which courtyards and rooms are
 
 72
 
-the ‘geometries’ of the alhambra
 arranged. Although the elements that cover these architectural units—
 wooden roofs, so-called artesonados, domes and muqarnas
 vaults11—generate the optical effect of very skilful geometry, they did
@@ -2566,7 +2499,6 @@ inlaid with stucco. (Plate xi)
 
 73
 
-beauty and islam
 Finally, if we rigorously uphold the scientific nature of geometry as a
 building practice, we could consider this complexity through variation
 and decoration as ‘apparent’ or ‘illusionist’, and assume that this is a
@@ -2597,7 +2529,6 @@ In the proposition the form of its sense is contained, but not its content.13
 
 74
 
-the ‘geometries’ of the alhambra
 On the level of aesthetics, we can group the geometries of the Alhambra into three generic categories, supposing three distinct principles
 that subtend the visual forms of the building: ‘imaging geometry’, ‘kinetic geometry’ and ‘conceptual geometry’. These categories follow
 specific perceptual rules and a particular aesthetic logic that differentiate them, despite the common morphological point linking them which
@@ -2628,7 +2559,6 @@ to the cultural determinations of the visitor. The analysis of this process
 
 75
 
-beauty and islam
 of diversification needs to define the three generic types of geometrical
 proposition as to their main qualities and properties, and to expound
 their phenomenology.
@@ -2659,7 +2589,6 @@ metaphor. We have shown that abstract ornamentation, paradoxically,
 
 76
 
-the ‘geometries’ of the alhambra
 conveys the ability to produce images by means of a set of references to
 external entities. But this paradox is only apparent by virtue of the inherent nature of the metaphor itself which, in order to explain the
 imaging system of this type of geometry, we must now discuss.
@@ -2691,7 +2620,6 @@ cosmological metaphor.
 
 77
 
-beauty and islam
 In this double genre of abstraction and evocation, the art of the Alhambra can be compared with the contemporary abstract paintings of
 Mark Rothko. (Plate xiv) Like the Comares dome, these works constitute double entities as visual metaphors which all rely on
 non-representational forms. What one immediately perceives in these
@@ -2721,7 +2649,6 @@ variational, leaving an active part to the individual subjectivity in the
 
 78
 
-the ‘geometries’ of the alhambra
 perception process it induces. Consequently, the former constitutes a
 ready-made entity that appeals more to cognitive consciousness, ‘a phenomenology of the mind’, while the latter, never totally achieving its
 constitution, puts the viewer in a situation of oneirism, by strongly stimulating his dream consciousness, as ‘a phenomenology of the soul’.18 We
@@ -2749,7 +2676,6 @@ vaults, perceptually defined as corporated objects with outlines and limits.
 
 79
 
-beauty and islam
 This means that the category of imaging geometry comprises two types,
 two-dimensional and three-dimensional imaging geometries. The first
 is a metaphor of space, the others are metaphors of things or bodies,
@@ -2778,7 +2704,6 @@ the Hall of the Abencerrajes:
 
 80
 
-the ‘geometries’ of the alhambra
 I am the garden appearing every morning with adorned beauty;
 contemplate my beauty and you will be penetrated with understanding;
 I excel through the generosity of my lord the Imam Mu˙ammad for all
@@ -2819,7 +2744,6 @@ generally known.
 
 81
 
-beauty and islam
 In it there is burnished marble whose light has shone and thus illuminated
 the darkest shadows remaining in the gloom.
 When they are illuminated by the rays of the sun you would think that
@@ -2854,7 +2778,6 @@ to embody any picture of a galactic formation and/or simply to propose
 
 82
 
-the ‘geometries’ of the alhambra
 the visual enjoyment of their manifest appearance; pure geometrical
 intricacy provoking sensations of light, motion and combinations of abstract figures, lines and volumes.
 The poetic text, however, inflects in a sense this phenomenon of
@@ -2886,7 +2809,6 @@ roofing, we come to the second category of geometrical design in the
 
 83
 
-beauty and islam
 Alhambra: kinetic geometry, namely a geometry that has movement as
 its fundamental principle. This statement immediately prompts another,
 which is that the geometry previously studied relates to kinetics in its
@@ -2920,7 +2842,6 @@ Perhaps the simplest examples in terms of geometrical design, but also
 
 84
 
-the ‘geometries’ of the alhambra
 the most radically kinetic ones from the strictly aesthetic point of view,
 are to be found in the baths, where the ceramic sets that adorn the walls
 follow a standard model of kinetic organisation.
@@ -2949,7 +2870,6 @@ therefore, the essential meaning of these geometrical propositions resides
 
 85
 
-beauty and islam
 in the various expressions of movement, and the aesthetic experience
 they aim to stimulate is the optical delight of movement.
 Such a visual language perfectly fits the practical function of the place
@@ -2984,7 +2904,6 @@ as an embodied idea or a materialised ideality. Consequently, unlike the
 
 86
 
-the ‘geometries’ of the alhambra
 radical kinetic formations and the imaging geometry, they define themselves as double entities, acting and signifying within the double aesthetic
 field of matter and concept. This aspect concerns the third axis of our
 investigation, conceptual geometry, but there first remains the task of
@@ -3016,7 +2935,6 @@ perspective in terms of optics. Considering the multiplicity of alternations
 
 87
 
-beauty and islam
 of the elements, their complex combinations and perspective variety,
 these optical changes diversify considerably in accordance with the
 corporal rhythm and the topography of the body’s movement and gestures: a virtual diversification constituted by a series of successive visual
@@ -3047,7 +2965,6 @@ stucco panels, but it shows its more ample developments in the most
 
 88
 
-the ‘geometries’ of the alhambra
 preciously decorated parts, like the Comares Hall walls and those supporting the muqarnas cupolas. The term ‘conceptual’ means the main
 principle that determines this geometrical system, which is clearly not
 movement, neither pure formalism, nor metaphor, but the aesthetic
@@ -3077,7 +2994,6 @@ best support in two-dimensional spaces. Therefore, in it, only surfaces
 
 89
 
-beauty and islam
 include conceptual geometrical formations. But how can one in practice
 recognise the latter and discern it from the other types of geometry?
 That is the question.
@@ -3112,7 +3028,6 @@ dialectics between the finite and the infinite, for ‘geometry is possible
 
 90
 
-the ‘geometries’ of the alhambra
 with an infinite (and non-objective) ideal pole—here, our earth—the
 zero-point of all perception, “the infinite horizon” of every object’.30
 This complex reflection presupposes the analysis of the conceptual
@@ -3147,7 +3062,6 @@ inflect the cognitive phenomenon, orientating it in diversified
 
 91
 
-beauty and islam
 philosophical directions of religious, metaphysical, cosmological or
 aesthetico-poetic orders.
 Let us illustrate our argument again with the example of the Comares
@@ -3181,7 +3095,6 @@ expression.
 
 92
 
-the ‘geometries’ of the alhambra
 As we have seen, the diversified geometries of the Na˚rid palace
 propose a kind of aesthetic comprehension that implies a multiplicity of
 enjoyments related to each other in a channelled way, or more precisely,
@@ -3249,7 +3162,6 @@ definition tends to present the inscription simply as a substitute or
 
 95
 
-beauty and islam
 equivalent of a picture, as if by merely substituting one for the other one
 would find the same signifying logic subtending two types of artistic work
 which would differ only through their formal constitution. But if we examine the Islamic epigraphic system more carefully, we can immediately
@@ -3281,7 +3193,6 @@ of epigraphy. By extension, without inscriptions, the decorative set would
 
 96
 
-inscriptions in islamic art
 lose all or the essential part of its signification. How could this idea fit in
 with the Islamic arts that have developed, as everyone knows, ornamentation as a major mode of expression? There is no need to insist here on
 the fact that Islamic ornaments cannot be simply and solely understood
@@ -3310,7 +3221,6 @@ traditional and universal function of writing in visual arts, forming in
 
 97
 
-beauty and islam
 fact an original, diversified and polyvalent semantic relationship to the
 configuration in which it operates.
 Whereas the traditional system of representation through material
@@ -3342,7 +3252,6 @@ independently from their visual support, with no necessary link nor
 
 98
 
-inscriptions in islamic art
 having any particular semantic connection with the latter, except the
 general status of royal symbol shared by both artistic works.
 In other respects, in line with their capacity for aesthetic metamorphosis and together with the ambiguity of the sense they are supposed
@@ -3373,7 +3282,6 @@ patterns. (Plates xx, xxi, xxii)
 
 99
 
-beauty and islam
 the signifying system of inscriptions on samanid ceramics
 The production of ceramics with exclusively or predominately calligraphic decoration in Central Asia under Samanid rule provides
 substantial material for our enquiry. One does not know exactly what
@@ -3403,7 +3311,6 @@ meaning of the artistic work. Beginning with the linguistic content, we
 
 100
 
-inscriptions in islamic art
 stated above that it tends to deal with the popular literature of maxims,
 little poems and other adages, or single words with religious or ethical
 resonance, like baraka, often repeated several times on the same surface.
@@ -3433,7 +3340,6 @@ only integrate an effective reading, but above all transcend it. To a very
 
 101
 
-beauty and islam
 high degree they play upon this ambivalence resulting from the dialectic tension between the abstract and the formal, between the ideality of
 sense and the reality of the sign that characterises the art of inscriptions.
 Obviously these objects focus upon the pure material beauty of calligraphy as such in order to produce maximum visual impact by emphasising
@@ -3464,7 +3370,6 @@ horizontally, often transgressing the physical limits of the artefact and
 
 102
 
-inscriptions in islamic art
 amplifying its aesthetic openness, the phenomenon becomes more striking. Concerning the specimens with a band of Kufic writing, Lisa
 Golombek rightly pointed out the possible influence of the textiles decorated with tiråz patterns that do indeed present a similar spatial
 combination of the ground and the decorative scripture:
@@ -3498,7 +3403,6 @@ literary intentionality or ‘intentional primordiality of a Here-and-Now
 
 103
 
-beauty and islam
 of truth’,19 hence its transcendental value, its essence. As Jacques Derrida, again, says:
 Writing, as a place of absolutely permanent ideal objectivities and therefore of absolute Objectivity, certainly constitutes such a transcendental
 field (a ‘subjectless transcendental field’ according to Jean Hyppolite’s
@@ -3529,7 +3433,6 @@ On particular ceramics that have been decorated with concentric calligraphy, the
 
 104
 
-inscriptions in islamic art
 sense is gathered into scriptural signs. They create strings open to reproduction ad infinitum and, in this way, as in the other examples, they
 transform the utilitarian object into a limitless and abstract aesthetic
 space. Nevertheless, taking into consideration the curved body of the
@@ -3564,7 +3467,6 @@ the placing of the sacred Word in the corporeality of the letter.
 
 105
 
-beauty and islam
 inscriptions in the figurative art of miniatures
 In Islamic culture, inscriptions occupy a great proportion of the pictorial space in figurative representations. Among other types of figuration,
 there are, of course, the miniatures wherein they frequently appear completely integrated into the painting. Such a combination raises numerous
@@ -3591,7 +3493,6 @@ xxiv) In an exhibition of Ruscha’s work, the critic Thierry Raspail very
 
 106
 
-inscriptions in islamic art
 clearly analyses this aesthetic phenomenon that relates equally to Islamic
 medieval miniatures, except that in these, it is the inscription which transforms itself into a kind of figuration, not the other way around:
 Ruscha does not hesitate to write the subject, to inscribe the text which is
@@ -3623,7 +3524,6 @@ In the second category of three-dimensional representations, to which
 
 107
 
-beauty and islam
 Timurid paintings belong along with the miniatures of the modern period in general, the pictorial and scriptural grounds present a dichotomy.
 As the two-dimensional morphology of calligraphy opposes the illusionist three-dimensional space of the picture, the whole field of the artistic
 work breaks up into two distinct visual sequences, each governed by its
@@ -3655,7 +3555,6 @@ a way that inscriptions serve only a marginalised function, namely an
 
 108
 
-inscriptions in islamic art
 informative function that only aims to provide semantic terms for the
 understanding of the miniature. In this case, the scriptures appear circumscribed inside cartouches, panels or as friezes set back from the
 image, alongside its edges. The terms of the message emanating from
@@ -3687,7 +3586,6 @@ to the disproportion between the large script and the tiny scene,
 
 109
 
-beauty and islam
 emphasises the inscription’s two-dimensionality on the pictorial surface
 that the eye initially grasps; the gaze then moves toward the tiny images
 inside the letter-forms.
@@ -3732,7 +3630,6 @@ a complex subject that deserves a special study of its own.
 
 111
 
-beauty and islam
 Sabra, The Optics of Ibn al-Haytham (Kuwait and London 1983–1989), Books I–
 III. See also, by the same author, ‘Sensation and Inference in Alhazen’s Theory
 of Perceptual Vision’, in Peter K. Machamer and Robert G. Turnbull, eds, Studies in Perception: Interrelations in the History of Philosophy and Science (Columbus,
@@ -3811,7 +3708,6 @@ IL., 1976).
 
 113
 
-beauty and islam
 42. See de Bruyne, Etudes; Erwin Panofsky, Meaning in the Visual Arts (Chicago,
 IL., 1982), notably pp.88–92; Eco, The Aesthetics of Thomas Aquinas.
 43. De Bruyne, Etudes, vol.2, p.123.
@@ -3882,7 +3778,6 @@ de l’Islam (Paris, 1996).
 
 115
 
-beauty and islam
 chapter 3
 understanding the comares hall in the light of phenomenology
 1. Gaston Bachelard, La Poétique de l’espace (Paris, 1978), p.40; English tr.,
@@ -3955,7 +3850,6 @@ example given by Aristotle, of the soldier who does not see but imagines that
 
 117
 
-beauty and islam
 there is a fire in the towers of the city; in de Libera, Averroès, l’intelligence et la
 pensée, pp.143–4.
 34. Wittgenstein, Philosophical Investigations, p.206; for a further exploration
@@ -3981,7 +3875,6 @@ p.277.
 
 chapter 4
 abstraction, kinetics and metaphor:
-the ‘geometries’ of the alhambra
 1. Michel Serres, Les Origines de la géométrie (Paris, 1993), p.130.
 2. Gülru Necipo@lu, The Topkapi Scroll: Geometry and Ornament in Islamic
 Architecture (Santa Monica, Calif., 1995).
@@ -4028,7 +3921,6 @@ experiential implications, see Bachelard, La Poétique de l’espace, pp.30–1.
 
 119
 
-beauty and islam
 19. Bachelard, La Poétique de l’espace, p.31. We cannot resist quoting here
 also a passage from a literary work by the French poet Sainte Beuve that Bachelard cites (p.31), for it gives a perfect idea of the effect one could expect from
 the visual metaphor, ‘Let the image float in you; go through lightly; the least
@@ -4102,7 +3994,6 @@ The Image of the Word.
 
 121
 
-beauty and islam
 N.J., 1996).
 12. Quoted by Garcia Gomez, Poemas árabes en los muros y fuentes de la Alhambra, p.35.
 13. See Peter Morgan, ‘Samanid Pottery, Types and Techniques’ in Ernst J.
@@ -4215,7 +4106,6 @@ Gonzalez, Valérie. Emaux d’al-Andalus et du Maghreb. Aix-en-Provence, 1994.
 
 125
 
-beauty and islam
 —— ‘The Aesthetics of Islamic Art: Toward a Methodology of Research’, alU˚ïr al-Wus†å, The Bulletin of Middle East Medievalists, 7 (1995), pp.28–9.
 —— ‘Réflexions esthétiques sur l’approche de l’image dans l’art Islamique’, in
 Clement Beaugé, ed., La Question de l’image dans le monde arabe. Paris, 1995.
@@ -4292,7 +4182,6 @@ Policromía, Simbolismo y Etimología. Granada, 1970.
 
 127
 
-beauty and islam
 35 (1970), pp.423–51.
 Rosenthal, Mark. Abstraction in the Twentieth Century: Total Risk, Freedom, Discipline. New York, 1996.
 Rubiera, Maria Jesus. La Arquitectura en la literatura árabe, Datos para una estética
@@ -4467,7 +4356,6 @@ Fried, Michael 59
 
 131
 
-beauty and islam
 Morocco 98
 Mughal dynasty 70
 Mu˙ammad, the Prophet 9, 10
@@ -4621,7 +4509,6 @@ Scholastics, Scholasticism 5, 7, 13,
 
 133
 
-beauty and islam
 da Vinci, Leonardo 24
 
 Tractatus Logico-philosophicus

@@ -1,7 +1,5 @@
 # Stories of the Prophets_Ibn Kathir
 
-> 来源: Stories of the Prophets_Ibn Kathir.pdf
-
 Stories of the Prophets
 Written by Al-Imam ibn Kathir
 Translated by Muhammad Mustapha Geme’ah, Al-Azhar
@@ -180,10 +178,8 @@ The first thing into which the spirit passed was his eye and then his nose. He s
 say.' So Adam went and greeted them. they replied saying: "Peace be upon you and the mercy and
 blessings of Allah." Allah said: "O Adam! This is your greeting and that of your offspring." (Sahih
 al Bukhari).
-www.islambasics.com
 
 Adam's Progeny Accept Allah
-Allah the Almighty revealed:
 "Remember when your Lord brought forth from the children of Adam, from their loins, their seed
 (or from Adam's loin his offspring) and made them testify as to themselves saying: 'Am I not
 your Lord?' They said: 'Yes! We testify' lest you should say on the Day of Resurrectio:. 'Verily
@@ -255,7 +251,6 @@ If an analogy is made we see that Iblis is vain. For indeed clay is better than 
 be found the qualities of calmness, clemency, perseverance and growth; whereas in fire can be
 found heedlessness, insignificance, haste, and incineration.
 Iblis tried in vain to justify his refusal:
-www.islambasics.com
 
 "Shall I prostrate to one whom You created from clay?" Iblis said: "See? those whom You have
 honored above me, if You give me respite (keep me alive) to the Day of Resurrection, I will
@@ -295,7 +290,6 @@ was one of the disbelievers."
 Allah said: "The truth is, and the truth I say, that I will fill Hell with you and those of them
 (mankind) that follow you together." (Ch 38:71-85 Quran).
 
-www.islambasics.com
 
 The Reason for Adam's Creation
 After this lesson about freedom Adam learned another lesson, one about knowledge. Adam
@@ -330,7 +324,6 @@ preoccupied with worshipping Almighty Allah. Therefore Adam, felt lonely. One da
 when he awoke he found near his head, a woman gazing at his face with beautiful tender eyes.
 The angels asked him her name he replied: "Eve (Hawa)." (means living things). They asked:
 "Why did you call her Eve?" Adam said: "Because she was created of me and I am a living being."
-www.islambasics.com
 
 Adam Sees Eve
 Ibn Abbas and a group of companions of the Prophet (PBUH) narrated that when Iblis was sent
@@ -397,7 +390,6 @@ ate because of the words of the serpent and fed Adam some of it. At that moment,
 opened to the fact that they were naked, and they took the leaves of the fig tree to cover
 themselves. Wahb Ibn Munabah said that their clothing (before their sin) was made of light on the
 private parts of both of them.This story in the Old Testament is a falsification and deception.
-Allah the Almighty revealed:
 "O Children of Adam! Let not Satan deceive you, as he got your parents (Adam and Eve) out of
 Paradise stripping them of their rainments; to show them their private parts. Verily he and
 Qabiluhu (his soldiers from the jinn or his tribe) see you from where you cannot see them.
@@ -589,7 +581,6 @@ to dig a hole in the ground, rolled its victim into it and covered it with sand.
 Witnessing this, Cain was overcome with shame and remorse. "Woe unto me!" he exclaimed. "I
 was unable to do what this raven has done, that is to hide my brother's corpse." Cain then buried
 his brother. This was also the first burial of man.
-Allah the Almighty revealed:
 " And (O Muhammad) recite to them (the Jews) the story of the two sons of Adam (Abel and
 Cain) in truth; when each offered a sacrifice to Allah, it was accepted from the one but not from
 the other. The latter said to the former; "I will surely kill you."
@@ -637,7 +628,6 @@ and taught him the hours of the day and night along with their appropriate acts 
 also foretold to him the floor that would come.
 Abu Dhar narrated that the Prophet Muhammad (PBUH) said: "Allah sent down 104 psalms, of
 which 50 were sent down to Seth."
-www.islambasics.com
 
 Adam's Death
 Abdullah Ibn Al Imam Ahmad Ibn Hanbal narrated that Ubai Ibn Kab said: "When Adam's death
@@ -669,7 +659,6 @@ cities and large forts and that he built the cities of Babylonia. He reigned for
 years. When he died his duties were taken ov er by his son Yard, who on his death, bequeathed
 them to his son Khonoukh, who is Idris (pbuh) according to the majority of the scholars.
 
-www.islambasics.com
 
 Prophet Idris (Enoch)
 Allah has praised Enoch, describing him as being a prophet and truthful:
@@ -693,7 +682,6 @@ sayings are:
 "He who indulges in excess will not benefit from it."
 "The real joy of life is to have wisdom."
 
-www.islambasics.com
 
 Prophet Nuh (Noah)
 Variation on the Birth of Noah
@@ -717,7 +705,6 @@ believed that these gods would bring them good, protect them from evil and provi
 needs. They gave their idols names such as Waddan, Suwa'an, Yaghutha, Ya'auga, and Nasran,
 (These idols represented, respectively, manly power; mutability, beauty; brute strength, swiftness,
 sharp sight, insight) according to the power they thought these gods possessed.
-Allah the Almighty revealed:
 "They (idolaters) have said: "You shall not leave your gods nor shall you leave Wadd, nor
 Suwa, nor Yaghuth, nor Ya uq nor Nasr (names of the idols)." (CH 71:23 Quran).
 Originally these were the names of good people who had lived among them. After their deaths,
@@ -727,7 +714,6 @@ they only knew their parents had prayed to them. That is how idol worshipping de
 they had no understanding of Allah the Almighty Who would punish them for their evil deeds,
 they became cruel and immoral.
 
-www.islambasics.com
 
 Various Hadith describing the Origin of Idolatry
 Ibn Abbas explained: "Following upon the death of those righteous men, Satan inspired their
@@ -840,7 +826,6 @@ Lord! And to Him you shall return." (Ch 11:32-34 Quran)
 The battle continued; the arguments between the disbeliveers and Noah became prolonged. When
 all the refutations of the disbeliveers collapsed and they had no more to say, they began to be rude
 and insulted Allah's prophet:
-www.islambasics.com
 
 “The leaders of his people said: "Verily, we see you in plain error." (Ch 7:60 Quran)
 Noah responded in the manner of the prophets:
@@ -986,7 +971,6 @@ and the words "there is no god but Allah" were put on the other, the latter woul
 former. I warn you against associating partners with Allah and against pride." (Sahih al Bukhari)
 Some traditions said that his grave is in the Scared Mosque in Mecca, while others said that he
 was buried in Baalabak, a city in Iraq.
-www.islambasics.com
 
 Prophet Hud
 Description of the People of Ad
@@ -1143,7 +1127,6 @@ That violent gale did not stop until the entire region was reduced to ruins and 
 destroyed, swallowed by the sands of the desert. Only Hud and his followers remained unharmed.
 They migrated to Hadramaut and lived there in peace, worshipping Allah, their true Lord.
 
-www.islambasics.com
 
 Prophet Salih
 Description of the People of Thamud
@@ -1211,7 +1194,6 @@ For awhile, Salih's people let the camel graze and drink freely, but in their he
 However, the miraculous appearance of the unique camel caused many to become Salih's
 followers, and they clung to their belief in Allah.
 
-www.islambasics.com
 
 Stories About the She-camel
 The disbeliveers now began complaining that this huge she camel with its unusual qualities drank
@@ -1289,7 +1271,6 @@ he went away with them until they stopped at the well from which the she camel (
 drink. He warned them against entering upon the people that had been punished, saying "I fear
 that you may be affected by what afflicted them; so do no enter upon them."
 
-www.islambasics.com
 
 Prophet Ibrahim (Abraham)
 Description of Abraham and his Family
@@ -1320,7 +1301,6 @@ sitting on their backs as people sit on the backs of donkeys and mules.
 One day his father saw him riding the statue of Mardukh and he became furious. He ordered his
 son not to play with it again.
 Abraham asked: "What is this statue, father? It has big ears, bigger than ours."
-www.islambasics.com
 
 His father answered: "It is Mardukh, the god of gods, son! These big ears show his deep
 knowledge."
@@ -1397,7 +1377,6 @@ which He has not sent down to you any authority. SO which of the two parties has
 be in security? .....if you but know! It is those who believe (in the oneness of Allah and worship
 none but HiAlone) and confuse not their belief with Zulm (wrong by worshipping others besides
 Allah), for them only there is security and they are the guided." (Ch 6:80-82)
-www.islambasics.com
 
 Abraham Reasons with Idolators
 The curtains are drawn on the first category of the people, those who were worshipping celestial
@@ -1546,7 +1525,6 @@ Allah the Almighty, with a heart that contained only his love for Allah. There w
 space therein for fear, awe, or worry. It was filled with love only.
 Fear and awe were dead, and the fire was turned into coolness, making the air pleasant. Those
 who love Allah as Abraham do did not fear.
-www.islambasics.com
 
 The Faith of the Believers
 Allah declared:
@@ -1643,7 +1621,6 @@ Almighty Allah revealed:
 pieces) and then put a portion of them on every hill and call them they will come to you in haste.
 And know that Allah is All Mighty and All Wise."(Ch 2:260 Quran)
 
-www.islambasics.com
 
 Prophet Isma'il (Ishmael)
 Abraham leaves Hajar and Ishmael
@@ -1832,7 +1809,6 @@ Ishmael said: 'Obey the order of your Lord.' Abraham said: 'Allah has also order
 should help me therein.' Ishmael said: 'Then I will do so.' So both of them were saying:
 "O our Lord! Accept this service of us, verily, You are the All Hearer, the All Knower." (Ch
 2:127)
-www.islambasics.com
 
 When the building became high and the old man (Abraham) could no longer lift the stones to
 such a high position, he stood over the stone of Al Maqam and Ishmael carried on handing him
@@ -1878,7 +1854,6 @@ to eat food but you do not stretch out your hands to eat. Do you intend me evil?
 One of the angels smiled and said: "We do not eat. We are Allah's angels." One of them then
 turned towards his wife and conveyed the glad tidings about Isaac (Ishaaq).
 Tidings of Isaac - Quranic
-Almighty Allah revealed:
 "Verily! There came Our Messengers to Abraham with glad tidings. They said: "Salaam
 (greetings or peace)!" he answered: "Salaam (greetings or peace)!" and he hastened to entertain
 them with a roasted calf. But, when he saw their hands went not towards it (the meal), he felt
@@ -1891,7 +1866,6 @@ here is my husband an old man? Verily! This is a strange thing!" They said: "Do 
 the Decree of Allah? The Mercy of Allah and His Blessings be on you, O the family (of
 Abraham). Surely, He (Allah) is All praiseworthy, All-Glorious." (CH 11:69-73).
 
-www.islambasics.com
 
 Prophet Ishaq
 Isaac's Sons - from Commentators
@@ -1916,7 +1890,6 @@ of Canaan where Abraham had lived. Then Isaac fell ill and died when he was one 
 years old. His sons Esau and Jacob buried him with his father Abraham Al Khalil in a cave which
 he had bought. It was said that Abraham died at the age of one hundred seventy five.
 
-www.islambasics.com
 
 Prophet Yaqub (Jacob)
 Isaac's Sons - Jacob and Esau
@@ -1989,7 +1962,6 @@ gave her slave Zilpah to Jacob (pbuh), Zilpah gave birth to two sons, Gad and As
 got pregnant and gave birth to her fifth son, Issaacher, and later she gave birth to a sixth son
 Zebulun. After this Leah gave birth to a daughter named Dinah. Thus, Leah had seven sons from
 Jacob.
-www.islambasics.com
 
 Then Rachel prayed to Allah to give her a son from Jacob. Allah heard her call and responded to
 her prayer. She gave birth to a son, great, honorable, and beautiful. She named him Joseph
@@ -2068,7 +2040,6 @@ commanded him. He built the altar where Jerusalem stands today and later Solomon
 (pbuh) rebuilt it. It is in the place of the stone which he had earlier anointed with oil as was
 mentioned before.
 
-www.islambasics.com
 
 Dinah's Story - from the People of the Book
 The people of the book tell a story of Dinah, daughter of Jacob and Leah. Shechem Ibn Hamor
@@ -2160,7 +2131,6 @@ pagans, idolaters, disbeliveers in the Oneness of Allah and His Messenger Muhamm
 who worship others along with Allah or set up rivals with or partners to Allah)." (Ch 16:119-123
 Quran)
 
-www.islambasics.com
 
 Prophet Lot (Lut)
 Description of the People of Sodom
@@ -2194,7 +2164,6 @@ the land, while he struggled against them. As the years passed, he persisted in 
 no avail. No one responded to his call and believed except for the members of his family, and even
 in his household, not all the members believed. Lot's wife, like Noah's wife, a disbeliever.
 Allah the Almighty declared:
-www.islambasics.com
 
 "Allah set forth an example for those who disbelieve, the wife of Noah and the wife of Lot. They
 were under two of Our righteous slaves, but they both betrayed their (husbands, by rejecting
@@ -2297,7 +2266,6 @@ recounted the story of his people, he was surprised to learn that Abraham (pbuh)
 So Lut (pbuh) continued to invite people to Allah, as did Abraham (pbuh), the patient one who
 turned to Allah repentantly, and the two held firm to their mission.
 
-www.islambasics.com
 
 Prophet Shu’aib
 Shuaib's Message
@@ -2356,7 +2324,6 @@ But, they belied him, so the torment of the day of shadow (a gloomy cloud) seize
 that was the torment of a Great Day. Verily, in this is a sign yet most of them are not believers.
 And verily! Your Lord, He is indeed the All Mighty, the Most Merciful." (Ch 26:176-191 Quran).
 
-www.islambasics.com
 
 Prophet Yusuf (Joseph)
 Introduction to Joseph's Story
@@ -2424,7 +2391,6 @@ Joseph heeded his father's warning. He did not tell his brothers what he had see
 that they hated him so much that it was difficult for him to feel secure telling them what was in his
 heart and in his dreams.
 
-www.islambasics.com
 
 Description of Joseph
 Joseph was eighteen years old, very handsome and robust, with a gentle temperament. He was
@@ -2870,7 +2836,6 @@ merely wanted to rescue hungry nations for a personal gain; he merely wanted to 
 nations for a period of seven years. It was a sheer nobleness on his part in that he wanted to
 ensure that many people would not die as a result.
 Joseph's High Position - Quranic
-Almighty Allah said:
 "And the king said: "Bring him to me that I may attach him to my person." Then, when he spoke
 to him, he said: "Verily, this day, you are with us high in rank and full trusted."
 Joseph said: "Set me over the store houses of the land; I will indeed guard them with full
@@ -2977,7 +2942,6 @@ Joseph's officers said (as he had instructed them): What punishment should you c
 thief?"
 The brothers answered: "According to our law, whoever steals becomes a slave to the owner of
 the property."
-www.islambasics.com
 
 The officers agreed: "We shall apply your law instead of the Egyptian law, which provides for
 imprisonment."
@@ -3170,7 +3134,6 @@ they were to leave Egypt. So when Joseph (pbuh) passed away, he was mummified an
 a coffin until such a time as he could be taken out of Egypt and buried beside his forefathers, as he
 had requested. It was said that he died at the age of one hundred ten.
 
-www.islambasics.com
 
 Prophet Job (Ayoub)
 Job's Family History
@@ -3315,13 +3278,11 @@ strike therewith your wife, and break not your oath.
 repentance to Us!" (Ch 38:44)
 Prophet Muhammad's Account on Job
 Abu Hurairah (may Allah be pleased with him) narrated that the Prophet Muhammad (pbuh) said:
-www.islambasics.com
 
 "While Job was naked, taking a bath, a swarm of gold locusts fell on him, and he started
 collecting them in his garment. His Lord called him: "O Job! Have I not made you too rich to
 need what you see?" He said: "Yes, My Lord! But I cannot shun Your Blessings." (Al Bukhari)
 
-www.islambasics.com
 
 Prophet Dhul - Kifl
 Is he a Prophet?
@@ -3345,7 +3306,6 @@ Ibn Jarir narrated that he was not a prophet but he was a righteous man. He supp
 to suffice their needs and administered justice among them. That is why he was called Dhul - Kifl.
 (Dhul - Kifl literally means "possessor of, or giving, a double requital or portion".)
 
-www.islambasics.com
 
 Prophet Yunus (Jonah)
 Description of Jonah's People
@@ -3416,7 +3376,6 @@ Allah. His tongue released soon after saying:
 " La ilaha illa Anta (none has the right to be worshipped but You (O Allah), Glorified (and
 Exalted) be You (above all that evil they associate with You), Truly, I have been of the wrong
 doers." (Ch 21:87 Quran)
-www.islambasics.com
 
 Jonah continued praying to Allah, repeating this invocation. Fishes, whales, seaweeds, and all the
 creatures that lived in the sea heard the voice of Jonah praying, heard the celebration of Allah's
@@ -3496,7 +3455,6 @@ birth to the child publicly and safely. During a year in which boys were to be s
 to Moses (pbuh); thus his birth caused her much terror. She was afraid he would be slain, so she
 nursed him secretly.
 Description of the Pharaoh and Birth of Moses - Quranic
-Allah the Almighty revealed:
 "These are Verses of the manifest Book (that makes clear truth from falsehood, good from evil,
 etc.). We recite to you some of the news of Moses and Pharaoh in truth, for a people who believe
 (those who believe in this Quran, and in the Oneness of Allah). Verily, Pharaoh exalted himself
@@ -3532,7 +3490,6 @@ Pharaoh was much amazed when he saw his wife hugging this baby to her breast. He
 astonished because his wife was weeping with joy, something he had never seen her do before.
 She requested her husband: "Let me keep the baby and let him be a son to us."
 Moses Finds a Home - Quranic
-Almighty Allah said:
 "Then the household of Pharaoh picked him up, that he might become for them an enemy and a
 cause of grief. Verily! Pharaoh, Haman, and their hosts were sinners. And the wife of Pharaoh
 said; "A comfort of the eye for me and for you. Kill him not, perhaps he maybe of a benefit to us,
@@ -4043,7 +4000,6 @@ rumors about him.Allah warned Moses of Korah's plot. Moses appealed to Allah to 
 his stinginess and for defying His laws. Allah's anger fell on Korah. The earth opened up and
 swallowed him, his mansion and all his wealth, as if he had never existed.
 Korah - His Actions and Destruction - Quranic
-Almighty Allah revealed:
 "Verily, Korah was of Moses's people, but he behaved arrogantly towards them. And We gave
 him of the treasures, that of which the keys would have been a burden to a body of strong men.
 When his people said to him: "Do not be glad with ungratefulness to Allah's Favors). Verily!
@@ -4180,7 +4136,6 @@ Moses and his people drank the water, it was, for them, ordinary water. However,
 filled his cup with the water, he discovered his cup full of blood. They hurried to Moses as usual,
 but as soon as everything returned to normal, they turned their backs on Allah.
 Allah's Punishments on the Disbelievers - Quranic
-Almighty Allah said:
 "And indeed We punished the people of Pharaoh with years of drought, and shortness of fruits
 (crops, etc.), that they mighty remember (take heed). But whenever good came to them, they
 said: "Ours is this." And if evil athem, they ascribed it to evil omens connected with Moses and
@@ -4379,7 +4334,6 @@ Egyptians: they must wander restlessly in the wilderness until this generation h
 senile and had created another generation, a generation which had not been defeated from within
 and which could fight and score victory.
 The Cowardice of Moses' People - Quranic
-Almighty Allah revealed:
 " And remember when Moses said to his people: "O my people! Remember the Favor of Allah to
 you, when He made Prophets among you, made you kings, and gave you what He had not give to
 any other among the Alamin (mankind and jinn), in the past. O my people! Enter the holy land
@@ -4534,7 +4488,6 @@ of the children of Israel to pray to Allah for forgiveness and demonstrate their
 chose seventy en out of them and ordered them: "Rush towards Allah and repent for what you did
 and ask His forgiveness for what you left."
 
-www.islambasics.com
 
 Moses' People Demand to See Allah
 Moses returned to Mount Sinai with the seventy elders and there he communicated with Allah.
@@ -4574,7 +4527,6 @@ and from the fetters (bindings) that were upon them. So those who believe in him
 honor him, help him, and follow the light (the Quran) which has been sent down with him, it is
 they who will be successful. (Ch 7:155-157 Quran)
 
-www.islambasics.com
 
 The Story of Israelites and the Cow - The Pious Man and His Son
 Moses (pbuh) stayed among his people calling them to Allah. It seems their souls were uneasy in a
@@ -4613,7 +4565,6 @@ Instead of following his direction, they asked him more questions. "What color m
 He replied: "Verily, it is yellow in color."
 They still were not satisfied with his answer and asked for more details. Moses replied: "It is an
 unyoked cow; it does not plow the soil nor water the tilth, and is entirely without marks."
-www.islambasics.com
 
 Moses' People Find the Right Cow
 They went out in search of such a cow. The only one that matched the description was the one
@@ -4836,11 +4787,9 @@ Moses (pbuh), Prophet of Allah and the one to whom Allah spoke to directly, met 
 contented soul and a faithful heart that looked forward to righteousness and made haste to meet
 with Him Who bore tidings of peace.
 
-www.islambasics.com
 
 Prophet Hizqeel (Ezekiel)
 Allah Resurrects the Dead
-Almighty Allah said:
 "Did you (O Muhammad) not think of those who went forth from their homes in thousands,
 fearing death? Allah said to them, "Die." And then He restored them to life. Truly, Allah is full
 of Bounty to mankind, but most men think not. (Ch 2:243 Quran).
@@ -4898,7 +4847,6 @@ Ibn Joseph, Ibn Isaac, Ibn Abraham. It was said that he was the cousin of Elijah
 said also that he had been hiding with Elijah in a cave in Mount Qasium to escape from the King
 of Ba'alabak, and when Elijah died, he Elisha succeeded him as a prophet among his people.
 
-www.islambasics.com
 
 Prophet Shammil (Samuel)
 The State of the Israelites After Joshua
@@ -4933,7 +4881,6 @@ Prophet Samuel prayed to Allah for guidance. Allah revealed to him that He had c
 told that Saul would come to him by himself and that they should then hand over the control of
 kingdom to him, for he would lead them in battle against the Philistines.
 
-www.islambasics.com
 
 Saul is Appointed King
 Saul was tall and sturdy, pious, and very intelligent. He lived and worked with his father on their
@@ -4958,7 +4905,6 @@ that he should be the king, that he should thank Allah for His favor and be stro
 Saul is Appointed King - Quranic
 Taking Saul by the hand, Samuel led him to the children of Israel, but they insisted on a direct
 sign from Allah. Prophet Samuel told them to go outside the city to see the sign, which they did.
-Almighty Allah revealed:
 "Have you not thought about the group of children of Israel after (the time of ) Moses? When
 they said to a Prophet of theirs: "Appoint for us a king and we will fight in Allah's Way."
 He said: "Would you then refrain from fighting, if fighting was prescribed for you?"
@@ -5029,7 +4975,6 @@ seeing this strong force. The small band that remained was willing to fight, wha
 for they had heard that there had been many incidents in the past in which Allah had caused a
 small force to defeat a larger one.
 
-www.islambasics.com
 
 Prophet Dawud (David)
 David Challenges Goliath
@@ -5228,7 +5173,6 @@ It was so hot that people suffered from the intensity of the sun. Solomon called
 protect David and the people from the sun, and they did so until he was buried. This was the first
 sign of his dominion to be witnessed by the people.
 
-www.islambasics.com
 
 Prophet Sulaiman (Solomon)
 Solomon's Knowledge
@@ -5258,7 +5202,6 @@ sun was nearly setting, and the time for the middle prayer was passing by. When 
 he exclaimed: "I surely love the finer things of life than the service of my Lord! Return them to
 me."
 Allah's Gifts to Solomon - Quranic
-Almighty Allah revealed:
 "And to David We gave Solomon. How excellent a slave! Verily, he was ever oft returning in
 
 repentance (to Us)!
@@ -5472,7 +5415,6 @@ except a little worm of the earth, which kept slowly gnawing away at his stick, 
 down, the jinns saw clearly that if they had known the unseen, they would not have stayed in the
 humiliating torment. (Ch 34:12-14 Quran).
 
-www.islambasics.com
 
 Prophet Shia (Isaiah)
 Isaiah and Hezekiah
@@ -5527,7 +5469,6 @@ tree, it opened, and he entered therein; but Satan saw him and held onto the loo
 so that it stuck out. When they saw it, they brought a saw and sawed the tree, and him with it.
 Indeed, from Allah we come and to him we return.
 
-www.islambasics.com
 
 Prophet Aramaya (Jeremiah)
 Jeremiah's Family History
@@ -5741,7 +5682,6 @@ The essence of what has been written by Ibn Jarir is that the person or wayfarer
 this village was Jeremia. Others say that it was Hosea (Ozir), and this is the consensus of the
 ancients and those after them, but Allah knows best.
 
-www.islambasics.com
 
 Prophet Daniel
 Allah Saves Daniel from the Lions
@@ -5811,7 +5751,6 @@ mother came and took him. Abu Musa said: "And so Daniel carved his image and the
 two lions into the gem of his ring, for him not to forget Allah's blessing upon him in this.'" This
 has a good citation.
 
-www.islambasics.com
 
 Prophet Uzair (Ezra)
 Ezra Sleeps For 100 Years
@@ -5830,7 +5769,6 @@ the dead. The angel said: "For how long did you sleep?" He said: "A day or part 
 said this because he knew he had slept early in the afternoon and woke up late in the afternoon.
 The angel said: "You remained asleep for one hundred years." He ate and drank the food which
 he had prepared before he was overtaken by that long sleep. Then the angel revived his donkey.
-Almighty Allah said:
 "And look at your donkey! Thus We have made of you a sign for the people. Look at the bones,
 how We bring them together and clothe them with flesh." When this was clearly shown to him he
 said: "I know now that Allah is able to do all things." (Ch 2:259)
@@ -5843,7 +5781,6 @@ answered when he prayed to Allah. Pray to cure me of blindness if you are Ezra."
 her and massaged her eyes and took her by the hand. "Get up by the power of Allah," he said. The
 crippled woman stood up and walked; she opened her eyes and saw; her blindness was gone. She
 said: "I bear witness that you are Ezra."
-www.islambasics.com
 
 Ezra Finds and Copies the Torah
 She rushed to the assembly of the Israelites. Ezra's son was one hundred eighteen years old, and
@@ -5866,7 +5803,6 @@ Ibn Abbas commanded: "So it is as Allah said:
 That is, for the Israelites, in that he was sitting among his children, the old men, and he a youth.
 He died as a forty year old, and Allah resurrected him at the same age on the day of his death."
 
-www.islambasics.com
 
 Prophet Zakariyah (Zechariah)
 Description of Zakariyah
@@ -5887,7 +5823,6 @@ This noble girl had opened this eyes to a startling idea. Could he not ask his L
 with a child in his old age? Even if his wife was past childbearing age, nothing was impossible for
 his Gracious Lord!
 Zakariyah Asks for a Son - Quranic
-Allah the Almighty revealed:
 'Kaf, Ha, Ya, Ain, Sad, (These letters are one of the miracles of the Quran, and none but Allah
 Alone knows their meanings). This is a mention of the Mercy of your Lord to His slave
 Zakariyah. When he called out his Lord (Allah) - a call in secret, saying: "My Lord! Indeed my
@@ -5926,7 +5861,6 @@ said: "Your sign is that you shall not speak to mankind for three days except wi
 remember your Lord much (by praising Him again and again), and glorify Him in the afternoon
 and in the morning." (Ch 3:38-41 Quran).
 
-www.islambasics.com
 
 Prophet Yahya (John)
 John's Childhood
@@ -5961,7 +5895,6 @@ Other narrations say that John (pbuh) said: "The dwellers of Paradise are sleepl
 sweetness of Allah's bounty; that is why the faithful must be sleepless because of Allah's love in
 their hearts. How far between the two luxuries, how far between them?"
 They say John wept so much that tears marked his cheeks.
-www.islambasics.com
 
 John's Love of Nature
 He found comfort in the open and never cared about food. He ate leaves, herbs, and sometimes
@@ -5990,7 +5923,6 @@ executed and his head was brought to Salome. The cruel woman gloated with deligh
 death of Allah's beloved prophet was avenged. Not only she, but all the children of Israel were
 severely punished by invading armies which destroyed their kingdom.
 
-www.islambasics.com
 
 Prophet Isa
 Allah Declares He Has No Son
@@ -6059,7 +5991,6 @@ was given a reed to throw into the river. They had agreed that whoever's reed re
 would be granted guardianship of the girl. All the reeds sank to the bottom except Zakariyah's.
 With this sign, they all surrendered to the will of Allah and made him the guardian.
 
-www.islambasics.com
 
 Mary's High Status
 To ensure that no one had access to Mary, Zakariyah built a separate room for her in the temple.
@@ -6408,7 +6339,6 @@ they agreed to give him thirty pieces of silver known as shekels. The plot was l
 and murder of Jesus.
 It was said that the high priest of the Jews tore his garment at the meeting, claiming that Jesus had
 denied Judaism. The tearing of clothes at that time was a sign of disgust.
-www.islambasics.com
 
 The Torture of Jesus
 The priests had no authority to pass the death sentence at that time, so they convinced the Roman
@@ -6565,7 +6495,6 @@ Say: (O Muhammad): "He is Allah, the One. Allah As-Samad (The Self- Sufficient M
 Whom all creatures need, He neither eats nor drinks). He begets not, nor was He begotten; and
 there is none co-equal or comparable unto Him." (Ch 112:1-4 Quran)
 
-www.islambasics.com
 
 Prophet Muhammad
 Description of Muhammad
@@ -6599,7 +6528,6 @@ Okadh (The Arabian Olympia), and the immorality and skepticism of the Quraish, n
 feelings of pity and sorrow in the heart of the sensitive youth. Such scenes of social misery and
 religious degradation were characteristic of a depraved age.
 
-www.islambasics.com
 
 Muhammad's marriage to Khadijah
 When Muhammad was twenty five years old, he traveled once more to Syria as a factor of a noble
@@ -6797,7 +6725,6 @@ the noon day brightness, by the night when it spreads its veil, by the day when 
 to listen to his warning before a similar destruction befell them. He spoke to them of the Day of
 Reckoning, when their deeds in this world will be weighed before the Eternal Judge, when the
 children who had been buried alive will be asked for what crime they were put to death.
-Almighty Allah said:
 "Nay, they wonder that there has come to them a Warner (Muhammad) from among themselves.
 
 So the disbeliveers say: "This is a strange thing! When we are dead and have become dust (shall
@@ -7453,7 +7380,6 @@ the Muslims of Medina. They sent men in parties to commit depredations on the fr
 Muslims of Medina and to carry away their flocks. Now came the moment of severest trial to
 Islam. It became the duty of the Prophet to take serious measures to guard against any plot rising
 from within or a sudden attack from without.
-www.islambasics.com
 
 Battle of Badr - Makkan Troop formations approaching Madina
 Allah's Prophet put Medina in a state of military discipline. He had to send frequent
@@ -7479,7 +7405,6 @@ Muslims to whose care the prisoners were confided. Dealing with this event, Sir 
 his book Life of Muhammad, quotes one of the prisoners saying: "Blessing be on the men of
 Medina; they made us ride, while they themselves walked; they gave us wheaten bread to eat,
 when there was little of it, contenting themselves with dates."
-Almighty Allah said:
 "And Allah has already made you victorious at Badr, when you were a weak little force. So fear
 Allah much (abstain from all kinds of sins and evil deeds which He has forbidden and love Allah
 much, perform all kinds of good deeds which He has ordained) that you may be grateful.
@@ -7526,7 +7451,6 @@ Exhausted Quraish leave Madina victorious
 The Quraish were too exhausted to follow up their advantage, either by attacking Medina or by
 driving the Muslims from the heights of Uhud. They retreated from the Medinite territories after
 barbarously mutilating the corpses of their dead enemies.
-Almighty Allah said:
 "So do not become weak (against your enemy), nor be sad, and you will be superior (in victory)
 if you are indeed (true) believers. If a wound (and killing ) has touched you, be sure a similar
 wound (and killing) has touched the others. And so are the days (good and not so good), We give
@@ -7856,7 +7780,6 @@ of the Muslims, but eventually all their fortress had to be surrendered, one aft
 enemies. They prayed for forgiveness, which was accorded to them on certain conditions. Their
 lands and immovable property were secured to them, together with the free practice of their
 religion. After subduing Khaibar, the Muslims returned to Medina in safety.
-www.islambasics.com
 
 Allah's Messenger and the Muslims perfom Hajj
 Before the end of the year, it being the seventh year of the hijrah, the Prophet and his adherents
@@ -8108,7 +8031,6 @@ departure to that distant province the Prophet enjoined him to use his own discr
 of his being unable to find express authority in the Quran. Ali was deputed to Yamama in the
 southeast of the peninsula. To him the Prophet said: "Never decide between any two parties who
 come to you for justice unless you first hear both of them."
-www.islambasics.com
 
 Murders and false claims of Prophethood arise
 A force was being prepared under Usama Ibn Zaid, whose father was killed at Muta, against the
@@ -8181,4 +8103,3 @@ grave the body was buried, and the usual rites were performed by those who were 
 Thus ended the glorious life of that Prophet Muhammad.
 May the peace and blessings of Allah be upon him.
 
-www.islambasics.com

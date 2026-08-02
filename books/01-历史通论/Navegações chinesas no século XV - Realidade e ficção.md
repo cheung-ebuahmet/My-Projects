@@ -1,7 +1,5 @@
 # Navegações chinesas no século XV - Realidade e ficção
 
-> 来源: Jose Manuel Malhao Pereira and Jin Guoping. Navegações chinesas no século XV. Realidade e ficção.pdf
-
 Archipel
 
 Jose Manuel Malhao Pereira and Jin Guoping. Navegações

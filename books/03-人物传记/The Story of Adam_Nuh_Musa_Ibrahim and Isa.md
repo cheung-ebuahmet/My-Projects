@@ -1,7 +1,5 @@
 # The Story of Adam_Nuh_Musa_Ibrahim and Isa
 
-> 来源: The Story of Adam_Nuh_Musa_Ibrahim and Isa.pdf
-
 .,
 n \11' ' 1111
 
@@ -1303,7 +1301,6 @@ May Allah bless 'Eesa.
 'Eesa was the slave of Allah.
 He prayed to Allah clone.
 He did what Allah likes.
-That is our aim in life.
 'Eesa spoke when he was born.
 It was by the will of Allah.
 He gave life to dead peopIe.
@@ -1337,7 +1334,6 @@ He is sofe with Allah and did not die.
 What 'Eesa said was true ...
 "Pray to Allah clone.
 Do what Allah likes."
-That is our aim in life.
 
 28
 
@@ -1929,7 +1925,6 @@ All that you have is from Allah.
 He made you what you are.
 Pray to Allah alone.
 Do what Allah likes ."
-That is our aim in life.
 
 22
 
@@ -2793,7 +2788,6 @@ then continue reading to see iiyou arecorrecto
 The magicians saw Musa win.
 They became Muslims.
 They took the way that AUah likes.
-That is our aim in life.
 Thís made Fir'own angry.
 He kiUed the magicians.
 But that was not aU.
@@ -3023,7 +3017,6 @@ But they were only a few.
 What Musa said was true ...
 "Pray to Allah alone.
 Do what Allah likes."
-That is our aim in life.
 
 52
 
@@ -3386,7 +3379,6 @@ He told them for many days.
 Do what Allah likes.
 II
 
-That is our aim in life.
 
 18
 
@@ -3598,7 +3590,6 @@ What Nuh said was true ...
 
 "Pray to Allah alone.
 Do what Allah likes."
-That is our aim in life.
 
 42
 

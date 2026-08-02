@@ -1,7 +1,5 @@
 # Understanding the Sources of the Sino-Islamic Intellectual Tradition
 
-> 来源: Understanding the Sources of the Sino-Islamic Intellectual Tradition.pdf
-
 University of Nebraska at Omaha
 
 DigitalCommons@UNO
@@ -41,7 +39,6 @@ contact unodigitalcommons@unomaha.edu.
 A Review Essay on The Sage Learning of Liu Zhi: Islamic Thought in
 Confucian Terms, by Sachiko Murata, William C. Chittick, and
 Tu Weiming, and Recent Chinese Literary Treasuries
-Kristian Petersen
 Gustavus Adolphus College
 
 An oft-quoted Hadith purports that it is incumbent upon every Muslim to seek knowledge, even if it is to be found as far away as China.1 However, the plethora of
@@ -86,7 +83,6 @@ works and their Middle Eastern and Central Asian counterparts. Further, we do no
 even have a sufficient understanding of the Chinese Muslim intellectual tradition to
 link the works between Chinese ulema themselves. The Sage Learning takes great
 
-Kristian Petersen
 
 547
 
@@ -161,7 +157,6 @@ The Sage Learning has helped slightly to resolve through its close investigation
 The second and third section of the introduction delineates the Islamic cosmography that the Tianfang xingli explores and the Chinese appropriation of Arabic and
 Persian technical vocabulary. This component follows the work begun in Chinese
 
-Kristian Petersen
 
 549
 
@@ -201,7 +196,6 @@ discourse and participate in its evolution. It also shows that he believed Liu�
 
 550
 
-Philosophy East & West
 
 dering Liu’s Chinese into an intelligible Arabic treatise. The movement back toward
 writing in Arabic posed challenges to authors identical to those of the early Chinese
@@ -238,7 +232,6 @@ and how it embraced concepts from such texts as the Analects (Lunyu 論語) of C
 (Yijing 易經) and the Great Commentary (Dazhuan 大傳) [on the Yijing]; the Zhuangzi 莊子; Zhou Dunyi’s 周敦頤 (1017–1073) Explanations of the Diagram of the
 ­Supreme Ultimate (Taiji tushuo 太極圖說); Chen Chun’s 陳淳 (1159–1223) NeoConfucian Terms Explained (Beixi ziyi 北溪字義); and Wang Yangming’s 王陽明
 
-Kristian Petersen
 
 551
 
@@ -280,7 +273,6 @@ Beijing, Tianjin, Shanxi, Henan, Jiangsu, Shanghai, Hunan, Sichuan, Yunnan, and
 
 552
 
-Philosophy East & West
 
 Guangdong. It contains fifty-two works that explore various aspects of the Islamic
 sciences and pedagogical materials. The editors’ goals for publishing these materials
@@ -315,7 +307,6 @@ and collected writings of Muslim authors. The texts in the final segment on the 
 diancang quanshu adds considerable depth to the textual legacy of Chinese Muslims
 but also enhances our ability to understand how these writings were used and received by later generations through the inclusion of multiple editions, such as both
 
-Kristian Petersen
 
 553
 
@@ -356,7 +347,6 @@ Mirṣād al-  ibād,18 which was rendered as The Essentials of the Retur
 
 554
 
-Philosophy East & West
 
 oldest extant texts in the Han Kitab. This text was so popular that several people created their own translations, under different titles, to use in the scripture hall. The
 second important translation was   Azīz al-Dīn Nasafī’s Maqṣad-i aqṣā, of which there
@@ -393,7 +383,6 @@ True Scripture (Baoming zhenjing zhijie 寶命真經直解), is most valuable fo
 during its final stages. Ma’s desire for Chinese Muslims to have a greater understanding of their religion motivated him to render his holy book directly from Arabic and
 provides us with a rich source for investigating Sino-Islamic scholarship.
 
-Kristian Petersen
 
 555
 
@@ -434,7 +423,6 @@ traditions we must not assume that the use of specialized Chinese vocabulary dis
 
 556
 
-Philosophy East & West
 
 placed the original Islamic meaning that the original author was trying to convey.
 Understanding the terminology used across time will reveal how the Chinese Islamic
@@ -472,7 +460,6 @@ Annotated Bibliography of Literature on Islam in China (Hankow: Society of
 Friends of the Moslems in China, 1950); and Isaac Mason, “Notes on Chinese
 Mohammedan Literature,” Journal of the North China Branch of the Royal Asiatic Society 56 (1925): 172–215.
 
-Kristian Petersen
 
 557
 
@@ -517,7 +504,6 @@ God (Albany: State University of New York Press, 1998).
 
 558
 
-Philosophy East & West
 
 13    –    Murata, Chinese Gleams of Sufi Light, pp. 128–210.
 14    –    The holdings of various libraries throughout Europe and the United States are
@@ -543,7 +529,6 @@ of Islamic classics) (Gansu Wenhua Chubanshe, 2008).
 and Qingzhen dadian.
 20    –    The full title of the poem is Celestial Lights in Praise of the Best of Creation (alKawākib ad-Durrīya fī Madḥ Khayr al-Barīya).
 
-Kristian Petersen
 
 559
 

@@ -1,7 +1,5 @@
 # And Muhammad Is the Messenger of Allah
 
-> 来源: And Muhammad Is the Messenger of Allah.pdf
-
 EL-HAQQ ISLAMIC RESOURCE CENTER
 WWW.EL-HAQQ.COM
 

@@ -1,7 +1,5 @@
 # The Heart of Wang Daiyu's Philosophy - The Seven Subtleties
 
-> 来源: The Heart of Wang Daiyu’s Philosophy - The Seven Subtleties of Islamic Spiritual Physiology.pdf
-
 Journal of Sufi Studies 2 (2013) 177–201
 
 brill.com/jss
@@ -86,7 +84,6 @@ Lumpur: University of Malaya Press, 1996), 75–94; and Jonathan Lipman, Familia
 A History of Muslims in Northwest China (Seattle: University of Washington Press, 1997), 75–9; and
 Benite, The Dao of Muhammad, 134–7.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 179
 
@@ -127,7 +124,6 @@ mission d’Ollone en Chine: Catalogue d’une bibliotheque (de A-hong),” Revu
 
 180
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 religio-philosophical framework.4 This article also highlights the universal issue
 of linguistic and cultural translation of Islamic thought. Wang’s work demonstrates how non-Arab Muslims negotiated the creative boundaries of religious
@@ -165,7 +161,6 @@ by eighty strokes of beating with the heavy stick, and both the men and women sh
 by the government” (Jiang Yonglin, The Great Ming Code: Da Ming lü [Seattle: University of
 Washington Press, 2005], 88).
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 181
 
@@ -209,7 +204,6 @@ China’s Muslim Hui Community: Migration, Settlement and Sects (Richmond, UK: C
 
 182
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 activities revolving around local religious institutions as opposed to transnational connections. While some local leaders may have disagreed with scripture
 hall education, Hu and his colleagues did not view themselves as reformers.
@@ -246,7 +240,6 @@ century Islamic education in China have also been examined and could help reveal
 and Persian Sources Used by Liu Chih.” For nineteenth-century curriculum see Pang, “Zhongguo
 Huijiao siyuan jiaoyu zhi yan’ge ji keben,” and Yang and Yu, Yisilan Yu Zhongguo Wenhua, 346–68.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 183
 
@@ -286,7 +279,6 @@ the Arabic Cosmopolis of South and Southeast Asia (Chicago: University of Chicag
 
 184
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 Introduction to Wang Daiyu
 Wang Daiyu was one of the first Sino-Muslim authors to expound the theological perspective of Islam using written Chinese, and he was influential in
@@ -325,7 +317,6 @@ daxue, Xizhen zhengda 正教真詮,•清真大學,•希真正答, ed. Yu Zheng
 employed terminology from Buddhist and Daoist discourses. The main goal of this article, however, is to demonstrate how Wang appropriated teachings from Islamic sources to structure his
 writings.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 185
 
@@ -369,7 +360,6 @@ University of New York Press, 1989).
 
 186
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 him dissolve into union. Hence, al-insān al-kāmil is both the ontological archetype of humans and the universe, and the model to be followed to achieve perfection. The heart is the physical and spiritual axis of the perfect human being.
 Wang taught how one can open up one’s heart to knowledge and faith in order
@@ -408,7 +398,6 @@ the Truth by His Words. For He knows well the secrets of all hearts (dhāt al-�
 Ṣadr is the chest, bosom, breast, or heart. The phrase dhāt al-ṣudūr means “the innermost secret
 thoughts.” See also Qur’an 2:6–7, 10:74, and 40:35.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 187
 
@@ -450,7 +439,6 @@ of man with (nothing more than) clay, . . . and breathed into him something of H
 
 188
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 the inner heart (lubb).38 The ultimate goal is to attain the higher level of the
 rūḥ through the inner conflict against the animal instincts of the nafs (riyāḍat
@@ -486,7 +474,6 @@ are wide enough for Me, but there is room for Me in the gentle, meek heart of My
 book 21 of the Revival of the Religious Sciences (Iḥyāʾ ʿulūm al-dīn), quoted in John Renard, Knowledge of God in Classical Sufism: Foundations of Islamic Mystical Theology (New York: Paulist
 Press, 2004), 304.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 189
 
@@ -526,7 +513,6 @@ including many famous scholars, such as Sahl al-Tustarī (d. 896), ʿAmr b. ʿUt
 
 190
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 eponymous founder of the Kubrawiyya, and his disciples focused on mystical
 experiences that advanced the spiritual human psychology through an analysis
@@ -565,7 +551,6 @@ throughout the Islamic world see Algar (trans.), The Path of God’s Bondsmen.
 51 Two other Sufi texts were translated early within the Han Kitab literature: ʿAzīz al-Dīn
 Nasafī’s The Furthest Goal (Maqṣad-i aqṣā), translated as The Scripture of Studying the Truth
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 191
 
@@ -611,7 +596,6 @@ York: Paulist Press, 1996), 163.
 
 192
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 is the barrier between the nafs and the heart. The second level is the heart
 (qalb), which is the seat of faith and the light of the intellect. The pericardium
@@ -648,7 +632,6 @@ term. One of the inaugurators of Neo-Confucianism Cheng Hao 程顥 (1033–1107)
 propriety, wisdom, and faithfulness are all [expressions of ] ren.” See Wing-Tsit Chan, A Source
 Book in Chinese Philosophy (Princeton: Princeton University Press, 1969), 523.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 193
 
@@ -698,7 +681,6 @@ siyuan jiaoyu zhi yan’ge ji keben”; and Yao Jide and Wang Genming 姚繼德,
 
 194
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 and the supreme level reflects the meaning of khafī by being fundamentally
 beyond ordinary human observation.
@@ -745,7 +727,6 @@ levels despite Liu’s lack of employment of similar terms; breast (ṣadr), hea
 blood of the heart (muhjat al-qalb). See Sachiko Murata, William Chittick, and Tu Weiming, The
 Sage Learning of Liu Zhi: Islamic Thought in Confucian Terms (Cambridge, Mass.: Harvard University Press, 2009), 132–3 and 422–7.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 195
 
@@ -794,7 +775,6 @@ forth Parables for men: and God doth know all things” (Qur’an 24:35).
 
 196
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 were called the five outer senses.”66 Through these three lowest levels of being,
 Wang conveyed the meaning of the animal heart as a vessel that was prepared
@@ -832,7 +812,6 @@ things are certainly not God. Therefore, one can say that things are he, not he,
 Henry Corbin, Alone with the Alone: Creative Imagination in the Sufism of Ibn ʿArabī (Princeton:
 Princeton University Press, 1998); and Chittick, The Sufi Path of Knowledge.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 197
 
@@ -872,7 +851,6 @@ extraction of mean water, then He shaped him, and breathed His spirit in him. An
 
 198
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 The reason why the human body has shape and spirit is because their heart also
 has form and subtleness. The human body, then, is the most refined and subtle
@@ -914,7 +892,6 @@ difficult to comprehend. William C. Chittick, The Self-Disclosure of God: Princi
 Cosmology (Albany: State University of New York Press, 2001), 291.
 75 Wang, Zhengjiao zhenquan, 60.
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 199
 
@@ -957,7 +934,6 @@ forth from their being.
 
 200
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 Wang Daiyu, the Han Kitab, and Islamic Discourses
 Wang Daiyu wrote at a time when the Muslim community of eastern China
@@ -988,7 +964,6 @@ religious norms were structured, contested, and maintained in a dialogical
 manner through textual frameworks of both foreign and local authority. Delineating a genealogy of textual sources and rendering them accessible to scholars
 is the starting point for understanding indigenous knowledge production and
 
-K. Petersen / Journal of Sufi Studies 2 (2013) 177–201
 
 201
 

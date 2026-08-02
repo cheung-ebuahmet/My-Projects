@@ -1,8 +1,5 @@
 # Muhammad in the Mirror of Islam
 
-> 来源: Muhammad in the Mirror of Islam.pdf
-> 提取于: iSlam/先知·穆罕默德/Muhammad in the Mirror of Islam.pdf
-
 Published on Books on Islam and Muslims | Al-Islam.org (http://www.al-islam.org)
 Home > Muhammad in the Mirror of Islam
 

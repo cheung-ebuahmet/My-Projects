@@ -1,7 +1,5 @@
 # The Final Prophet
 
-> 来源: The Final Prophet.pdf
-
 Proofs for the
 Prophethood of
 
@@ -162,7 +160,6 @@ approach using inductive reasoning does not preclude the at-
 
 1
 
-The Final Prophet
 
 tainment of certainty through it. If the arguments are strong
 and plentiful, then certainty can still be achieved. It can then be
@@ -212,7 +209,6 @@ to hear, especially as an inquisitive thirteen-year-old in the
 
 3
 
-The Final Prophet
 
 postmodern world, let alone a Muslim in New York City who
 would soon experience Islamophobic sentiments being ramped
@@ -276,7 +272,6 @@ who guides us to intuitively seek Him out, and subsequently
 al-Ṭālibīn ilá al-Manhaj al-Qawīm (Beirut: Dār al-Kutub al-ʻIlmīyah, 2015), 85.
 5
 
-The Final Prophet
 
 investigate the claimants to prophethood for an opportunity to
 better connect with Him. All people are instinctually driven to
@@ -343,7 +338,6 @@ overestimation of the human intellect, Descartes was correct
 Rendered into English (Cambridge: University Press, 1911), 191-192.
 7
 
-The Final Prophet
 
 in realizing that without first conceding that God is responsible for our capacity to think straight, no rational arguments
 can follow. When skeptics seek an explanation for God, when
@@ -408,7 +402,6 @@ Muṣṭafá al-Bābī al-Ḥalabī, 1955), 1:323.
 13 Muḥammad ibn Ismāʻīl al-Bukhārī, Ṣaḥīḥ al-Bukhārī (Beirut: Dār Ṭawq al-Najāh, 2002), 6:111 #4770.
 9
 
-The Final Prophet
 
 groupthink, and effectively silence their consciences and the
 guilt of denying the undeniable. As Allah says, “And [even] if We
@@ -461,7 +454,6 @@ none of that is possible without the Creator communicating
 The Qur’an 51:56, Saheeh International Translation.
 11
 
-The Final Prophet
 
 to us through prophets how to have a meaningful relationship
 with Him. Without this communication, we would be unable
@@ -499,7 +491,6 @@ and Human Services Administration (2007): 116-128.
 
 13
 
-The Final Prophet
 
 company in private. And a sadness dwells within it that
 nothing can alleviate but the joy of knowing Him and
@@ -532,7 +523,6 @@ message—upon discovering it—is necessary for validating one’s
 Īyāka Nasta’īn (Beirut: Dār al-Kutub al-ʻArabī, 1996), 3:156.
 14
 
-Chapter 1: Humanity’s Need for Prophethood
 
 goodness before God. Being good is contingent upon one’s existence, good intentions, and the various faculties and resources
 (strength, wealth, etc.) by which a person enacts these intentions. Since all these qualities and characteristics are endowed
@@ -562,7 +552,6 @@ good,” and “not hurting anyone,” while oblivious to the evil and
 hardship their ideas inflicted against themselves and society.
 15
 
-The Final Prophet
 
 In a word, the “do no harm” rule always risks being sacrificed
 at the altar of subjective morality. For this reason, God sent
@@ -597,7 +586,6 @@ The Prophet Muhammad ‫ ﷺ‬once said,
 usually used with the prophets and messengers of God.
 16
 
-Chapter 1: Humanity’s Need for Prophethood
 
 Indeed, Allah looked towards the people of the world
 and resented the Arabs and non-Arabs alike, except for
@@ -635,7 +623,6 @@ Zoroastrianism (Chichester, West Sussex, UK: Wiley, 2015), 292.
 to World Philosophy (Lanham, Md: Rowman & Littlefield Publishing, 2003), 175.
 17
 
-The Final Prophet
 
 animals were sometimes considered holy temple-dwellers.
 In Arabia, finding a stony heart that could stomach burying
@@ -669,7 +656,6 @@ Press, 2011), 115.
 29 The Qur’an 8:42, Saheeh International Translation.
 18
 
-Chapter 1: Humanity’s Need for Prophethood
 
 4. The Biblical Necessity of Prophethood
 In this grim sixth century, it was not only the condition of the
@@ -702,7 +688,6 @@ The Qur’an 26:197, Saheeh International Translation.
 Deuteronomy 18:18, New King James Version.
 19
 
-The Final Prophet
 
 chose an exclusivist translation of this, qualifying it as “from
 among their fellow Israelites,” but the Bible itself also refers to
@@ -736,7 +721,6 @@ him: “By the star when it descends, your companion (Muhammad)
 Reappraised (Oxford: Littman Library of Jewish Civilization, 2004), 89.
 20
 
-Chapter 1: Humanity’s Need for Prophethood
 
 has not strayed, nor has he erred, nor does he speak from [his own]
 inclination. It is but a revelation revealed.”33
@@ -770,7 +754,6 @@ HarperCollins, 2006).
 36 The Qur’an 2:146, Saheeh International Translation.
 21
 
-The Final Prophet
 
 iii. God’s Servant Where Kedar Lives
 Behold! My Servant whom I uphold; My chosen one in
@@ -814,7 +797,6 @@ Lexicon to the Old Testament Scriptures, translated by Samuel Prideaux Tregelles
 (Piscataway: Gorgias Press), 2019.
 22
 
-Chapter 1: Humanity’s Need for Prophethood
 
 the leadership of Muhammad ‫ ﷺ‬that the Ishmaelites (Arabs)
 finally became a “nation” as God had promised Abraham they
@@ -849,7 +831,6 @@ seed.” Genesis 21:13, King James Version.
 43 Ibid., 16:12-13.
 23
 
-The Final Prophet
 
 be implying Paul or the papacy, since they did away with laws
 instead of perfecting them, and did not present proof that they
@@ -883,7 +864,6 @@ and gave the lad a drink. So God was with the lad; and
 Muslim, Ṣaḥīḥ Muslim, 4:1837 #2365.
 24
 
-Chapter 1: Humanity’s Need for Prophethood
 
 he grew and dwelt in the wilderness, and became an
 archer. He dwelt in the Wilderness of Paran; and his
@@ -916,7 +896,6 @@ blessed well of Zamzam beneath it, gave rise to a great nation
 Genesis 21:19-21, New King James Version.
 25
 
-The Final Prophet
 
 because of it, and protected it from invasions—just so it would
 be surrounded by idols and become a venue for depravity. It
@@ -953,7 +932,6 @@ Allah to you all, [from Him] to whom belongs the dominion
 of the heavens and the earth. There is no deity except Him;
 26
 
-Chapter 1: Humanity’s Need for Prophethood
 
 He gives life and causes death.” So believe in Allah and His
 Messenger, the unlettered prophet, who believes in Allah
@@ -1033,7 +1011,6 @@ Maktabat al-Rushd, 2001), 156-157.
 of Calcutta 1929 (Kolkata, India: University of Calcutta, 1930), 20.
 29
 
-The Final Prophet
 
 Even a staunch Orientalist like Bernard Lewis (d. 2018), who
 was a sharp critic of Islam and Muslims in modern times,
@@ -1066,7 +1043,6 @@ people. There was nobody in Mecca (even his enemies) who had
 51 Ibn Hishām, Al-Sīrah al-Nabawīyah, 1:183, 197.
 30
 
-Chapter 2: The Prophet’s Character
 
 valuables that he feared for except that he kept them with the
 Messenger of Allah ‫ﷺ‬, due to the honesty and trustworthiness
@@ -1102,7 +1078,6 @@ in that [impostor-theory].53
 Hero-Worship, and the Heroic in History (New Haven: Yale University Press, 2013), 59.
 31
 
-The Final Prophet
 
 In the same book, Carlyle says, “The lies (Western slander)
 which well-meaning zeal has heaped round this man (Muhammad) are disgraceful to ourselves only.”54
@@ -1140,7 +1115,6 @@ Ibid., 52.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 1:8 #7.
 32
 
-Chapter 2: The Prophet’s Character
 
 uals or unethical opportunists. The first category has never had
 any influence on the world stage, let alone produced a complete
@@ -1175,7 +1149,6 @@ such a convenient credibility booster. These coinciding events
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:39 #1060; Muslim, Ṣaḥīḥ Muslim, 2:630 #915.
 33
 
-The Final Prophet
 
 represented an immense opportunity for any personal agenda,
 and yet the Prophet ‫ ﷺ‬would not allow others to interpret this
@@ -1208,7 +1181,6 @@ for him. Yet, we see no signs of luxury in any sphere of his life.
 Muslim, Ṣaḥīḥ Muslim, 3:1414 #1787.
 34
 
-Chapter 2: The Prophet’s Character
 
 3D Rendering by Yaqeen Institute. Inspired by Amany Saqqāf, 2009,
 Jeddah, Saudi Arabia Exhibition.
@@ -1231,7 +1203,6 @@ Prophet ‫ ﷺ‬said, “What makes you weep, O son of al-Khaṭṭāb?”
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 8:97 #6459.
 35
 
-The Final Prophet
 
 He said, “O Prophet of Allah, how can I not cry after seeing
 how the mat has left these marks on your side, and how little
@@ -1269,7 +1240,6 @@ Electric Book Co, 2001), chapter L, 252.
 62 Ibid., 251-252.
 36
 
-Chapter 2: The Prophet’s Character
 
 According to Washington Irving (d. 1859), an American biographer and diplomat,
 He was sober and abstemious in his diet and a rigorous
@@ -1306,7 +1276,6 @@ the comments.
 and Co., 1874), 235.
 37
 
-The Final Prophet
 
 Until this very day, the canons of literature on Islamic ethics,
 and the weekly sermons of Muslim preachers, are replete with
@@ -1346,7 +1315,6 @@ Muslim, Ṣaḥīḥ Muslim, 43:22 #2286.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:55 #3445.
 38
 
-Chapter 2: The Prophet’s Character
 
 3. His Mercy and Compassion
 
@@ -1383,7 +1351,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 1:143 #710.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 1:142 #702; Muslim, Ṣaḥīḥ Muslim, 1:340 #466.
 39
 
-The Final Prophet
 
 This Companion’s rugged Bedouin upbringing made him feel
 that this was contrary to masculinity, and so he said in pride,
@@ -1424,7 +1391,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 8:9 #6009.
 Muslim, Ṣaḥīḥ Muslim, 3:1548 #1955.
 40
 
-Chapter 2: The Prophet’s Character
 
 overworking their camels in the fields, and for not relieving
 their riding mounts of the loads they carried promptly after
@@ -1465,7 +1431,6 @@ The Qur’an 18:6, Saheeh International Translation.
 Muslim, Ṣaḥīḥ Muslim, 1:191 #202.
 41
 
-The Final Prophet
 
 the Prophet’s ‫ ﷺ‬facing beaming cheerfully one day, she said,
 “O Messenger of Allah, supplicate to Allah for me.” He said,
@@ -1498,7 +1463,6 @@ for three years which led to the death of his wife and his most
 1974), 1:143.
 42
 
-Chapter 2: The Prophet’s Character
 
 supportive uncle. In terms of physical assault, ‘Uqbah ibn Abī
 Mu‘ayṭ would strangle him from behind when he prayed in
@@ -1531,7 +1495,6 @@ upon the Prophet ‫ ﷺ‬and mockingly said, “Al-sāmu ‘alaykum
 al-Tirmidhī, Sunan al-Tirmidhī, 6:58 #3681.
 43
 
-The Final Prophet
 
 (death be upon you),” in place of the customary Islamic greeting
 of “Al-salāmu ‘alaykum (peace be upon you).” His wife ‘Āishah
@@ -1570,7 +1533,6 @@ Muslim, Ṣaḥīḥ Muslim, 3:1417 #1791.
 See: The Qur’an 5:78.
 44
 
-Chapter 2: The Prophet’s Character
 
 normative demeanor was to seek forgiveness for those who
 wronged him and his followers.
@@ -1604,7 +1566,6 @@ daughter of ‘Utbah ibn Rabī‘ah, two nobles from Quraysh who
 al-Risālah, 2001), 23:369 #15190.
 45
 
-The Final Prophet
 
 were both belligerent enemies of the Prophet Muhammad ‫ﷺ‬.
 Hind was a woman who boiled with venomous hate against
@@ -1639,7 +1600,6 @@ at the conquest of Mecca, certain that killing a ruler’s family
 99 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 9:66 #7161.
 46
 
-Chapter 2: The Prophet’s Character
 
 member warranted his death. However, the Prophet ‫ ﷺ‬was
 unlike any ruler. Waḥshī later said, “I heard that no matter how
@@ -1672,7 +1632,6 @@ Day of Ḥunayn, O Abū ‘Umārah?” He replied, “I can testify that
 comments.
 47
 
-The Final Prophet
 
 the Prophet of Allah ‫ ﷺ‬did not retreat. There were some hasty
 young men who met—without adequate arms—a group from
@@ -1712,7 +1671,6 @@ al-Tirmidhī, Sunan al-Tirmidhī, 5:101 #3046.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:66 #3040.
 48
 
-Chapter 2: The Prophet’s Character
 
 never consumed any of the charity he collected. He ‫ ﷺ‬would
 even share the wealth he acquired with his enemies to help
@@ -1747,7 +1705,6 @@ violently pulled him by his cloak, causing the cloak to tear, and
 Ibn Ḥibbān, Ṣaḥīḥ Ibn Ḥibbān, 1:521 #288.
 49
 
-The Final Prophet
 
 leaving its collar hanging on the neck of Allah’s Messenger ‫ﷺ‬.
 I looked at the Messenger of Allah’s ‫ ﷺ‬neck, and the cloak’s
@@ -1784,7 +1741,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:67 #1221.
 Ibn Ḥibbān, Ṣaḥīḥ Ibn Ḥibbān, 2:491 #715.
 50
 
-Chapter 2: The Prophet’s Character
 
 knew his father, lost his mother at a young age, then lost his
 grandfather, and then his uncle and wife simultaneously. Consider a man who lived to witness five of his six children die,
@@ -1815,7 +1771,6 @@ when others could not even be patient, and his heart merciful
 at times when others could not even be just.
 51
 
-The Final Prophet
 
 Though the incidents reflecting his perseverance are innumerable, it suffices the honest person to simply familiarize
 himself with the boycott in the ravine of Abū Ṭālib. For an
@@ -1853,7 +1808,6 @@ its leadership and calling its people to Islam, before the mobs
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:115 #3231; Muslim, Ṣaḥīḥ Muslim, 3:1420 #1795.
 52
 
-Chapter 2: The Prophet’s Character
 
 gathered to drive him out. They then made two rows and forced
 him to walk through them, while they hurled obscenities and
@@ -1894,7 +1848,6 @@ ensure he would never take these Divine communications for granted.
 114 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 5:4 #3653; Muslim, Ṣaḥīḥ Muslim, 4:1854 #2381.
 53
 
-The Final Prophet
 
 him with angels you did not see and made the word of those
 who disbelieved the lowest, while the word of Allah that is
@@ -1933,7 +1886,6 @@ The Qur’an 9:40, Saheeh International Translation.
 The Qur’an 26:61-62, Saheeh International Translation.
 54
 
-Chapter 2: The Prophet’s Character
 
 was with emphasis and deliberation, and no one could
 forget what he said.117
@@ -1972,7 +1924,6 @@ his, his clarity of thought, his balanced opinions, his gentleness
 1953), 52.
 55
 
-The Final Prophet
 
 in teaching, his determination, and his charismatic speech. In
 one of dozens of riveting narrations that have been reported
@@ -2006,7 +1957,6 @@ God’s praise in the Qur’an: “You are the best nation produced [as
 Harper & Row, 1972), 264.
 56
 
-Chapter 2: The Prophet’s Character
 
 an example] for mankind. You enjoin what is right and forbid what
 is wrong and believe in Allah.”121 Being followed so ardently by
@@ -2078,7 +2028,6 @@ justify the title of a messenger of God.123
 G. Bell and Sons, 1875), 329-330.
 59
 
-The Final Prophet
 
 There is no leap of faith here. To say that sheer luck is responsible for all these things being accomplished by any one
 individual can only be claimed by someone uninformed about
@@ -2112,7 +2061,6 @@ but millions of men in one-third of the then inhabited
 124 Samuel P. Scott, History of the Moorish Empire in Europe (Philadelphia & London: J.B. Lippincott Company, 1904), 1:126-127.
 60
 
-Chapter 3: The Prophet’s Accomplishments
 
 world; and more than that, he moved the altars, the
 gods, the religions, the ideas, the beliefs and souls. On
@@ -2153,7 +2101,6 @@ well ask: is there any man greater than he?125
 125 Alphonse de Lamartine, Histoire De La Turquie (Paris: Librarie du Constitutionnel, 1854) 1:277-280.
 61
 
-The Final Prophet
 
 1. A Love Larger than Life
 Has anyone in human history ever been as deeply loved as the
@@ -2184,7 +2131,6 @@ returning to the city of Madinah, a woman from the Banū
 
 62
 
-Chapter 3: The Prophet’s Accomplishments
 
 Dinār tribe was told that her husband, father, and brother
 were all killed at Uḥud. She responded, “But what happened
@@ -2222,7 +2168,6 @@ followers. Amidst his recollections, he says,
 127 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 3:193 #2731.
 63
 
-The Final Prophet
 
 Then, no one was dearer to me than the Messenger of
 Allah ‫ﷺ‬, and none was more exalted in my eyes than
@@ -2257,7 +2202,6 @@ literary geniuses, selfless altruists, accomplished statesmen,
 1995), 10:475-476.
 64
 
-Chapter 3: The Prophet’s Accomplishments
 
 and virtuous generals believed emulating Muhammad ‫ ﷺ‬was
 the gateway to true excellence in all endeavors and indispensable for being a torchbearer for humanity. Even today, nearly
@@ -2294,7 +2238,6 @@ The Columbia Encyclopedia (Columbia University Press, 8th edition, 2018) via Cre
 Reference.
 65
 
-The Final Prophet
 
 everything traceable to him, and mimicking his lifestyle down
 to the motions of his fingers during prayer. How many figures
@@ -2328,7 +2271,6 @@ of him when he is slighted?
 David G. Hogarth, Arabia (Oxford: Clarendon Press, 1922), 52.
 66
 
-Chapter 3: The Prophet’s Accomplishments
 
 In fact, God Himself foretold this by saying, “And We have
 raised for you your repute.”134 This verse was revealed during
@@ -2365,7 +2307,6 @@ authored The 100: A Ranking of the Most Influential Persons in
 Public Broadcasting Service (PBS), March 1st, 2002.
 67
 
-The Final Prophet
 
 History, succinctly illustrates this mind-boggling success story
 as follows:
@@ -2407,7 +2348,6 @@ was small; and plagued by disunity and internecine
 warfare, they had been no match for the larger armies
 68
 
-Chapter 3: The Prophet’s Accomplishments
 
 of the kingdoms in the settled agricultural areas to the
 north. However, unified by Muhammad for the first time
@@ -2444,7 +2384,6 @@ there. Edward Gibbon, whose writings are not void of hostil137 Michael H. Hart, 
 139 Ibid., 237.
 69
 
-The Final Prophet
 
 ity towards Muhammad ‫ﷺ‬, could not help but document his
 admiration of Islam’s resilience on the world stage. He writes,
@@ -2480,7 +2419,6 @@ Publications Division, Ministry of Information and Broadcasting, Government of
 India, 1960-1994), 29:133.
 70
 
-Chapter 3: The Prophet’s Accomplishments
 
 3. Restoring the Unity of God
 
@@ -2511,7 +2449,6 @@ they should consider the emerging fascination with “spiritual
 
 71
 
-The Final Prophet
 
 intelligence” in the turmoil-filled modern world, along with
 the significantly lower homicide and suicide rates in Muslim
@@ -2550,7 +2487,6 @@ and Islam,” Arch Suicide Res. 10, no. 1 (2006).
 144 Edward Gibbon, The Rise and Fall of the Saracen Empire, 54.
 72
 
-Chapter 3: The Prophet’s Accomplishments
 
 footing before God and with equal access to God. This helped
 shape the egalitarian nature of Islam, providing a social narrative in which the holiness of men was not evidenced by their
@@ -2582,7 +2518,6 @@ a foreigner over an Arab, and neither white skin over
 
 73
 
-The Final Prophet
 
 black skin, nor black skin over white skin, except by
 righteousness. Have I not delivered the message?145
@@ -2612,7 +2547,6 @@ the comments.
 1948), 205.
 74
 
-Chapter 3: The Prophet’s Accomplishments
 
 of the heavens and the earth and the diversity of your languages and
 your colors. Indeed, in that are signs for those of knowledge.”147 The
@@ -2645,7 +2579,6 @@ infused with justice and security for the rich, poor, Muslim,
 148 Malcolm X and Alex Haley, The Autobiography of Malcolm X (New York: Ballantine, 1992), 370.
 75
 
-The Final Prophet
 
 and non-Muslim alike—a lived example of what many human
 rights advocates aspire to today. With dictates like, “Pay the
@@ -2684,7 +2617,6 @@ in the Islamic Middle East, 700–1500.” The Journal of Economic History 74, n
 (2014): 196–229.
 76
 
-Chapter 3: The Prophet’s Accomplishments
 
 then assist him.”151 Biographers report that another leading
 Companion, Abū al-Dardā’ , would even say to his riding
@@ -2718,7 +2650,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 1:15 #30.
 Ibn ‘Asākir, Tārīkh Madīnat Dimashq, 40:290.
 77
 
-The Final Prophet
 
 monotheism on the planet. This not only made them the most
 devout worshippers but also at the forefront of contributing to
@@ -2752,7 +2683,6 @@ military conflicts. A glimpse of this precedent is narrated by
 1880), 353.
 78
 
-Chapter 3: The Prophet’s Accomplishments
 
 Abū ‘Azīz ibn ‘Umayr , who was taken captive at the Battle
 of Badr as a warring idolator. He reports that the Messenger
@@ -2789,7 +2719,6 @@ Ibn Taymīyah, Dār al-Ṣumayʻī, 1983), 22:393 #977.
 September 21st, 2018.
 79
 
-The Final Prophet
 
 Has history ever known anyone else with the ability to tame
 the beast of alcoholism once it has been unleased upon a nation? Why were Muslims able to just give it up? The Prophet
@@ -2810,7 +2739,6 @@ there ever been another historical parallel before or after the
 (2009): 6.
 80
 
-Chapter 3: The Prophet’s Accomplishments
 
 Prophet’s ‫ ﷺ‬era where ethnic chauvinism declined so dramatically in both theory and practice? Many of his contemporaries
 who were vehement Arab supremacists became people who
@@ -2841,7 +2769,6 @@ freed slave who was black, blind, disabled, and had been homeless for many years
 161 ‘Alī ibn Muḥammad Qārī al-Harawī, Mirqāt al-Mafātīḥ: Sharḥ Mishkāt alMaṣābīḥ (Beirut: Dār al-Fikr, 2002), 1:288.
 81
 
-The Final Prophet
 
 social mobility had undergone such significant changes with
 the advent of Islam that, within one generation, none of these
@@ -2875,7 +2802,6 @@ Thereafter, Muslim civilizations in general, for almost a millennium but especia
 The Qur’an 8:63, Saheeh International Translation.
 82
 
-Chapter 3: The Prophet’s Accomplishments
 
 justice, fraternity, scientific vibrancy, and progressive thought.
 It was clear that Islam offered enlightened ideals which, while
@@ -2906,7 +2832,6 @@ religion was the very shackle that hindered progress and advancement in the past
 Effect on Mankind (UK Islamic Academy, 2003).
 83
 
-The Final Prophet
 
 in the secular West is that the revival of religion necessitates a
 return to backwardness and stagnation. But in our experience
@@ -2956,7 +2881,6 @@ the quality of its substance and breadth of its scope, what the
 See: Deuteronomy 13:1-18.
 85
 
-The Final Prophet
 
 Prophet ‫ ﷺ‬taught continues to distinguish itself as a message
 of exceptional depth and value. It defined people’s relationships
@@ -3017,7 +2941,6 @@ In this series, Tolstoy writes about Islam,
 168 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:102 #1390.
 87
 
-The Final Prophet
 
 The essence of this faith came down to the fact that
 there is no deity worthy of worship except the One True
@@ -3054,7 +2977,6 @@ Quarterly Journal of Philosophical Meditations 2, no. 5 (Spring 2010): 18.
 January 26th, 2018.
 88
 
-Chapter 4: The Prophet’s Message
 
 what makes life meaningful, or the search is narrowed to the
 “Abrahamic faiths” which agree on the oneness of God in theory
@@ -3094,7 +3016,6 @@ is described in the Bible in many respects, the differences are
 Unwin, 1985), 44.
 89
 
-The Final Prophet
 
 significant and consequential. For instance, there is no mystery surrounding God’s oneness and identity in the Qur’an, as
 opposed to the obscurity of the trinitarian doctrine, with its
@@ -3131,7 +3052,6 @@ The Qur’an 57:22-23, Saheeh International Translation.
 Muslim, Ṣaḥīḥ Muslim, 1:36 #8.
 90
 
-Chapter 4: The Prophet’s Message
 
 two powerful resources that make life endurable and enjoyable.
 The Prophet Muhammad’s ‫ ﷺ‬teachings on destiny do not just
@@ -3163,7 +3083,6 @@ social religious practice were an effective vaccine against the
 Belief (New York: Simon & Schuster, 1997), 211.
 91
 
-The Final Prophet
 
 virus of unhappiness.”178 Another large, global study by Pew
 Research Center found that people actively involved in religious
@@ -3198,7 +3117,6 @@ Books, 2016), 80.
 January 31st, 2019.
 92
 
-Chapter 4: The Prophet’s Message
 
 work, A Secular Age, it is “the call to submit to God in Islam
 which empowers humans in a way unavailable in any other
@@ -3232,7 +3150,6 @@ Charles Taylor, A Secular Age (Cambridge: Harvard University Press, 2007), 818.
 Muslim, Ṣaḥīḥ Muslim, 1:62 #34.
 93
 
-The Final Prophet
 
 3. The Ṣalāh (Ritual Prayer)
 Indeed, mankind was created anxious: frantic when harm
@@ -3266,7 +3183,6 @@ them to pray five times each day in a structured format and
 Ibn Qudāmah’s ‘The Reliable Manual of Fiqh’ (Riyadh: International Islamic Publishing House, 2019), 1:129.
 94
 
-Chapter 4: The Prophet’s Message
 
 at specific periods of time. An outsider may find this to be a
 cumbersome or intrusive task, but so many Muslims—upon experiencing this prayer—voluntarily choose to supplement these
@@ -3299,7 +3215,6 @@ the first ṣalāh must be offered at dawn before sunrise, and the
 York: Alfred A. Knopf, 2005), 93.
 95
 
-The Final Prophet
 
 Prophet Muhammad ‫ ﷺ‬discouraged needless socialization
 after the evening prayer,185 the course is reversed. To better
@@ -3332,7 +3247,6 @@ Today, June 23rd, 2014.
 and Integration of the Research,” Depression Research and Treatment (2012).
 96
 
-Chapter 4: The Prophet’s Message
 
 hammad ‫ ﷺ‬said in the context of the daily prayer, “Adhere to
 the congregation, for the wolf eats none other than the stray
@@ -3368,7 +3282,6 @@ Times, April 22nd, 2016.
 198 The Qur’an 68:43, Saheeh International Translation.
 97
 
-The Final Prophet
 
 4. Ṣiyām (Devotional Fasting)
 O you who have believed, fasting has been prescribed for
@@ -3401,7 +3314,6 @@ Gabriel used to meet him every night during Ramadan to revise the Qur’an with
 him. Allah’s Messenger ‫ ﷺ‬was more generous then than the fast wind.” (Ṣaḥīḥ alBukhārī, 3:26 #1902).
 98
 
-Chapter 4: The Prophet’s Message
 
 of age-related diseases.202 Similarly, Clive McCay of Cornell
 University found that laboratory rats kept on a severely reduced-calorie diet lived almost twice as long as expected, so
@@ -3437,7 +3349,6 @@ Fasting in Healthy Women,” Frontiers in Nutrition, v. 3 (2016).
 Health, Aging, and Disease,” New England Journal of Medicine, v. 382 no. 3 (2020): 298.
 99
 
-The Final Prophet
 
 theories continue to lose credibility with intermittent fasting’s
 surging popularity and newfound benefits,207 though it has
@@ -3470,7 +3381,6 @@ July 22nd, 2019.
 209 The Qur’an 17:32, Saheeh International Translation.
 100
 
-Chapter 4: The Prophet’s Message
 
 bestiality, and necrophilia. From that vantage point, a newfound appreciation surfaces for how this verse begins: “Do not
 approach fornication,” as if it were a wild blaze that will engulf
@@ -3502,7 +3412,6 @@ and the Significance of Fatherhood,” Yaqeen Institute for Islamic Research, Se
 the comments and paraphrased here.
 101
 
-The Final Prophet
 
 6. Prohibiting Interest-Based Lending
 O you who have believed, fear Allah and give up what remains [due to you] of interest, if you should be believers.
@@ -3534,7 +3443,6 @@ New Yorker Films, 2001).
 215 Aristotle, R.F. Stalley, and Ernest Barker, Politics: Oxford World’s Classics (Oxford: Oxford University Press, 2009), bk. 1, chap. 10, p. 29.
 102
 
-Chapter 4: The Prophet’s Message
 
 of unthinkable devastation, which then become catalysts for
 financial meltdowns and uprisings by the underclass which
@@ -3569,7 +3477,6 @@ Procedia Economics and Finance 38 (2016): 174-184.
 219 The Qur’an 59:7, author’s translation.
 103
 
-The Final Prophet
 
 funneling this wealth directly to those in need, the oft-cited
 concern of governments being overfed by taxing the rich’s
@@ -3603,7 +3510,6 @@ The Qur’an 5:90, author’s translation.
 Abū Dāwūd, Sunan Abī Dāwūd, 3:327 #3681.
 104
 
-Chapter 4: The Prophet’s Message
 
 “designated driver” abstain from drinking altogether to safely
 transport the drinkers to their homes. To illustrate the inadequacy of these measures, realize that the Harvard Alcohol
@@ -3634,7 +3540,6 @@ liberated from this vice. His wife, ‘Āishah , said,
 224 al-Tirmidhī, Sunan al-Tirmidhī, 4:410 #2801.
 105
 
-The Final Prophet
 
 The first revelations of the Qur’an were none other than
 chapters from the mufaṣṣal (shorter chapters), which
@@ -3670,7 +3575,6 @@ Research and Clinical Perspectives (New York: Nova Science, 2009), 5.
 Social Work in Public Health, 28:3-4 (2013), 175-177.
 106
 
-Chapter 4: The Prophet’s Message
 
 Satan only wants to stir between you animosity and hatred
 through intoxicants and gambling, and to avert you from
@@ -3704,7 +3608,6 @@ Study 2016,” The Lancet, 22; 392(10152) (September 2018):1015-1035.
 232 The Qur’an 2:219, Saheeh International Translation.
 107
 
-The Final Prophet
 
 message made Islam’s unique firm stance on alcohol scriptural
 and ever-relevant, not to be contravened by fluctuating politics
@@ -3739,7 +3642,6 @@ chew the cud; you shall not eat their flesh or touch their dead carcasses.” (D
 al-Ṣaghīr wa Ziyādatih (Damascus: al-Maktab al-Islāmī, 1969), 2:749-750 #4059-4061.
 108
 
-Chapter 4: The Prophet’s Message
 
 No human being fills any vessel worse than his stomach. It is sufficient for the son of Adam [to eat] a few
 mouthfuls, to erect his spine (i.e., sustain him). But if
@@ -3776,7 +3678,6 @@ May 13th, 2008.
 241 Muslim, Ṣaḥīḥ Muslim, 1:223 #261.
 109
 
-The Final Prophet
 
 his time in hygiene, but they also indicate how kind the Most
 Affectionate, Lord of Might, is to His creation.
@@ -3814,7 +3715,6 @@ Cross and the Crescent in the Middle East, 1096-1291 (New York: Rosen Publishing
 al-Islāmīyah, 1986), 1:10 #5; authenticated by al-Albānī in the comments.
 110
 
-Chapter 4: The Prophet’s Message
 
 Islam’s final Prophet, Muhammad ‫ﷺ‬, taught that these are
 means of nearness to God, and of not offending people and
@@ -3850,7 +3750,6 @@ and Prevention, last updated September 10th, 2020.
 and Literature Review of Nasal Irrigation,” The Laryngoscope 110, no. 7 (2000): 1193.
 111
 
-The Final Prophet
 
 small amounts of water all the way through is the proper way
 to treat and prevent sinusitis, among other things. This is precisely what the Prophet ‫ ﷺ‬prescribed in his statement, “And
@@ -3884,7 +3783,6 @@ the comments.
 249 The Qur’an 2:222, Saheeh International Translation.
 112
 
-Chapter 4: The Prophet’s Message
 
 then, he does not wash his arms to the elbows, except
 that his arms’ sins fall from his fingertips along with the
@@ -3922,7 +3820,6 @@ Muslim, Ṣaḥīḥ Muslim, 1:569 #832.
 The Qur’an 96:1-5, author’s translation.
 113
 
-The Final Prophet
 
 the caliphal library in Medieval Cordoba, one of its seventy
 libraries then, reportedly had 400,000 books while the largest
@@ -3957,7 +3854,6 @@ to al-Albānī in the comments.
 Past (London: Hurst, 2014), 72.
 114
 
-Chapter 4: The Prophet’s Message
 
 less of who may know it and who may be ignorant of it.”256 In
 other words, these cures are all discoverable, so let the research renaissance begin. Muslims became so advanced in
@@ -3995,7 +3891,6 @@ Arab and Western Worlds,” Encyclopedia.com by Cengage, updated June 13th, 2020
 258 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 7:130 #5728; Muslim, Ṣaḥīḥ Muslim, 4:1737 #2218.
 115
 
-The Final Prophet
 
 thing of supreme value for Muslim being. ‘Ilm is Islam,
 even if the theologians have been hesitant to accept the
@@ -4036,7 +3931,6 @@ Muslim Historiography (Leiden: E.J. Brill, 1968), 28)
 262 Ibid., 201-202.
 116
 
-Chapter 4: The Prophet’s Message
 
 The Prophet Muhammad ‫ ﷺ‬was therefore not just an orphan
 who adopted the world with his compassion, but an unlettered shepherd who provided an extraordinary prism that
@@ -4119,7 +4013,6 @@ Tauris, 2012), 33.
 268 The Qur’an 30:4-5, Muhsin Khan Translation.
 119
 
-The Final Prophet
 
 al-Baḥr al-Muḥīṭ four reasons for this rejoicing, of them being
 that the miraculous prophecy unfolding would further validate
@@ -4153,7 +4046,6 @@ al-Fikr, 1992), 8:375.
 271 The Qur’an 111:1-3, Saheeh International Translation.
 120
 
-Chapter 5: The Prophet’s Prophecies
 
 3. The Globalization of Islam
 Amidst the fiercest persecution and abuse that the Muslims
@@ -4187,7 +4079,6 @@ al-Ma‘ārif, 1996), 1:32 #3.
 273 Muslim, Ṣaḥīḥ Muslim, 4:2215 #2889.
 121
 
-The Final Prophet
 
 when these prophecies were first stated, such as the Americas and Australia, and Islam is on track to becoming by 2070
 the religion with the most adherents on the planet.274 It is
@@ -4219,7 +4110,6 @@ Pew Research Center, April 2nd, 2015.
 276 Muslim, Ṣaḥīḥ Muslim, 3:1403 #1779.
 122
 
-Chapter 5: The Prophet’s Prophecies
 
 describes that as the Prophet ‫ ﷺ‬was telling them this, “his
 eyes were shedding tears.” He ‫ ﷺ‬continued, “Then the flag
@@ -4255,7 +4145,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:72 #1246.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:125 #1481.
 123
 
-The Final Prophet
 
 deeds of the people of Paradise, in terms of what is apparent
 to the people, while in reality he is among the people of the
@@ -4291,7 +4180,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:37 #2898; Muslim, Ṣaḥīḥ Muslim
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:101 #3176.
 124
 
-Chapter 5: The Prophet’s Prophecies
 
 6. Counting the Conquests
 
@@ -4322,7 +4210,6 @@ see two men disputing over the place of a brick, then leave
 282 Muslim, Ṣaḥīḥ Muslim, 4:1970 #2543.
 125
 
-The Final Prophet
 
 person here, foretelling that none other than his personal
 Companions would conquer Egypt. Then he ‫ ﷺ‬instructed them
@@ -4356,7 +4243,6 @@ al-Silsilah al-Ṣaḥīḥah, 1:33 #4.
 in the comments.
 126
 
-Chapter 5: The Prophet’s Prophecies
 
 poverty, and then another came to him complaining of highway
 robbery. He ‫ ﷺ‬said, ‘O ‘Adī, have you seen al-Ḥīrah (in Iraq)?’
@@ -4390,7 +4276,6 @@ Prophet ‫ ﷺ‬addressing this concern by reassuring Quraysh that
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:197 #3595.
 127
 
-The Final Prophet
 
 those empires would soon vanish from both regions. He said,
 “When Chosroes dies, there will be no Chosroes after him.
@@ -4422,7 +4307,6 @@ had never seen a joy and grief so closely as I saw on that day,
 1990), 6:383 #221.
 128
 
-Chapter 5: The Prophet’s Prophecies
 
 so I said to her when she wept, ‘The Messenger of Allah ‫ﷺ‬
 privileges you with his words, and not us, and then you weep?’
@@ -4458,7 +4342,6 @@ Jaḥsh  died first, they realized “longest arm” meant most
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 6:10 #4433; Muslim, Ṣaḥīḥ Muslim, 4:1904 #2450.
 129
 
-The Final Prophet
 
 charitable. ‘Āishah  says, “Zaynab had the longest arm among
 us, because she used to work with her hands and donate from
@@ -4497,7 +4380,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 5:13 #3693; Muslim, Ṣaḥīḥ Muslim
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 5:9 #3675.
 130
 
-Chapter 5: The Prophet’s Prophecies
 
 their respective caliphates. With ‘Uthmān in particular, the
 Prophet ‫ ﷺ‬gave further details: “O ‘Uthmān, Allah—the Mighty
@@ -4534,7 +4416,6 @@ al-Tirmidhī, Sunan al-Tirmidhī, 6:69 #3705.
 Muslim, Ṣaḥīḥ Muslim, 4:2216 #2890.
 131
 
-The Final Prophet
 
 have granted you, for your nation, that I do not destroy them
 with a widespread famine, and that I do not empower against
@@ -4565,7 +4446,6 @@ a prohibition, ‘Āishah  decided not to abort her journey.
 al-Albānī in the comments.
 132
 
-Chapter 5: The Prophet’s Prophecies
 
 14. The Fate of ‘Ammār
 Abū Sa‘īd al-Khudrī  narrated that, as the Muslims were building the mosque in Madinah, ‘Ammār ibn Yāsir  would carry two
@@ -4601,7 +4481,6 @@ provoked the army of ‘Alī to eventually raise arms against them at Ṣiffīn
 the comments.
 133
 
-The Final Prophet
 
 15. ‘Alī Suppressing the Khārijites
 In another foretelling of this turbulent period, Abū Sa‘īd al-Khudrī  narrates that the Prophet ‫ ﷺ‬said, “A dissenting faction
@@ -4634,7 +4513,6 @@ Ṭālib fought them, and that I was with him. He instructed that
 Muslim, Ṣaḥīḥ Muslim, 2:745 #1064.
 134
 
-Chapter 5: The Prophet’s Prophecies
 
 we search for this man. He was eventually found and brought to
 ‘Alī, and I saw that that man appeared exactly as the Prophet ‫ﷺ‬
@@ -4665,7 +4543,6 @@ be to the All-Encompassing; there is no other Lord but He.”303
 al-‘Ilmīyah, 2003), 4:152.
 135
 
-The Final Prophet
 
 17. Cycling Back to Virtue is Promised
 In an explicit hadith about the forms of governance the Muslim
@@ -4697,7 +4574,6 @@ prophecy she had heard directly from the Prophet’s ‫ ﷺ‬lips. Her
 304 Ibn Ḥanbal, Musnad Aḥmad, 30:355 #18406; a ḥasan (acceptable) chain according to al-Arna’ūṭ in the comments.
 136
 
-Chapter 5: The Prophet’s Prophecies
 
 response was, “I think you have destroyed his worldly life by
 destroying your own afterlife… The Messenger of Allah ‫ ﷺ‬has
@@ -4732,7 +4608,6 @@ after him, and that among them are those who would be
 2:62.
 137
 
-The Final Prophet
 
 strong, formidable, and a consequential force against
 the enemy, and that they would conquer territories until
@@ -4765,7 +4640,6 @@ conceal, Allah knows... Yes, indeed.”312 Imam al-Nawawī comments that all the
 312 Muslim, Ṣaḥīḥ Muslim, 2:669 #974.
 138
 
-Chapter 5: The Prophet’s Prophecies
 
 responded to in the affirmative, so it was as if she was agreeing
 with herself about the reality she had just attested to.313
@@ -4798,7 +4672,6 @@ al-‘Arabī, 1972), 7:44.
 315 al-Tirmidhī, Sunan al-Tirmidhī, 4:335 #2664.
 139
 
-The Final Prophet
 
 23. A Horrific Wildfire
 
@@ -4834,7 +4707,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 9:58 #7118; Muslim, Ṣaḥīḥ Muslim
 Muslim, Ṣaḥīḥ Muslim, 2:701 #157.
 140
 
-Chapter 5: The Prophet’s Prophecies
 
 Even those financially struggling enjoy recliners at home that
 are cozier than any ancient king’s royal throne, and climate
@@ -4863,7 +4735,6 @@ Aramco World 40, no. 3 (May/June 1989).
 320 Muslim, Ṣaḥīḥ Muslim, 1:36 #8.
 141
 
-The Final Prophet
 
 In a similar hadith, the Prophet ‫ ﷺ‬said, “The Hour will not
 commence before people boast of their mosques.” Ibn ‘Abbās
@@ -4899,7 +4770,6 @@ comments.
 in ‘Umdat al-Tafsīr ‘an Ibn Kathīr (Egypt: Dār al-Wafā’, 2005), 1:332.
 142
 
-Chapter 5: The Prophet’s Prophecies
 
 money, and the bonuses we receive on credit card rewards are
 partly funded by the interest paid by other customers. Also,
@@ -4932,7 +4802,6 @@ killed, nor the killed why he was killed.” It was said, “How will
 Muslim, Ṣaḥīḥ Muslim, 4:1996 #2578.
 143
 
-The Final Prophet
 
 that be?” He said, “Chaos.”325 In another hadith, “The Hour
 will not commence until knowledge is removed, earthquakes
@@ -4971,7 +4840,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:33 #1036; Muslim, Ṣaḥīḥ Muslim
 Muslim, Ṣaḥīḥ Muslim, 3:1680 #2128.
 144
 
-Chapter 5: The Prophet’s Prophecies
 
 also stated that even Muslim communities would participate
 in some of these trends. “There will be in the end of my nation
@@ -5003,7 +4871,6 @@ reason for abortions today, with more than half of those surveyed
 7:469 #37297; authenticated by ʻIṣām Mūsá Hādī in Kitāb Ṣaḥīḥ Ashrāṭ al-Sā‘ah (Amman: al-Dār al-ʻUthmānīyah, 2003), 83.
 145
 
-The Final Prophet
 
 citing single motherhood as the reason for that fear.331 Another
 remarkable presumption in this hadith is that, one day, removing
@@ -5037,7 +4904,6 @@ and Qualitative Perspectives,” Perspectives on Sexual and Reproductive Health 
 the comments.
 146
 
-Chapter 5: The Prophet’s Prophecies
 
 “O Messenger of Allah, what will this weakness be?” He said, “The
 love of this world, and the hatred of death.”333 It is incredible how
@@ -5070,7 +4936,6 @@ striking the tambourine an exception to the prohibition of musical instruments,
 at least on occasion, and some widen the concession further.
 147
 
-The Final Prophet
 
 “An age will surely come when people gather and pray in the
 mosques, while there is not a single believer amongst them.”335
@@ -5082,7 +4947,6 @@ Berlin Conference 1884. (Artist: Francois Marechal)
 #101; authenticated by al-Albānī in the comments.
 148
 
-Chapter 5: The Prophet’s Prophecies
 
 30. The Immortality of His Nation
 
@@ -5119,7 +4983,6 @@ a seventh-century desert dweller to process, but the incredible
 the comments.
 149
 
-The Final Prophet
 
 strides in electricity and electronics since then have made such
 possibilities mundane for most people. In TIME’s Best Inventions of 2002, a Japanese toy-maker is showcased for creating
@@ -5151,7 +5014,6 @@ Macworld, January 7th, 2010.
 344 The Qur’an 27:65, Saheeh International Translation.
 150
 
-Chapter 5: The Prophet’s Prophecies
 
 siders the staggering number of these prophecies and reflects
 that we ourselves 50 years ago could never have predicted the
@@ -5214,7 +5076,6 @@ contingent on divine will.
 Ibn Qayyim al-Jawzīyah, Miftāḥ Dār al-Sa‘ādah (Beirut: Dār al-Kutub al‘Ilmīyah, 2002), 2:13.
 153
 
-The Final Prophet
 
 This is the utility of miracles and why deemphasizing them
 to appear more rational and sophisticated is a great disservice
@@ -5246,7 +5107,6 @@ is precisely what the Qur’an indicates: that even the greatest of miracles wil
 convince one who obstinately chooses to ignore every conceivable form of proof.
 154
 
-Chapter 6: The Prophet’s Physical Miracles
 
 1. The Possibility of Miracles
 For the majority of people who believe that God is the Creator
@@ -5279,7 +5139,6 @@ Yaqeen Institute for Islamic Research, February 27th, 2017.
 Academy, 1978), 18.
 155
 
-The Final Prophet
 
 mind, its inability to interpret natural phenomena, and not
 the intended meaning behind passages in the Torah. His contempt for miracles is expected, as the idea of “supernatural
@@ -5311,7 +5170,6 @@ objection Spinoza raised was quasi-theological cum ontological: “If anyone ass
 The Qur’an 2:260, Saheeh International Translation.
 156
 
-Chapter 6: The Prophet’s Physical Miracles
 
 laws of nature, he, ipso facto, would be compelled to assert
 that God acted against His own nature.”351 But this argument
@@ -5342,7 +5200,6 @@ wider embrace of his views. Hume alleged that we are forced
 2004), chapter VI, 83.
 157
 
-The Final Prophet
 
 by continuous evidence of nature’s uniformity to dismiss even
 the strongest testimony of any momentary supernatural event,
@@ -5373,7 +5230,6 @@ nature” are a mere description of the world as we experience
 it, not a necessary prescription for how it must function. Miracles can, therefore, simply be exceptions to the predominant
 158
 
-Chapter 6: The Prophet’s Physical Miracles
 
 natural order, contrary to it but not contradictory. That would
 deliver us from Hume’s presumption of irreconcilability and
@@ -5403,7 +5259,6 @@ ourselves and every scientific fact we have not personally established. Rational
 of Research Strategy at Yaqeen Institute, to this subsection.
 159
 
-The Final Prophet
 
 traceability, and its corroboration, are acceptable as evidence
 that a fact or event is certainly true or likely true.
@@ -5431,7 +5286,6 @@ make it uncontestable in principle, even if some specific accounts are not indep
 World War I is a simple example of a mutawātir concept; the
 concurrence of abundant testimony about it renders it incon160
 
-Chapter 6: The Prophet’s Physical Miracles
 
 sequential whether any particular report of it having taken
 place is verifiable. Rejecting a mutawātir concept would be
@@ -5464,7 +5318,6 @@ tawātur (abundant concurrence) one century after another?353
 1975), 2:347.
 161
 
-The Final Prophet
 
 Muhammad ‫ ﷺ‬would additionally be the most authoritative
 confirmer of the miracles of the previous prophets and the most
@@ -5499,7 +5352,6 @@ on this are only speculative due to their being reported
 through āḥād chains. However, it should be noted that
 162
 
-Chapter 6: The Prophet’s Physical Miracles
 
 many of the Prophet’s miracles became well-known and
 widespread, were narrated by huge groups of people
@@ -5543,7 +5395,6 @@ The Qur’an 54:1-3, Saheeh International Translation.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:206 #3636.
 163
 
-The Final Prophet
 
 said that Muhammad must have cast a spell on them, but since
 he could not have cast a spell on everyone, they decided to ask
@@ -5580,7 +5431,6 @@ Dār al-Kutub al-Salafīyah, 1983), #264.
 359 Ibn Kathīr, Al-Bidāyah wal-Nihāyah, 4:303.
 164
 
-Chapter 6: The Prophet’s Physical Miracles
 
 can hope to achieve through trickery, making its proof
 value even more evident.360
@@ -5614,7 +5464,6 @@ Ibn Ḥajar, Fatḥ al-Bārī, 7:185.
 Ibid.
 165
 
-The Final Prophet
 
 ii. The Night Journey
 Glory be to the One Who took His servant [Muhammad] by
@@ -5650,7 +5499,6 @@ winged horse, these beliefs would necessarily form part of our rational descript
 of the universe.” (“Science must destroy religion,” samharris.org, January 2nd, 2006.
 166
 
-Chapter 6: The Prophet’s Physical Miracles
 
 and accept that “Muhammad flew to heaven on a winged horse.”
 However, this shows demonstrable ignorance about the Islamic
@@ -5689,7 +5537,6 @@ the Prophet ‫ ﷺ‬riding al-Burāq, without mentioning that he dismounted a
 Jerusalem, which is specified in other hadith. (al-Qārī, Mirqāt al-Mafātīḥ, 9:3758).
 167
 
-The Final Prophet
 
 ulous matters lie entirely within His Capability. Moreover, the
 argument from incredulity would entail the demise of science
@@ -5722,7 +5569,6 @@ to Jerusalem last night.” Abū Bakr asked, “Did he say that?”
 369 al-Kattānī, Naẓm al-Mutanāthir, #258.
 168
 
-Chapter 6: The Prophet’s Physical Miracles
 
 They said, “Yes.” He said, “If he did in fact say that, then he
 has been truthful.” They said, “You are willing to believe that
@@ -5752,7 +5598,6 @@ and moaning.” Ibn ‘Abbās  adds, “He ‫ ﷺ‬went and hugged
 372 The Qur’an 18:9-25, Saheeh International Translation.
 169
 
-The Final Prophet
 
 it until it quieted, then said, ‘Had I not embraced it, it would
 have continued like this until the Day of Resurrection.’” Jābir
@@ -5788,7 +5633,6 @@ Ibn Ḥajar, Fatḥ al-Bārī, 6:603.
 The Qur’an 34:10, Saheeh International Translation.
 170
 
-Chapter 6: The Prophet’s Physical Miracles
 
 this same miracle, Allah endorsed the Prophet Muhammad ‫ﷺ‬.
 Inanimate objects would glorify God in his hands, and even
@@ -5826,7 +5670,6 @@ in the comments.
 al-Targhīb wal-Tarhīb, 2:29 #1209.
 171
 
-The Final Prophet
 
 v. Increasing the Water Supply
 Imam al-Nawawī says, “These hadith on water gushing from
@@ -5865,7 +5708,6 @@ al-Nawawī, Sharḥ Ṣaḥiḥ Muslim, 15:38.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:194 #3579.
 172
 
-Chapter 6: The Prophet’s Physical Miracles
 
 you?” He said, “Even if we had been one hundred thousand,
 it would have been sufficient for us, but we were fifteen hundred.”383 Anas ibn Mālik  personally narrated several other
@@ -5904,7 +5746,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:192 #3572-3574.
 Muslim, Ṣaḥīḥ Muslim, 3:1354 #1729.
 173
 
-The Final Prophet
 
 along with the other Companions, who hear his narration
 and claim or hear about it, and do not denounce him,
@@ -5949,7 +5790,6 @@ bowl, and is equivalent to three liters.
 389 Muslim, Ṣaḥīḥ Muslim, 3:1626 #2056.
 174
 
-Chapter 6: The Prophet’s Physical Miracles
 
 We were digging on the Day of the Trench when a huge
 solid boulder hindered us. They came to the Prophet ‫ﷺ‬
@@ -5995,7 +5835,6 @@ recognize hunger in it. Do you have anything?” She said,
 #2039.
 175
 
-The Final Prophet
 
 them in her veil, then tucked them under my arm and
 wrapped me with the remaining part of the veil. She sent
@@ -6035,7 +5874,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:193 #3578; Muslim, Ṣaḥīḥ 
 al-Qāḍī ’Iyāḍ, Al-Shifā bi-Taʻrīf Ḥuqūq al-Muṣṭafá, 1:325.
 176
 
-Chapter 6: The Prophet’s Physical Miracles
 
 of the Prophet ‫ ﷺ‬raising his palms to the heavens, and those
 who spent the shortest time with him witnessed these events
@@ -6076,7 +5914,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 2:28 #1013.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 4:195 #3582.
 177
 
-The Final Prophet
 
 I had gone weeping in sadness, and said, “Great news,
 O Messenger of Allah! Allah has answered your prayer
@@ -6119,7 +5956,6 @@ Muslim, Ṣaḥīḥ Muslim, 4:1938 #2491.
 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 1:41 #143; Muslim, Ṣaḥīḥ Muslim, 4:1927 #2477.
 178
 
-Chapter 6: The Prophet’s Physical Miracles
 
 dant, and my children and grandchildren [combined]
 certainly surpass a hundred today.397
@@ -6152,7 +5988,6 @@ the comments.
 399 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, #5:11 #3684.
 179
 
-The Final Prophet
 
 and said, “I testify that none is worthy of worship except Allah
 and that I am the Messenger of Allah. No slave meets Allah
@@ -6186,7 +6021,6 @@ for groupthink, whether those positions are intellectually tenable becomes irrel
 al-Masīḥ (Saudi Arabia: Dār al-‘Āṣimah, 1999), 6:297.
 180
 
-Chapter 6: The Prophet’s Physical Miracles
 
 throughout the Qur’an, liberating us from the indoctrination
 that resists the patent proofs of prophethood:
@@ -6262,7 +6096,6 @@ Brill, 2002), 37.
 1996), 24.
 183
 
-The Final Prophet
 
 During the Prophet’s ‫ ﷺ‬time, Arabs were people who valued
 language almost as much as life itself.409 Before Islam, they
@@ -6301,7 +6134,6 @@ Dār al-Jīl, 1981), 1:65.
 Qur’an, edited by Andrew Rippin (Hoboken: Wiley-Blackwell, 2009), 108.
 184
 
-Chapter 7: The Inimitable Qur’an
 
 expression. Virtually overnight, these same people experienced
 a Qur’an from Muhammad ‫ ﷺ‬that was pure in its Arabic, unprecedented in its eloquence, but mysteriously independent of
@@ -6334,7 +6166,6 @@ being a magician,415 unwittingly conceding that there was indeed something super
 415 The Qur’an 74:24.
 185
 
-The Final Prophet
 
 i. Muhammad or Shakespeare?
 Some critics argue that while the Qur’an is a literary masterpiece, this does not mean that it is supernatural. They claim
@@ -6368,7 +6199,6 @@ al-Kutub al-ʿArabī, 1973), 308.
 University Press, 2015), 186.
 186
 
-Chapter 7: The Inimitable Qur’an
 
 experiments have since been conducted to establish this
 objectively. Stylometry is the statistical analysis of variations
@@ -6406,7 +6236,6 @@ linguistic masterpiece heralded as the measuring stick of the language, based on
 a fallacious assessment.
 187
 
-The Final Prophet
 
 seventh-greatest English-speaking playwright, behind Webster,
 Dekker, Peele, Marlowe, Jonson, and Greene.421 In contrast, the
@@ -6441,7 +6270,6 @@ to resonate with the young and the old, the premodern and
 423 The Qur’an 2:23-24, Saheeh International Translation.
 188
 
-Chapter 7: The Inimitable Qur’an
 
 postmodern mind, the eastern and western personality, and
 the spiritually versus intellectually inclined. When analyzing
@@ -6476,7 +6304,6 @@ begin and end. The Qur’an, however, was assembled like a jigsaw puzzle over tw
 The Qur’an 2:189, author’s translation.
 189
 
-The Final Prophet
 
 today does not reflect the chronology of its revelation, but
 rather the later designated location for each passage within
@@ -6513,7 +6340,6 @@ Sūrat al-Baqarah: A Structural Analysis (Hartford, CT: Hartford Seminary, 2010)
 al-Maʿārif, 1997), 1:20.
 190
 
-Chapter 7: The Inimitable Qur’an
 
 est poets like Labīd ibn Rabīʿah were now converting to Islam
 and retiring from poetry, but due to them echoing in private
@@ -6542,7 +6368,6 @@ Dār al-Kutub alʿIlmīyah, 1990), 2:550 #3872; authenticated by al-Ḥākim acc
 of Ṣaḥīḥ al-Bukhāri.
 191
 
-The Final Prophet
 
 And We took the Israelites across the sea, and Pharaoh and
 his soldiers pursued them in tyranny and enmity until, when
@@ -6577,7 +6402,6 @@ his great work, Mummies of the Pharaoh: Modern Medical Investigations. Bucaille 
 The Qur’an 10:90-92, author’s translation.
 192
 
-Chapter 7: The Inimitable Qur’an
 
 Institute for Forensic Medicine and received multiple national
 awards in France for this groundbreaking work.
@@ -6607,7 +6431,6 @@ Longmans, Green, 1952), 222.
 for the era of Abraham.
 193
 
-The Final Prophet
 
 dynasty of ancient Egypt.432 Historians have further discovered
 that during the era of Joseph, the 15th to 17th dynasties of
@@ -6646,7 +6469,6 @@ al-Nubuwwah, 505.
 435 The Qur’an 74:30-31, author’s translation.
 194
 
-Chapter 7: The Inimitable Qur’an
 
 Some Jews in Madinah conceded that Muhammad ‫ ﷺ‬was in
 fact a true prophet, then resisted his message under the indefensible claim that it only applied to the Arabs. This was due to
@@ -6679,7 +6501,6 @@ Book” in the Language of Islam (New Jersey: Princeton University Press, 2013),
 and 114-118.
 195
 
-The Final Prophet
 
 iv. Was Muhammad Spoon-Fed Biblical History?
 Some detractors of Islam argue that none of this history is
@@ -6713,7 +6534,6 @@ many historical inaccuracies found in the Bible. Therefore, for
 The Qur’an 10:16, Saheeh International Translation.
 196
 
-Chapter 7: The Inimitable Qur’an
 
 the unique Qur’anic narrative to have been plagiarized from
 an earlier scripture, this would necessitate that the Prophet ‫ﷺ‬
@@ -6745,7 +6565,6 @@ The Qur’an 16:103, Saheeh International Translation.
 The Qur’an 15:9, Saheeh International Translation.
 197
 
-The Final Prophet
 
 that, all 1.8 billion Muslims today somehow still recite the
 Qur’an exactly as it was taught to the Prophet’s ‫ ﷺ‬Companions
@@ -6779,7 +6598,6 @@ Qur’an,” Yaqeen Institute for Islamic Research, August 23, 2019.
 Mosque, 1957), 41.
 198
 
-Chapter 7: The Inimitable Qur’an
 
 lapses in our writing today, our emails and text messages still
 fall prey to spelling and grammatical errors. Then consider the
@@ -6814,7 +6632,6 @@ the written against the oral to ensure that the documentation
 See: Abu Zakariya, The Eternal Challenge (London: One Reason, 2015), 35-40.
 199
 
-The Final Prophet
 
 and dissemination processes were scrupulous. Hence, its preservation in the hearts of those who memorized it that is what
 has immortalized it, as Allah says, “Rather, the Qur’an is distinct
@@ -6850,7 +6667,6 @@ poetry nor prose, that upon reaching one’s ears provides
 Islam: 2nd edition, edited by P. Bearman, et al (Leiden: Brill, 2001).
 200
 
-Chapter 7: The Inimitable Qur’an
 
 such immediate pleasure and sweetness, and at other
 times such awe and intimidation, like the Qur’an does.448
@@ -6886,7 +6702,6 @@ Publishing, 2014), 46; slightly modified to refine the translation.
 451 al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 5:86 #4023.
 201
 
-The Final Prophet
 
 [Him].”452 Upon uttering these verses, Ibn ʿAbbās says, both the
 believers present and several eavesdropping pagans fell into
@@ -6921,7 +6736,6 @@ translations.454
 of Allah (Paris: Paris Book Club, 1918), 3:37.
 202
 
-Chapter 7: The Inimitable Qur’an
 
 The truth of Dinet’s words can be demonstrated even today,
 given that much of the western world is oblivious to the Qur’an
@@ -6956,7 +6770,6 @@ Business Insider, December 27th, 2012.
 457 al-Bāqillānī, Iʿjāz al-Qurʾān, 1:248.
 203
 
-The Final Prophet
 
 builds on it—or purges it when it becomes mundane. But with
 the Qur’an, none of this took place; it never ushered in a new
@@ -6989,7 +6802,6 @@ beautifully puts it, we all hear words that are clearly the fruit
 Aṣḥāb al-Jaḥīm (Beirut: Dār ʿĀlam al-Kutub, 1999), 2:270.
 204
 
-Chapter 7: The Inimitable Qur’an
 
 of an impressively critical mind, and others that are clearly the
 fruit of someone with peak emotional intelligence, but to find
@@ -7024,7 +6836,6 @@ al-ʿAẓīm (Damascus: Dār al-Qalam, 2005), 1:148–51.
 Medieval Islam (Boston: Brill, 2007).
 205
 
-The Final Prophet
 
 is in the heavens and whatever is in the earth. Unquestionably, to Allah do all [matters] evolve.463
 
@@ -7056,7 +6867,6 @@ own wives and daughters are not named a single time therein.
 The Qur’an 42:52-53, Saheeh International Translation.
 206
 
-Chapter 7: The Inimitable Qur’an
 
 Had he wanted to elevate the status of his family for political
 clout, for instance, one might think he would have included a
@@ -7094,7 +6904,6 @@ The Qur’an 46:9, Saheeh International Translation.
 The Qur’an 80:1-2, author’s translation.
 207
 
-The Final Prophet
 
 have chosen self-aggrandizement, but the Messenger of God
 had no choice in the matter.
@@ -7129,7 +6938,6 @@ al-Kutub al-Miṣrīyah, 1964), 14:188.
 469 The Qur’an 33:37, Saheeh International Translation.
 208
 
-Chapter 7: The Inimitable Qur’an
 
 ‘Āishah  said, “If the Messenger of Allah ‫ ﷺ‬were to conceal
 anything from the Qur’an, he would have concealed this verse.”470
@@ -7167,7 +6975,6 @@ al-Bukhārī, Ṣaḥīḥ al-Bukhārī, 9:124 #7420.
 The Qur’an 33:40, Saheeh International Translation.
 209
 
-The Final Prophet
 
 says, “Is it not sufficient for them that We revealed to you the Book
 which is recited to them? Indeed in that is a mercy and reminder
@@ -7202,7 +7009,6 @@ The Qur’an 29:51, Saheeh International Translation.
 The Qur’an 17:88, Saheeh International Translation.
 210
 
-Chapter 7: The Inimitable Qur’an
 
 you wishes to take the right course. And you do not wish except that
 Allah wishes—Lord of the worlds.”474
@@ -7212,7 +7018,6 @@ Allah wishes—Lord of the worlds.”474
 The Qur’an 81:26-28, Saheeh International Translation.
 211
 
-The Final Prophet
 
 A Parting Word on the
 Journey of Faith
@@ -7273,7 +7078,6 @@ can be stated in any language, with or without witnesses. We invite every reader
 utter it now, whether that is to begin or renew their acceptance of God and Islam.
 213
 
-The Final Prophet
 
 to return home and declared that any Meccan who entered
 Abū Sufyān’s estate would be safe.
@@ -7332,7 +7136,6 @@ comments.
 478 The Qur’an 6:125, author’s translation.
 215
 
-The Final Prophet
 
 Bibliography
 English Sources
@@ -7391,7 +7194,6 @@ London: I.B. Tauris, 2012.
 
 217
 
-The Final Prophet
 
 Descartes, René, Elizabeth S. Haldane, and G R. T. Ross.
 Philosophical Works: Rendered into English. Cambridge:
@@ -7452,7 +7254,6 @@ House, 2019.
 
 219
 
-The Final Prophet
 
 Hamer, Dean H. The God Gene: How Faith Is Hardwired into Our
 Genes. New York: Doubleday, 2004.
@@ -7514,7 +7315,6 @@ Books, 2016.
 
 221
 
-The Final Prophet
 
 Ozsoy, Ismail. “An Islamic Suggestion of Solution to the Financial
 Crises.” Procedia Economics and Finance 38 (2016).
@@ -7576,7 +7376,6 @@ Press, 2007.
 
 223
 
-The Final Prophet
 
 Tomooka, Lance T., Claire Murphy, and Terence M. Davidson.
 “Clinical Study and Literature Review of Nasal Irrigation.”
@@ -7633,7 +7432,6 @@ al-Ḥākim, Muḥammad ibn ʿAbd Allāh. Al-Mustadrak ʿalá alṢaḥīḥayn.
 
 225
 
-The Final Prophet
 
 Ibn Abī ‘Āṣim, Aḥmad ibn ʻAmr al-Ḍaḥḥāk. Al-Sunnah li-Ibn Abī
 ’Āṣim. Edited by Muḥammad Nāṣir al-Dīn Albānī. Beirut:
@@ -7690,7 +7488,6 @@ bi-Sharḥ Jāmiʻ al-Tirmidhī. Beirut: Dār al-Kutub al-ʻIlmīyah,
 1990.
 227
 
-The Final Prophet
 
 al-Mubārakfūrī, Ṣafī al-Raḥmān. Al-Raḥīq al-Makhtūm. Cairo:
 Dār al-Wafāʼ, 1987.

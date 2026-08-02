@@ -1,7 +1,5 @@
 # Islamic Art and Geometric Design_Activities for Learning
 
-> 来源: Islamic Art and Geometric Design_Activities for Learning.pdf
-
 Islamic Art and
 Geometric Design
 ACTIVITIES FOR LEARNING

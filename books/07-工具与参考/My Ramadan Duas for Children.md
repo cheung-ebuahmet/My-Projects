@@ -1,8 +1,5 @@
 # My Ramadan Duas for Children
 
-> 来源: My Ramadan Duas for Children.pdf
-> 提取于: iSlam/伊斯兰教育·儿童/My Ramadan Duas for Children.pdf
-
 My Ramadan Duas
 Dua for the family who invites you to break your fast with them
 Prayers upon the Prophet ‫ﷺ‬
@@ -114,26 +111,20 @@ When prostrating due to recitation of the Quran
 َ ‫ﺳَ ﺠَـﺪَ وَ ﺟْ ﻬـﻲ ﻟﻠﱠـﺬي‬
 َ َ‫ﺷ ﱠﻖ ﺳَ ﻤْ ـﻌَ ـ ُﻪ وَ ﺑ َ َﺼـﺮَهُ ﺑِﺤَـﻮْ ﻟِـﻪِ وَ ُﻗـﻮﱠ ﺗِﻪِ ﻓﺘَﺒـﺎر‬
 ُ‫ك ﷲُ أَﺣْ ﺴَ ـﻦ‬
-_________________________________________________________________________________
 ‫اﻟﺨـﺎﻟِﻘﻴـﻦ‬
 [Sajada wajhiya lilladhī khalaqahu, wa shaqqa sam`ahu wa baṣarahu
-_________________________________________________________________________________
 biḥawlihi wa quwwatihi. Fatabārakallāhu 'aḥsanul-khāliqīn.]
 "I have prostrated my face to the One Who created it, and gave it
 hearing and sight by His might and His power. Glory is to Allah, the Best _________________________________________________________________________________
 of creators." (At-Tirmidhi 2/474, Ahmad 6/30, and Al-Hakim)
-_________________________________________________________________________________
 Dua for After Fajr Salah
 ً ‫اﻟﻠﱠﻬُ ﻢﱠ ِإﻧﱢﻲ أَﺳْ ﺄَﻟُﻚَ ﻋِ ْﻠﻤﺎ ً ﻧﺎﻓِﻌﺎ ً وَ رِزْ ﻗﺎ ً ﻃَ ﻴﱢﺒﺎ ً وَ ﻋَ ﻤَ ﻼ ً ﻣُ ﺘَ ﻘَ ﺒﱠﻼ‬
-_________________________________________________________________________________
 [Allāhumma innī as'aluka `ilman nāfi`an, wa rizqan ṭayyiban, wa
 `amalam-mutaqabbala.]
-_________________________________________________________________________________
 "O Allah, I ask You for knowledge which is beneficial, and sustenance
 which is good, and deeds which are acceptable." (Hisn al-Muslim 73) _________________________________________________________________________________
 
 Azkar for Morning and Evening - 1
-_________________________________________________________________________________
 َ
 ُ‫ﻲ ﺑ َﻌْ ﺪَ ه‬
 ‫ َو ﱠ‬،ُ‫ﺣﺪَ ه‬
@@ -141,31 +132,22 @@ ________________________________________________________________________________
 ‫اﻟﺼﻼَةُ َو ﱠ‬
 ‫اﻟﺴﻼَمُ ﻋَ ﲆ َﻣﻦْ ﻻ َ ﻧ َ ِﺒ ﱠ‬
 [Alḥamdulillahi waḥdah waṣ-ṣalatu was-salam `alā man lā nabiyya
-_________________________________________________________________________________
 ba`dah.]
 "All praise is due to Allah alone, and peace and blessings be upon him
-_________________________________________________________________________________
 after whom there is no other Prophet." (Hisn al-Muslim 75a)
 Azkar for Morning and Evening - 2
-_________________________________________________________________________________
 ٍ‫اﻟﻠﱠﻬُ ﻢﱠ َﺻﻞﱢ وَ ﺳَ ﻠﱢﻢْ ﻋَ َﲆ ﻧَﺒِﻴﱢﻨَﺎ ﻣُ ﺤَﻤﱠ ﺪ‬
 [Allāhumma ṣalli wa sallim `alā nabiyyinā Muḥammad.]
-_________________________________________________________________________________
 "O Allah, we ask for your peace and blessings upon our Prophet
 Muhammad." (Recite ten times in Arabic.)
-_________________________________________________________________________________
 The Prophet (‫ )ﷺ‬said: "Who recites blessings upon me ten times in the
 morning and ten times in the evening will obtain my intercession on the _________________________________________________________________________________
 Day of Resurrection." (Hisn al-Muslim 98)
-_________________________________________________________________________________
 Dua for Parents
 ‫رﱠبﱢ ارْ ﺣَﻤْ ﻬُ ﻤَ ﺎ ﻛَ ﻤَ ﺎ رَﺑﱠﻴَ ﺎﻧ ِﻲ َﺻﻐِ ﻴﺮًا‬
-_________________________________________________________________________________
 [Rabbi irhamhuma kama rabbayanee sagheera.]
 "My Lord, have mercy upon them as they brought me up [when I was]
-_________________________________________________________________________________
 small." (Quran, 17:24)
-_________________________________________________________________________________
 ©studioarabiya.com
 
 ©studioarabiya.com

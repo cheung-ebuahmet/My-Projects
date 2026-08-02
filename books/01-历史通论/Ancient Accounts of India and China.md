@@ -1,7 +1,5 @@
 # Ancient Accounts of India and China
 
-> 来源: Ancient Accounts of India and China.pdf
-
 00085802
 
 Digitized with financial assistance from the
@@ -7769,7 +7767,6 @@ laft the Marriage is celebrated with the
 D
 Sound
 
-ANCIENT ACCOUNTS
 Sound o f many forts d f Initmmenfs and
 Drumsi The Prefents they fend confift o f
 Money', and in this every one does whac
@@ -8495,7 +8492,6 @@ w ith a Knot between every hundred. AU '
 
 th e ir
 
-ANCIENT ACCOUNTS
 their Payments in général are made with
 this Money, whether they buy or fell '
 Lands, Furniture, Merchandize, or /any
@@ -8704,7 +8700,6 @@ this the Emperor replied, that the Arabs
 had conquered Ihe moil illuftrious King-t
 dom o f the whole Ea.th, the bell cultivated.
 
-O f I N D I A and C H I N A .
 the moil opulent, the moil pregp fine Wits, and o f the moil exiFame. Then faid he, iVhat Ac-
 
 the People in your Parts 7nake o f
@@ -9064,7 +9059,6 @@ Villages
 
 6t
 
-ANCIENT ACCOUNTS
 Villages which almoit touch each othef’j
 and he adds that no Part o f it is unin’habited, nor any o f its Land uncultivated. Thofe who travel in this Country
 may flop at every Step, and find Shelter
@@ -9097,7 +9091,6 @@ comes to view «them at the fame Time
 that he repairs to an. Apartment o f State'
 which
 
-O f I N D I A and C H I N A .
 
 ^5
 
@@ -9291,7 +9284,6 @@ W^hen
 
 ii
 
-ANCIENT ACCOUNTS
 W hen he arrived in his own Kingdom^
 he fat down upon his Throne, and, being in the Place which looked upon the
 Pond before-mentioned, he caufed the I - fo a d
@@ -9769,7 +9761,6 @@ out a Flap of his Liver, and with the Cangiar cut off a Piece of it, which he ga
 one of his Brothers, talking all the Time,
 and
 
-O f I N D I A and C H I N A .
 
 Si
 
@@ -9848,7 +9839,6 @@ V ell, out of the City, in the midit ofaThrong
 of
 Sä
 
-O f I N D I A and C H I N A .
 b f People, while not a Soul o f them dared
 attempt hisRefeue: For if any Attempt
 t f the Kind w^as made, the Indian was fure
@@ -9972,7 +9962,6 @@ juit arrived from Sea,ihall fend for thcDaughcer o f a King of the Country, and 
 G $
 her
 
-ANCIENT ACCOUNTS
 her Father’s Confent and Privity. Wheieforg
 the Mohammedan Doflors of Siraf ftri£U>'>
 warn young People not to go that way. ■ (
@@ -10014,7 +10003,6 @@ Indian
 Devotees. have Poets alfo who compofe Verfes, ftulied with Flattery^ in Praiie o f their Kings :
 Aftrologerg
 
-O f I N D I A and C H I N A .
 
 S7
 
@@ -10051,7 +10039,6 @@ to want. They there alfo fettle public VVomen, fuch as are i i the ladies, whoex
 
 themfeivca
 
-ANCIENT ACCOUNTS
 I themfeh’es to Travellers; all which the
 hnitms number amon^ their meritorious
 Deeds.
@@ -10127,7 +10114,6 @@ j
 
 Jio
 
-ANCIENT ACCOUNTS
 other forts o f Trees j but their Sugar is
 very black. Thefe People have a Number
 o f Kings, who are eternally at war with
@@ -10208,7 +10194,6 @@ jV prld; wnenthe Gre(k4 0 ^ this fame Ifle,
 
 being
 
-ANCIENT ACCOUNTS
 being informed concerning his Advent, embraced the Chriftian Faith, as the other
 Greeks had done before them j and irt t!ie
 Profoilion o f this Faith have they perfev =ired
@@ -10466,7 +10451,6 @@ iidcrable Merchants, t -re tUv v a hun h <-d
 .I
 uj
 
-O f I N D I A and C H I N A .
 
 99
 
@@ -14310,7 +14294,6 @@ Martin. Hift. in p. i6.
 
 ^ Up
 
-C H I N E S E Learning.
 up in explaining thefe Figures. They
 “ value it at a high Rate imagining it re. “ piece o f many wonderlul Secrets : But
 “ to me it leems, continues he., a fort o f
@@ -14535,7 +14518,6 @@ body m ^ underftand; Firjf, The MandaMar.
 rin Prelidents o f the Tribunal o f Mathe-
 
 . \
-C H I N E S E Learning.
 thematics, whofe Builueis it was to fix their*
 Calendar, fucceeded foill therein, that notIâPS
 ^Intereft and Intri gues,
@@ -15783,7 +15765,6 @@ Millake. He might have inJformed himfelf from
 That ti?e ancient Chinefe Charafters f’iflered widely from the
 Modern, and that they were not very unlike
 
-C H I N E S E Learning.
 'like the Egyptian Characters upoa the Obelisks at Rome. He adds, That he once
 faw a Book written in fix feveral Sorts o f
 thefe old Symbols, which the Chinefe valued and admired for its Antiquity : But
@@ -15950,7 +15931,6 @@ quentis, minime affequatuft
 r<ptt(
 inr, fe d etiam feribere,
 
-C H I N E S E Learning.
 Thouiand, and perhap, a ftill greater number if we took in the Variations o f
 the different Dialefts, and if we thereto
 added the vulgar Tongue, as the Chinefe
@@ -16016,7 +15996,6 @@ and Saxons, wnc. had no Char
 theip own, adSjpted
 -Greek at
 
-C H I N E S E Learning.
 
 « 5»
 

@@ -1,7 +1,5 @@
 # The Great Arab Conquests
 
-> 来源: The Great Arab Conquests.pdf
-
 THE
 GREAT ARAB
 CONCWESTS
@@ -750,7 +748,6 @@ of the Prophet Muhammed in 632. In order to clarify the issues it is
 
 6
 
-THE GREAT ARAB CONQ!)ESTS
 
 important to attempt to define some terms. 'Conquest' may seem at
 first a fairly uncontentious term, implying the subjection of one party
@@ -831,7 +828,6 @@ as such, though they used the Greek term Romaioi to do so. Their
 
 8
 
-THE GREAT ARAB CONQ1JESTS
 
 Muslim opponents also knew them as Rum, or Romans, and this
 term was often extended to include the Latin Christian inhabitants
@@ -1040,7 +1036,6 @@ conquests, the Umayyad caliph Abd aI-Malik (685-705) decreed that
 Arabic and Arabic alone was to be used in the administration. The
 decree was surprisingly effective. From this time, anyone wanting a
 
-THE GREAT ARAB CONQ!)ESTS
 
 position in the expanding bureaucracy of the Islamic state, whether
 they were Arab or non-Arab by descent and upbringing, needed to be
@@ -1080,7 +1075,6 @@ account of events. They are actually multi-layered compositions that
 have gone through different stages of editing and elaboration for
 different purposes at different times. At the risk of oversimplifying a
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 15
 
@@ -1122,7 +1116,6 @@ would fall into oblivion. The practical considerations that had led to
 the preservation of these traditions in the first place had, by now,
 become largely irrelevant, but of course the collections assembled by
 
-THE GREAT ARAB CONQ1JESTS
 
 these editors necessarily reflected the purposes of the earlier narrators.
 The ninth and early tenth centuries saw a vast explosion of writing
@@ -1161,7 +1154,6 @@ each year were recorded under the number of the year. He was not
 the first Arab writer to use this method, which may in turn have been
 inherited from the Greek tradition of chronicle writing, but no one
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 17
 
@@ -1206,7 +1198,6 @@ Modem readers will note immediately that there are some obvious
 
 18
 
-THE GREAT ARAB CONQ!JESTS
 
 problems with this procedure because it provides few ways of ensuring
 the reliability of the material, problems of which the people at the
@@ -1245,7 +1236,6 @@ they are handed on from one generation to the next. It is clear that
 some of this detail is elaborated in response to questions like 'Who
 were the main commanders at the battle of Nihavand?' No narrator
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 19
 
@@ -1289,7 +1279,6 @@ these things, however, the truth of the matter was often quite unclear.
 
 20
 
-THE GREAT ARAB CONQ!JESTS
 
 Conquest was often a messy business; some people resisted, others
 capitulated. In recording it almost everyone had a vested interest in
@@ -1328,7 +1317,6 @@ when they still had a real, practical purpose.
 The writers and compilers of these early traditions also seem to
 have been obsessed with the question of the distribution of booty after
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 21
 
@@ -1371,7 +1359,6 @@ and Sasanian troops were chained together to prevent them fleeing
 
 22
 
-THE GREAT ARAB CONQ!)ESTS
 
 from the battlefield; this is not real historical information but a
 topos to show how the Muslims were inspired by faith while their
@@ -1410,7 +1397,6 @@ riddled with contradictions and inconsistency that we could not be
 certain of anything; the very existence of Muhammad himself was
 questioned. 3
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 23
 
@@ -1449,7 +1435,6 @@ Spain and Central Asia were still under way in his lifetime. Sayf was
 as close in time to the great Muslim conquests than Gregory of Tours
 was to the early Merovingians or Bede to the conversion of the Anglo-
 
-THE GREAT ARAB CONQlJESTS
 
 Saxons, both sources on which historians have always relied for the
 reconstruction of these events.
@@ -1489,7 +1474,6 @@ for high-ranking Byzantines). His friend had suggested that they went
 out 'to take a look at these Arabs who are fighting us'. Accordingly
 the patrician's son got dressed up in a brocade robe, a gold headband
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 25
 
@@ -1530,7 +1514,6 @@ for the event. Furthermore there is no real evidence that it is true, in
 the sense of describing an event that actually occurred, and even if it
 was, it would not be very interesting: the protagonists are anonymous
 
-THE GREAT ARAB CONQ!)ESTS
 
 and the death of one man had no significant effect on more general
 events. On further consideration, however, this anecdote is quite
@@ -1570,7 +1553,6 @@ Yemenis in general, in the conquest of the country they now lived in.
 The anecdote is also making a point about the ways in which the
 Muslims thought of themselves as different from, and more virtuous
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 27
 
@@ -1607,7 +1589,6 @@ at least two centuries after the event: the best endeavours of generations of Sp
 Alongside the newly dominant Arabic, there were other, older
 cultural traditions which produced their own literature. Of course,
 
-THE GREAT ARAB CONQlJESTS
 
 some people continued to write in the old high-culture language of
 Greek. The most famous of these was John of Damascus, the most
@@ -1647,7 +1628,6 @@ both of which directly impinged on the life of the monastery, as they
 are in wars and the comings and goings of kings. Above all they are
 concerned with the politics of the Church, the great deeds of famous
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 29
 
@@ -1690,7 +1670,6 @@ the year of the final entry, as 'the Chronicle of 754'. Finally the eighth
 
 30
 
-THE GREAT ARAB CONQ!JESTS
 
 century saw the emergence of an Arabic-language Christian chroniclewriting tradition which drew on both Christian and Arabic traditions.
 These chronicles are sometimes nearly contemporary with the events
@@ -1729,7 +1708,6 @@ Muslims.
 Another problem is the patchy nature of this evidence. There has
 been a great deal of excavation and survey of sites in Syria, Jordan
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 31
 
@@ -1772,7 +1750,6 @@ coming of the Arabs destroyed this idyll and reduced much of the area
 
 32
 
-THE GREAT ARAB CONQlJESTS
 
 to desert. Such views have been espoused by Zionists and others who
 have used the fate of Palestine to suggest or even argue that the Arabs
@@ -1812,7 +1789,6 @@ of the early Islamic state. The Umayyad-period mosques at minor
 settlements like Bacalbak and J erash show how Islam had spread into
 the smaller towns of Syria. The mosques show that Islam was in the
 
-FOREWORD: REMEMBRANCE OF THINGS PAST
 
 33
 
@@ -1922,7 +1898,6 @@ tombstone. It was written in the old Nabataean script of Petra, but
 the language is recognizably Arabic. It commemorated one Imru'lQays, son of Amr, king of all the Arabs, and extolled his conquests as
 far away as the lands of Himyar in Yemen. It also tells us that he died
 
-THE GREAT ARAB CONQ!JESTS
 
 'in prosperity' in AD 328. The tombstone is extremely interesting: a
 lone document of the period, it shows the development of the idea of
@@ -2001,7 +1976,6 @@ Tribes, rather than states or empires, were the dominant political
 forces in the desert, and sometimes reading accounts of the early years
 I
 
-THE GREAT ARAB CONQlJESTS
 
 of Islam and the great conquests, it is easy to get the impression that
 tribal loyalties and tribal rivalries were as important in motivating the
@@ -2082,7 +2056,6 @@ have been assembled.
 With a very few exceptions, all adult male Bedouin could be
 described as soldiers. From an early age they were taught to ride,
 
-THE GREAT ARAB CONQ!JESTS
 
 wield a sword, use a bow, travel hard and sleep rough, finding their
 food where they could. In conditions of tribal competition there were
@@ -2156,7 +2129,6 @@ And that I render restive and distrest
 Mail-clad warriors in the black dust of battle.
 And that I dash upon them when they flinch before me,
 
-THE GREAT ARAB CONQ1JESTS
 
 In an attack more fierce that the spring of a lion
 With my sword I smite on the day of battle
@@ -2230,7 +2202,6 @@ recognized as a turning point in the history of the area.
 
 44
 
-THE GREAT ARAB CONQ!JESTS
 
 There were scattered towns in other parts of the Arabian peninsula
 and networks of markets and traders. In the hilly areas of the Hijaz in
@@ -2310,7 +2281,6 @@ going to a burning, scorching hell. Muhammad began to attract
 followers, but he also made enemies. Men did not like to believe that
 their revered ancestors would burn in hell and, more practically,
 
-THE GREAT ARAB CONQ1JESTS
 
 they saw this new preaching as an attack on the shrine at Mecca
 and the prosperity it brought. Muhammad found himself increasingly
@@ -2470,7 +2440,6 @@ in the Koran comes in verse 9:5: 'When the sacred months are past
 
 50
 
-THE GREAT ARAB CONQ!JESTS
 
 [in which a truce had been in force between the Muslims and their
 enemies], kill the idolators wherever you find them, and seize them,
@@ -2552,7 +2521,6 @@ The Arabic sources consistently portray Vmar, during whose reign
 
 52
 
-THE GREAT ARAB CONQ1JESTS
 
 the mast important of the early conquests took place, as the real
 commander. We have numerous accounts of how he wrote to commanders in the field telling them what to do, how he received booty
@@ -2716,7 +2684,6 @@ these developments. They demanded that those who had once pledged
 allegiance to Muhammad now owed it to his successor and the Medina
 regime. No one could be a Muslim unless they were prepared to pay
 
-THE GREAT ARAB CONQ!JESTS
 
 taxes to Medina. In making this decision, they set in motion the events
 that were to result in the great Arab conquests: if they had decided to
@@ -2886,7 +2853,6 @@ period and no military manuals from the time of the early Muslim
 
 60
 
-THE GREAT ARAB CONQ!JESTS
 
 conquests, but sometimes the sources give pieces of advice which
 provide some idea of tactics. In 658 an army of inexperienced Iraqis
@@ -2969,7 +2935,6 @@ brought down the standard on the Buddhist shrine at Daybul in Sind.
 
 62
 
-THE GREAT ARAB CONQ!)ESTS
 
 In general, however, siege warfare seems to have been fairly basic;
 only in the long and hard campaigns in Transoxania in the early eighth
@@ -3241,7 +3206,6 @@ taken by the Persians, to Jerusalem.
 Although the Persians had been decisively defeated, the conquest
 of Syria and Palestine had a very damaging effect on Byzantine power
 
-THE GREAT ARAB CONQlJESTS
 
 in the Levant. Apart from the bloodshed caused by the warfare, it
 seems that many of the Greek-speaking elite emigrated to the security
@@ -3324,7 +3288,6 @@ later. There can be no doubt that when the early Muslim high
 command embarked on the conquest of Syria, they were pursuing a
 policy already begun by their Prophet.
 
-THE GREAT ARAB CONQlJESTS
 
 Immediately after Muhammad's death, the caliph Abu Bakr sent
 another expedition to Syria, an expedition that marked the beginning
@@ -3486,7 +3449,6 @@ Abu Vbayda. It was Khalid who united the different Muslim armies
 on his arrival, it was Khalid who began the conquest of Damascus by
 opening the East Gate, and it was Khalid who devised the tactics that
 
-THE GREAT ARAB CONQ!JESTS
 
 won the battle of Yarmuk. He then went on to take a leading role in
 the conquest of Homs and Chalkis (Ar. Qinnasrln). His reputation as
@@ -3565,7 +3527,6 @@ It is not clear whether the Byzantines had re-established an imperial
 presence in the city after the departure of the Sasanians. The city
 seems to have put up little resistance, and towards the end of May 634
 
-THE GREAT ARAB CONQ1JESTS
 
 it made peace with the Muslims, the citizens agreeing to pay an annual
 tax. It was the first major Syrian city to be taken by the invaders.
@@ -3648,7 +3609,6 @@ of his men approached the gate using inflated animal skins to cross
 
 80
 
-THE GREAT ARAB CONQ!JESTS
 
 the moat. They threw their ropes around the battlements and hauled
 themselves up, bringing the ropes up after them so that they would
@@ -3891,7 +3851,6 @@ aided when the walls were badly damaged by an earthquake, a sure
 
 86
 
-THE GREAT ARAB CONQ1JESTS
 
 sign of God's favour to them. In the end the two sides made peace.
 As usual, the inhabitants were obliged to pay taxes to the Muslims,
@@ -3974,7 +3933,6 @@ troops to pillage and devastate the villages and towns, as if the land
 
 88
 
-THE GREAT ARAB CONCWESTS
 
 already belonged to the enemy. The Byzantines stole and pillaged all
 they found, and devastated the country more than the Arabs'. 43
@@ -4055,7 +4013,6 @@ the reign of the caliph Uthman in 644. The Muslims built a small
 fortress outside the walls to keep watch on the inhabitants and finally
 they woke up one day to find that the defenders had all been evacuated
 
-THE GREAT ARAB CONQlJESTS
 
 overnight in Byzantine ships.48 Its fall meant the final end of Byzantine
 control of any part of the eastern seaboard of the Mediterranean.
@@ -4130,7 +4087,6 @@ all the rituals which belong to their religion. Their churches will not
 be inhabited by Muslims and will not be destroyed. Neither they, nor
 the land on which they stand, nor their cross, nor their property will
 
-THE GREAT ARAB CONQlJESTS
 
 be damaged. They will not be forcibly converted. No Jew will live
 with them in Jerusalem.
@@ -4215,7 +4171,6 @@ The completion of the conquest of Syria opened the way for
 
 94
 
-THE GREAT ARAB CONQlJESTS
 
 Muslim armies to cross the Euphrates and begin the conquest of the
 Jazira. The Arabic wordjaztra means 'island' but since the seventh
@@ -4291,7 +4246,6 @@ old cities.
 In part this was possible because sections of the Byzantine elite had
 fled to Constantinople or further west, leaving space in the towns.
 
-THE GREAT ARAB CONQ!JESTS
 
 After the fall of Damascus, many people left the city to join Heraclius 58
 and prominent Muslims were able to take up residence: Arnr b. aI-As
@@ -4438,7 +4392,6 @@ numbers of worshippers. The impression is of an elite-established
 
 100
 
-THE GREAT ARAB CONQ!)ESTS
 
 religion, secure in its wealth and hierarchical structure but with little
 popular appeal. There were no Zoroastrian hermits to compare with
@@ -4478,7 +4431,6 @@ The aristocracy was Persian speaking but most of the population
 talked Aramaic. These Aramaeans 6 were the farmers and peasants who
 made the land so productive. Some Aramaeans might aspire to gentry
 
-THE CONQ!JEST OF IRAQ
 
 101
 
@@ -4522,7 +4474,6 @@ his fleet to the Black Sea and began the invasion of Armenia and
 
 102
 
-THE GREAT ARAB CONQ!JESTS
 
 Azerbaijan. The Persians were now outflanked and were forced to
 withdraw their army from Anatolia to face the emperor, who was now
@@ -4642,7 +4593,6 @@ paintings, only small fragments of which survive.
 Little fighting was necessary to persuade the inhabitants to make
 terms; the Arab notables fortified themselves in their palaces and
 
-THE CONQ!JEST OF IRAQ
 
 peered over the battlements while the Muslim troops roamed the open
 spaces between them. I6 Then negotiations were opened. The Arab
@@ -4723,7 +4673,6 @@ end of their campaigns against Iraq, which would have remained a
 largely Christian, Aramaic-speaking land under Persian rule. That this
 2I
 
-THE CONQ!JEST OF IRAQ
 
 10
 
@@ -4766,7 +4715,6 @@ information since a number of Armenian princes came with contingents of between 
 
 108
 
-THE GREAT ARAB CONQ!JESTS
 
 In response, Vmar began to organize another army. To solve the
 problem of command, he chose a man who was very much part of the
@@ -4805,7 +4753,6 @@ issued bonds to raise money for the war against Iran, they were called
 Qadisiya bonds. Less appropriately, the Iraqi official media often
 dubbed the 2003 second Gulf War as Saddam's Qadisiya. In all cases
 
-THE CONQ!JEST OF IRAQ
 
 I09
 
@@ -4846,7 +4793,6 @@ based in Media, west central Iran, while Yazdgard III had been
 
 IIO
 
-THE GREAT ARAB CONQ1JESTS
 
 supported first of all by the notables of F ars, further to the south.
 Regional rivalries may have undermined the Persian war effort. Rustam's image in the Arabic sources is of a man of wisdom, experience
@@ -4917,7 +4863,6 @@ invited him and they could take him as he was or he would go away
 
 III
 
-THE GREAT ARAB CONCWESTS
 
 again. When he was finally brought in to the presence of Rustam his
 behaviour was proudly destructive: he used his spear to make holes
@@ -4997,7 +4942,6 @@ in poverty and when they were afflicted by famine and drought they
 would seek help at the border. He knew that that was what they were
 doing now, so he would provide each of them with a load of dates and
 
-THE GREAT ARAB CONQ1JESTS
 
 two garments so that they could leave: he had no desire the kill any
 of them or take them prisoner.
@@ -5037,7 +4981,6 @@ sense that the Arabs believed that they lived in a more egalitarian
 society in contrast to the more hierarchical Persian one, and that this
 was an important source of strength to them. Finally, there is the
 
-THE CONQ1JEST OF IRAQ
 
 theme of the Persians recognizing the power and moral superiority
 of the Arabs. In this case Rustam quarrels with his courtiers while
@@ -5118,7 +5061,6 @@ coat of mail from his belly. Then he stabbed him in the abdomen and
 side until he died. Na'il took his horse, his bracelets and his spoils.
 Mter this triumph, Sacd rewarded Na'il with the dead man's equipment:
 
-THE CONQ!JEST OF IRAQ
 
 117
 
@@ -5162,7 +5104,6 @@ Sawad, carving up city centres and isolating one suburb from another.
 
 II8
 
-THE GREAT ARAB CONQlJESTS
 
 We have no detailed written descriptions of the city at this time,
 and archaeological excavation has been very patchy. The first major
@@ -5200,7 +5141,6 @@ examples of Muslim forces using artillery against fortifications. It also
 attests once again to a strategic strength of the Muslims, their ability
 to recruit local troops and put their talents to good use.
 
-THE CONQ1JEST OF IRAQ
 
 The Persians continued to defend themselves behind their walls
 and they made at least one unsuccessful sally in an attempt to break
@@ -5242,7 +5182,6 @@ possession of the quays. The rest of the force followed closely so that
 
 I20
 
-THE GREAT ARAB CONQ1JESTS
 
 the enemy would have no time to regroup: they rode through the
 waves, the dark waters of the Tigris throwing up white spume. The
@@ -5324,7 +5263,6 @@ commander ordered his men to haul the mule out of the water with
 
 122
 
-THE GREAT ARAB CONQ!JESTS
 
 all its baggage. It was not until the party returned to the central
 collecting point in Ctesiphon that they opened the baggage and found
@@ -5365,7 +5303,6 @@ was mistaken for salt by the Arabs, who had never seen it, and used
 in their cooking.6o
 Meanwhile Persian rule was being challenged in the countryside as
 
-THE CONQ1JEST OF IRAQ
 
 12 3
 
@@ -5407,7 +5344,6 @@ And there was booty to be taken and divided. Among the more
 
 124
 
-THE GREAT ARAB CONQ1JESTS
 
 notable trophies was a figurine of a camel, 'about the size of a young
 goat when it was stood on the ground', made of gold or silver, decorated with pearls and rubies, on it the figure of a man, similarly
@@ -5526,7 +5462,6 @@ either founded or expanded. Rice and sugar grew well here but the
 area was famous above all for its linens and cottons. There was also a
 considerable Christian community and a number of bishoprics had
 
-THE CONQ1JEST OF IRAQ
 
 12 7
 
@@ -5566,7 +5501,6 @@ was no organized academy. The site is abandoned now, but aerial
 
 128
 
-THE GREAT ARAB CONQlJESTS
 
 photography shows traces of both a round city and a square one,
 Sasanian foundations superimposed on each other. There were no
@@ -5607,7 +5541,6 @@ potentate, but by the French archaeological mission at the end of the
 nineteenth century to protect themselves against Bedouin attack. For
 the early Muslims, however, the most noteworthy feature of the town
 
-THE CONQ1JEST OF IRAQ
 
 12 9
 
@@ -5651,7 +5584,6 @@ of the world; much of it still exists. Behind the dam two tunnels were
 
 13°
 
-THE GREAT ARAB CONQ!JESTS
 
 cut in the rock on which the city stood to lead water away to irrigate
 more fields to the south. The Khuzistan Chronicle describes it graphically: 'this Shushtra [Tustar] is very extensive and strong, because of
@@ -5689,7 +5621,6 @@ when they had left, he had simply put his head down for a nap. Apart
 from him there was no one in the mosque. They sat down a little way
 from him. Hurmuzan enquired where his guards and attendants were
 
-THE CONQ1JEST OF IRAQ
 
 13 1
 
@@ -5732,7 +5663,6 @@ an elite unit of the army (jund) of the Shahanshah. Many of them
 
 13 2
 
-THE GREAT ARAB CONQ1JESTS
 
 subsequently settled in the Muslim new town of Kufa, where they had
 their own quarter. 78
@@ -5815,7 +5745,6 @@ apartments (abyat) and that the buildings did not become too high:
 
 134
 
-THE GREAT ARAB CONQYESTS
 
 once again we see the emphasis on modesty and equality among the
 Muslims.
@@ -5898,7 +5827,6 @@ troops had to spent the dirhams they had been given as booty
 
 13 6
 
-THE GREAT ARAB CONQ1JESTS
 
 somewhere. At a fairly early stage they were also being paid salaries,
 and these too they would have spent on both necessities and luxuries.
@@ -5981,7 +5909,6 @@ small to subdue and hold this large and populous territory. The 20,000
 
 13 8
 
-THE GREAT ARAB CONQ!JESTS
 
 adult males who first settled in Kufa were surrounded by a population
 in the surrounding countryside which is thought to number half a
@@ -6040,7 +5967,6 @@ old Arab aristocracy of Egypt was being replaced as the ruling elite
 by Turkish soldiers brought in from the east, and his accounts are
 I
 
-THE GREAT ARAB CONQlJESTS
 
 tinged with nostalgia for the days when his family, and families like
 them, had ruled the land. He derived his information from a variety
@@ -6115,7 +6041,6 @@ converted to a church dedicated to St John the Baptist while the
 temple and Serapeum at Canopus became a church dedicated to Saints
 Cyril and John. The last pagan intellectuals fled in fear of their lives,
 
-THE GREAT ARAB CONQ!JESTS
 
 while monks took to squatting in the ruins of antique grandeur. The
 myth that the Arabs burned the library at Alexandria, and with it the
@@ -6197,7 +6122,6 @@ have been very destructive of life and property, and especially of
 
 144
 
-THE GREAT ARAB CONQ!JESTS
 
 churches and their contents, but once they had established control,
 they seem to have ruled with a lighter touch: there are certainly
@@ -6273,7 +6197,6 @@ became a martyr, and the tortures he suffered for his faith were lovingly recall
 both his sides to the ground'. Next his teeth were pulled out. Then
 he was placed in a sack full of sand. At each stage he was offered his
 
-THE GREAT ARAB CONQ!JESTS
 
 life if he would accept the decrees of the Council of Chalcedon; at
 each stage he refused. Finally he was taken seven bow-shots out to sea
@@ -6356,7 +6279,6 @@ tribes, notably the tribe of Akk, whose members lived in the Yemen,
 in the villages of the Tihama plain along the shores of the Red Sea.
 These were not the tent-dwelling nomads of the Arabian and Syrian
 
-THE GREAT ARAB CONQ!JESTS
 
 steppe, but men who lived in reed or brushwood huts by the coast, or
 in the stone houses of the mountain villages, and who tilled the fields.
@@ -6436,7 +6358,6 @@ palm groves and fields of the Nile valley to the entrance of the Fayyum.
 The Fayyum is a large oasis about 70 kilometres south-east of Cairo.
 In Roman times it was famous for its grain production, and it must
 
-THE GREAT ARAB CONQ!JESTS
 
 have been a tempting target for Arnr and his men as they waited for
 reinforcements.
@@ -6514,7 +6435,6 @@ Arabs came to know it as Qasr al-Shama, but its old name lingered
 on in medieval Europe, where the Sultan of Egypt was often known,
 confusingly, as the Soldan of Babylon. Almost triangular in plan, the
 
-THE GREAT ARAB CONQlJESTS
 
 great brick and stone walls, 1 2 metres high and almost 3 metres thick,
 ran along the river bank to the west and through gardens and monastic
@@ -6596,7 +6516,6 @@ their crucifixes, their lands and their waterways. They would be
 
 154
 
-THE GREAT ARAB CONQ!JESTS
 
 obliged to pay the jizya (tribute) every year when the rise of the Nile
 (ziyiidat nahrihim) was over.42 If the river failed to rise properly,
@@ -6675,7 +6594,6 @@ this conflict that Amr's son was seriously injured fighting in the
 advance guard. In the end Theodore and his surviving troops were
 forced to retreat to Alexandria.
 
-THE GREAT ARAB CONQlJESTS
 
 The Arab forces now approached the great city. Butler gives us a
 lyrical description of what they must have seen. 50
@@ -6752,7 +6670,6 @@ their territory before, and this small group of marauders might be
 prepared to accept terms.
 Meanwhile there were bitter disputes in Alexandria between two
 
-THE GREAT ARAB CONQYESTS
 
 rivals for the post of military commander: Domentianus, the man who
 had surrendered first the Fayyum and then Nikiu, and Menas, who is
@@ -6912,7 +6829,6 @@ much of it was burned at the time of a threatened Crusader invasion.
 Since then much of the site has been a ruin, where low mounds of
 debris conceal the remains of houses, mosques and baths. But the old
 
-THE GREAT ARAB CONQ!JESTS
 
 fortress of Babylon has remained a centre of the Coptic cult and
 culture, and Muslims still worship in the mosque that bears Arnr's
@@ -7070,7 +6986,6 @@ buildings of the Christians. The administration continued largely
 
 166
 
-THE GREAT ARAB CONQ!JESTS
 
 unchanged. Certainly a hundred years later, taxation was beginning to
 seem very oppressive and we hear of violent Coptic revolts, but by
@@ -7149,7 +7064,6 @@ Copts were varied and perhaps confused: some of them at some times
 
 168
 
-THE GREAT ARAB CONQ!JESTS
 
 clearly welcomed and collaborated with the conquerors. At other times
 they are to be found fighting alongside the Romans. Many Egyptians
@@ -7233,7 +7147,6 @@ for the Muslim forces in stopping and consolidating at least for a
 while, and there are hints in the sources that this option was discussed
 among the Muslim leadership. Iraq was an integral part of the Sasanian
 
-THE CONQlJEST OF IRAN
 
 17 1
 
@@ -7277,7 +7190,6 @@ in the centre and two wings on each side. As in other accounts of
 
 17 2
 
-THE GREAT ARAB CONCWESTS
 
 battles, we are told that the Persian troops were bound or chained
 together so that they would not flee 7 and that they scattered caltrops
@@ -7317,7 +7229,6 @@ began to flee, and in the gathering darkness many of them lost their
 way and plunged to their deaths in the ravine. When the great Arab
 encyclopaedist Yaqut came to compile his geographical dictionary in
 
-THE CONQlJEST OF IRAN
 
 the early thirteenth century, 600 years after the event, the watercourse
 was still remembered as the place where the Persian army had been
@@ -7359,7 +7270,6 @@ been the capital of Media. A bleak, upland city, it lay at the eastern
 
 I74
 
-THE GREAT ARAB CONQ!JESTS
 
 end of the main road through the Zagros passes and had been an
 important political centre since its foundation, allegedly in the eighth
@@ -7400,7 +7310,6 @@ the Zagros mountains and the great desert of central Iran. In the plain
 there were a number of villages and a fire-temple on an isolated
 outcrop of rock. One of the villages, called Yahudiya or Jewry, was an
 
-THE CONQlJEST OF IRAN
 
 175
 
@@ -7442,7 +7351,6 @@ the people of Qumm had been suffering from raids by the Daylamite
 people of the mountains to the north and Yazdanfar hoped that the
 Arabs would defend the community in which they had made their
 
-THE GREAT ARAB CONQ!JESTS
 
 homes against the depredations of these raiders. In the first generation
 this seems to have worked and relations were more or less harmonious.
@@ -7522,7 +7430,6 @@ any Arab military leader would be eager to attack: they always avoided
 narrow mountain passes and steep valleys.
 Suwayd began by making contact with the ruler of Gurgan. The
 
-THE GREAT ARAB CONQ!JESTS
 
 lands of Gurgan lay to the south-east of the Caspian Sea. This was
 where the mountains met the almost limitless plains of Central Asia.
@@ -7603,7 +7510,6 @@ Z2
 
 180
 
-THE GREAT ARAB CONQYESTS
 
 The details are very sparse but it looks as if there was little fighting
 and that most people agreed to pay tribute in return for being allowed
@@ -7686,7 +7592,6 @@ Julfar on the site of the capital of the modern emirate of Ra's
 
 182
 
-THE GREAT ARAB CONQ!JESTS
 
 al-Khayma and established themselves at the island of Abarkawan
 (nowadays known as Qishm) just off the Iranian coast. It was a sea
@@ -7766,7 +7671,6 @@ and his easygoing generosity. He dug new irrigation canals in Basra
 and improved the supply of water for pilgrims in Mecca. He was also
 a daring military commander, prepared to lead his army far from their
 
-THE GREAT ARAB CONQlJESTS
 
 homes in Iraq to the farthest outposts of the Sasanian Empire. His
 appointment also meant that all the resources of the Muslim base at
@@ -7846,7 +7750,6 @@ legends of Rustam were well known by the time of the coming of
 
 186
 
-THE GREAT ARAB CONQlJESTS
 
 Islam, not just in Iran but also in the Arabian peninsula. We are told
 that they were recited in Mecca in the Prophet's lifetime and are said
@@ -7925,7 +7828,6 @@ And so it was that Yazdgard came to the great frontier city of Merv.
 
 188
 
-THE GREAT ARAB CONQ!JESTS
 
 Merv had long been the eastern outpost of the empire against the
 Turks of the steppes. It was an enormous and very ancient city. At its
@@ -8042,7 +7944,6 @@ he himself would be executed if he did not, and adding that the crown,
 and held by anyone reciting a Zoroastrian grace before a meal. The implication of
 the story must be that only a member of the nobility would require this.
 
-THE CONQlJEST OF IRAN
 
 earrings, loyal ring and clothes should not be stained. The reluctant
 miller returned and did as he was told, stabbing the king with a dagger.
@@ -8082,7 +7983,6 @@ The old political order had gone for good, but much ofIranian culture
 survived the conquests. The Arabs had defeated the Sasanian armies.
 They had secured tribute from most of the major cities and had
 
-THE GREAT ARAB CONQlJESTS
 
 control of most, but by no means all, of the great routes, but that was
 about it. The only major Muslim garrison seems to have been at Merv,
@@ -8203,7 +8103,6 @@ this time. The desert areas of southern Mghanistan are a difficult
 environment for any invading army. The scorching heat is very debilitating and the rugged hills provide endless points of shelter and refuge
 1
 
-THE CONQlJEST OF IRAN
 
 195
 
@@ -8245,7 +8144,6 @@ already seen him making vast sums from the confiscation of the assets
 of the fire-temples there. He was, in short, a man of obscure origins
 and little military experience who made a fortune out of the conquests.
 
-THE GREAT ARAB CONQ!JESTS
 
 Hajjaj b. Yusuf, governor of Iraq and all the east, now appointed
 him to command a Muslim army against the ZunbII, who was refusing
@@ -8324,7 +8222,6 @@ chose one Ibn al-Ashcath. Unlike the unfortunate Ubayd Allah, Ibn
 al-Ashcath came from the highest ranks of the south Arabian
 * A measure of 4 litres, the implication being that this was very expensive.
 
-THE GREAT ARAB CONQYESTS
 
 aristocracy, being directly descended from the pre-Islamic kings of
 Kinda. He was also a proud man who did not like being ordered
@@ -8651,7 +8548,6 @@ Roman provinces of Byzacena and Zeugitania were the heart of Roman
 rule. It was here that the wheat, wine, olives and pottery that constituted the main exports were produced, and it was here that the
 cities and country towns were most numerous. Carthage, at the
 
-INTO THE MAGHREB
 
 201
 
@@ -8733,7 +8629,6 @@ Most of what is now Morocco and western Algeria, with the exception of the forti
 and constructed a new church, had ceased to be part of the empire in
 the third century. In the areas that did remain under imperial control,
 
-INTO THE MAGHREB
 
 20 3
 
@@ -8779,7 +8674,6 @@ were ever replaced.
 
 4
 
-THE GREAT ARAB CONQlJESTS
 
 Rural settlement suffered as much as the cities did. Archaeological
 surveys suggest a general abandonment of settled sites. For example,
@@ -8818,7 +8712,6 @@ a settled Christian population, with no tradition of military activity.
 IbnAbd al-Hakam describes them as 'servants [khadim] of the Romans,
 paying taxes to whoever conquered their country'. 9
 
-INTO THE MAGHREB
 
 20
 
@@ -8863,7 +8756,6 @@ the sixth and early seventh centuries.
 
 206
 
-THE GREAT ARAB CONQ1JESTS
 
 The conquest of North Africa seems to have begun as a natural
 follow-on to the conquest of Egypt. Our information about the first
@@ -8903,7 +8795,6 @@ the cry 'Alliihu akbar!' The Romans panicked and fled to their ships
 with what they could carry, hoisted sail and fled. Amr, seeing the
 chaos, led his army into the city, which was then pillaged. IS There is
 
-INTO THE MAGHREB
 
 no evidence of Arab occupation at this stage and the city probably
 reverted to Byzantine control when the Muslim forces left.
@@ -8985,7 +8876,6 @@ brought the baraka of the Prophet himself to this part of North Mrica.
 In addition, he was the only important member of Quraysh to have
 fought there, which also contributed to his status and reputation. To
 
-INTO THE MAGHREB
 
 cap it all, Uqba became a martyr when he and his small band of
 warriors were confronted by a much larger Berber army in 683 and
@@ -9024,7 +8914,6 @@ lost to us.
 
 210
 
-THE GREAT ARAB CONQ!JESTS
 
 He went to Ifrlqlya and besieged its cities, conquering them by force
 and putting the people to the sword. A number of Berbers converted
@@ -9061,7 +8950,6 @@ and you will hear a voice saying "Allahu akbar". Follow the direction
 
 2II
 
-INTO THE MAGHREB
 
 of the voice and that will be the qib/a God has made pleasing for the
 Muslims in this land'. In the morning he heard the voice and established the qibla and all the other mosques copied it!O
@@ -9185,7 +9073,6 @@ villages, as they do to this day. They put up some stiff resistance
 
 214
 
-THE GREAT ARAB CONQ!JESTS
 
 to this band of marauders. Uqba had some successes, and when he
 conquered the little town ofNaffIs he is said to have founded a mosque
@@ -9224,7 +9111,6 @@ substantial structure. There was, however, a more sinister side to his
 exploits. He is said to have acquired human booty in the form of
 young Berber girls, 'the likes of which no one in the world had ever
 
-INTO THE MAGHREB
 
 21
 
@@ -9269,7 +9155,6 @@ approached the city, Kusayla received word and decided to withdraw.
 
 216
 
-THE GREAT ARAB CONQ!JESTS
 
 The city was at this stage unwalled so it offered little protection. He
 was also concerned that the Muslims still resident there might form a
@@ -9310,7 +9195,6 @@ the Byzantine Empire but others had remained in Syria and been
 incorporated into the Umayyad elite among those Syrian Arab
 tribesmen who were the backbone of the regime. He was given the
 
-INTO THE MAGHREB
 
 2I7
 
@@ -9387,7 +9271,6 @@ bands of Hassan were inadequate to the defence of Mrica; the
 conquests of an age were lost in a single day; the Arabian chief
 [Hassan], overwhelmed by the torrent, retired to the confines of
 
-INTO THE MAGHREB
 
 2I9
 
@@ -9426,7 +9309,6 @@ against French rule were fired in the Aures in I954.
 
 220
 
-THE GREAT ARAB CONQ!JESTS
 
 Our fullest account of Kahina comes from the work of Ibn IdharI.
 When Hassan entered Qayrawan he asked who was the most important king still surviving in Ifrlqlya, and he was told it was Kahina in
@@ -9464,7 +9346,6 @@ cities and fortresses [humn] than Mrica and the Maghreb and it went
 on for two thousand miles like it. The Kahina destroyed all of that.
 Many of the Christians and Africans left seeking to escape from what
 
-INTO THE MAGHREB
 
 221
 
@@ -9505,7 +9386,6 @@ In 704 Hassan was dismissed from his post. The loss of his job was
 
 222
 
-THE GREAT ARAB CONQ1JESTS
 
 the result of worsening relations between the caliph Abd aI-Malik in
 Damascus and his brother, Abd al-Azlz b. Marwan, the governor of
@@ -9544,7 +9424,6 @@ divided among the conquerors. In the account of Musa's campaigns
 in the Maghreb, it is the numbers of captives acquired and sent east
 which dominate the accounts. The numbers are exaggerated with
 
-INTO THE MAGHREB
 
 223
 
@@ -9635,7 +9514,6 @@ I
 
 226
 
-THE GREAT ARAB CONQ1JESTS
 
 reverses for the Arabs at the hands of the resurgent Turks and their
 allies among the local princes. The fourth and final phase (737-51)
@@ -9673,7 +9551,6 @@ historical tradition preserved in NarshakhI's History of Bukhara, which
 tells us much about how the conquest affected one city and the surrounding countryside.
 The Oxus is an astonishing river. If you approach it along the
 
-CROSSING THE OXUS
 
 227
 
@@ -9714,7 +9591,6 @@ Emerge, and shine upon the Aral Sea.
 
 228
 
-THE GREAT ARAB CONCWESTS
 
 The Oxus marked a real frontier. The Arabs referred to what lay
 beyond simply as mit warit al-nahr, 'what is beyond the river', and the
@@ -9752,7 +9628,6 @@ Since the nineteenth century, the river has formed the border between
 Mghanistan to the south and the Russian-ruled land of Tajikistan to
 the north, but in the seventh and eighth centuries there was no such
 
-CROSSING THE OXUS
 
 229
 
@@ -9795,7 +9670,6 @@ turns north. Eventually it reaches the flat lands known as Khwarazm
 
 23°
 
-THE GREAT ARAB CONQ!JESTS
 
 canals that form its delta. Remote, cut off by deserts on all sides, these
 fertile lands were inhabited from the fourth millennium Be by settled
@@ -9835,7 +9709,6 @@ which survive on wall paintings discovered in Soghdian palaces in Old
 Samarqand and Penjikent. Something of the atmosphere of one of
 these princely courts can be glimpsed in the account that the local
 
-CROSSING THE OXUS
 
 23 I
 
@@ -9877,7 +9750,6 @@ thirteenth century when the Mongol Empire provided a measure of
 security along the route, encouraging merchants like Marco Polo.
 The emphasis on silk, however, is not just an empty cliche: it
 
-THE GREAT ARAB CONQ1JESTS
 
 reflects an important reality. Though imperial China used a lot of
 bronze coinage, it had very little high-value coined money, silver or
@@ -9916,7 +9788,6 @@ centuries. As far as we know, not a single Turk lived there. The origins
 of the Turks are to be found far to the east. In the mid sixth century,
 Chinese chronicles begin to refer to a people called the T'u-chiieh,
 
-CROSSING THE OXUS
 
 233
 
@@ -9955,7 +9826,6 @@ chief.
 
 234
 
-THE GREAT ARAB CONQ!JESTS
 
 The nation of the Turks is very numerous and independent. They are
 not versatile or skilled in most human endeavours, nor have they
@@ -9995,7 +9865,6 @@ they can send out to ambush a careless adversary or hold in reserve to
 aid a hard-pressed section. They keep their spare horses close behind
 their main line and their baggage train to the right or left of the line
 
-CROSSING THE OXUS
 
 235
 
@@ -10036,7 +9905,6 @@ through the steppe lands to the north of the Black Sea.
 This first great Turkish empire was not destined to last. Disputes
 among the ruling family led to civil war and by 583 the western
 
-THE GREAT ARAB CONQ!JESTS
 
 Turks had separated from their eastern cousins and a separate Turkish
 khaganate had been established in Transoxania. The Turkish khagan
@@ -10076,7 +9944,6 @@ real achievements, he is seen as having brought something of the
 charisma of the Prophet's immediate circle to these far-off lands, a
 direct link between Muhammad and the Muslims ofTransoxania. The
 
-CROSSING THE OXUS
 
 237
 
@@ -10155,7 +10022,6 @@ as his word. It was said that 8,000 Rablca and Bakr were slain. Things
 in Khurasan would never be the same'7 and feuds between Arab tribes
 were fought out with unremitting ferocity, even as Muslim armies
 
-CROSSING THE OXUS
 
 239
 
@@ -10197,7 +10063,6 @@ Has kept the bone of my right hand out of joint.
 For two years my eyes have not closed at any resting place,
 Unless my fist made a pillow for me upon a stone.
 
-THE GREAT ARAB CONQ!JESTS
 
 My coat is of iron, and when night brings sleep,
 My covering is the saddle of a full-grown stallion.
@@ -10238,7 +10103,6 @@ Who will there be to fight the enemies of the Muslims? Who to
 protect the women of the Arabs?' But again Musa showed his ruthlessness, asking how his father could kill the female hyena and leave
 23
 
-CROSSING THE OXUS
 
 the male, kill the lioness and leave the lion. The demands of vengeance
 were more important than the safety of the Arabs in this remote,
@@ -10277,7 +10141,6 @@ own tribesmen mourned him sadly as a brave and generous chief.
 there is no lion's roar on earth.'24
 By 696 there was a new governor, Umayya, appointed by Abd alMalik. He was a member of the ruling Umayyad family, easygoing,
 
-THE GREAT ARAB CONQ!JESTS
 
 generous, peace-loving and, his enemies alleged, pompous and effeminate. He was to have a hard struggle keeping the unruly Arabs of
 Khurasan in order. The most effective way of doing this was to lead
@@ -10318,7 +10181,6 @@ Umayya was soon withdrawn from the province.
 
 243
 
-CROSSING THE OXUS
 
 Khurasan, and with it the command of the north-east frontier, was
 now given to the caliph's right-hand man, the ruthless and effective
@@ -10356,7 +10218,6 @@ inspired a biography, or rather a record of heroic deeds, and so his
 reputation has come down to us.
 0
 
-THE GREAT ARAB CONQlJESTS
 
 The saga of Mfisa b. Abd Allah b. Khazim was edited in the form
 we have it now by the great Mada'inI more than a century after the
@@ -10396,7 +10257,6 @@ around it. The site of the old town has been deserted since the Mongol
 invasions of the 12 20S.
 It was probably the strength of the citadel and the strategic position
 
-CROSSING THE OXUS
 
 245
 
@@ -10437,7 +10297,6 @@ Musa's companions came and sat at the table, saying that he would
 fight the knight and himself become the new 'Knight of Soghdia'.
 When the knight came he challenged him, '0 Arab, fight a duel with
 
-THE GREAT ARAB CONCWESTS
 
 me.' The Arab readily agreed and slew the knight. At this point,
 however, the rules changed; it seems there could not be an Arab
@@ -10478,7 +10337,6 @@ finished, Musa reclined and settled in but the shah and his men, now
 increasingly anxious, asked them to leave. Musa simply refused, saying
 that he would never find another palace (manzil) as nice as this and it
 
-CROSSING THE OXUS
 
 247
 
@@ -10521,7 +10379,6 @@ had had enough of Musa and his gang and approached the Turks
 proposing that they ally together against him. Musa found himself
 besieged by an Arab army on one side and a Turkish one on the other.
 
-THE GREAT ARAB CONQlJESTS
 
 We are told of one of those advice-giving sessions that the Arab
 narrators employ when they want to discuss military strategy. In the
@@ -10557,7 +10414,6 @@ of Thabit and would never break their wordY They were rich and
 powerful but were still not fully accepted as equals by the Arabs. At
 one point Hurayth did a favour to the king of Kish, allowing the
 
-CROSSING THE OXUS
 
 249
 
@@ -10597,7 +10453,6 @@ suggested that Musa should cross the Oxus, drive out the Umayyad
 at the time. They were a group of young men who undertook domestic and household
 tasks in times of peace but could become a band of warriors in times of war.
 
-THE GREAT ARAB CONQ!JESTS
 
 governor and take over the whole province of Khurasan. They thought
 that Musil would essentially become their puppet and half a century
@@ -10637,7 +10492,6 @@ livestock. MUSil was very depressed by the insult to his prestige; he
 refused to eat and 'played with his beard', contemplating his revenge.
 1
 
-CROSSING THE OXUS
 
 Then he decided on another night attack. With 700 men he followed
 a dry river bed, hidden by the vegetation on each side, until he reached
@@ -10675,7 +10529,6 @@ them.
 Thabit's young agent, of course, heard all this and immediately
 * The Arabic word used is jawsaqayn.
 
-THE GREAT ARAB CONQ!JESTS
 
 informed his master, who gathered twenty horsemen and slipped away
 that night. When morning came and Thabit had disappeared the
@@ -10754,7 +10607,6 @@ with a gift of 4,000 silver dirhams. It was among men like Abd Allah
 
 254
 
-THE GREAT ARAB CONQ1JESTS
 
 that Musa's memory was kept green, celebrated in poetry, and it must
 have been they who remembered the stories that form the basis of his
@@ -10956,7 +10808,6 @@ and a half between Qutayba, who was leading, and his brother and
 
 260
 
-THE GREAT ARAB CONQlJESTS
 
 right-hand man Abd aI-Rahman, who was in command of the
 rearguard. The Turks saw their chance and attacked the tail of the
@@ -11038,7 +10889,6 @@ into different zones and assigned to different tribal groups to settle.
 Soon neighbourhood mosques were set up by the different groups,
 * Abu MutarrifWala-c b. Hassan al-Tamlmi.
 
-THE GREAT ARAB CONQ!JESTS
 
 one of them on the site of a Christian church. Within a generation the
 walled city seems to have been predominantly inhabited by Muslims of
@@ -11117,7 +10967,6 @@ responded positively and he arranged that they should come and join
 him in the spring of 710. He also made preparations in case things
 went wrong. He wrote to the shah of distant Kabul, securely beyond
 
-THE GREAT ARAB CONQ!JESTS
 
 the range of Arab armies, requesting his help. Nayzak sent much of
 his baggage to Kabul for safe keeping and was given an assurance that
@@ -11197,7 +11046,6 @@ to his authority. The little kingdom of Shuman lay on the north bank
 of the Oxus. Its capital was a fortified city at or near the site of
 Dushanbe, the modern capital of Tajikistan. The king of Shuman had
 
-THE GREAT ARAB CONQlJESTS
 
 made peace with Qutayba and is said to have become a friend of
 the governor's brother Salih, another example of the ties that were
@@ -11276,7 +11124,6 @@ same year, but 6,000 kilometres to the west, another Muslim military
 
 268
 
-THE GREAT ARAB CONQlJESTS
 
 commander, Thriq b. Ziyad, had crossed the Straits of Gibraltar and
 begun the .conquest of Spain. 23
@@ -11356,7 +11203,6 @@ outside the walls, creating a breach which the defenders blocked up
 with sacks of millet. The Muslims pressed on into the breach, holding
 their shields over their faces to protect them from the showers of
 
-THE GREAT ARAB CONQlJESTS
 
 arrows the Soghdians shot at them. Once they had established themselves on the walls, Ghurak sent messengers to sue for peace. Qutayba
 agreed. 26 The Samarqandis were to pay a substantial annual tribute
@@ -11437,7 +11283,6 @@ him some envoys so that he could find out more about the Arabs and
 
 27 2
 
-THE GREAT ARAB CONQ1JESTS
 
 their religion. Ten or twelve strong, good-looking men were chosen
 and they set off. When they arrived at the Chinese court they went
@@ -11514,7 +11359,6 @@ could travel in a camel litter from Merv to Balkh without fear of
 molestation. 36
 His speech was greeted with stony silence. Perhaps he had not
 
-THE GREAT ARAB CONQ!JESTS
 
 prepared the ground or consulted enough. Everyone knew he had
 been a great commander but there was a strong groundswell of opinion
@@ -11609,7 +11453,6 @@ But others lamented the death of a great warrior for Islam, such as
 the poet42 who addressed his words to the new caliph in Damascus,
 0
 
-THE GREAT ARAB CONQ!JESTS
 
 capturing something of the sense of excitement and adventure in the
 unknown that many of Qutayba's followers must have felt:
@@ -11687,7 +11530,6 @@ local princes, the most prominent being Ghurak of Samarqand, who
 struggled to maintain their independence and their culture. They
 originally hoped that the Turks and Chinese would free them from
 
-THE GREAT ARAB CONQ1JESTS
 
 the Muslim yoke but as time went on they found that the Turks too
 were hard and demanding masters.
@@ -11764,7 +11606,6 @@ independent Soghdian prince of Penjikent, DYwashtichY The documents had presumab
 by the Arabs in 722 and consisted of political correspondence and
 administrative and legal documents. DYwashtYch was clearly an
 
-THE GREAT ARAB CONQlJESTS
 
 ambitious man who was challenging Ghurak of Samarqand for leadership of the Soghdian princes, trying to assemble a coalition of local
 nobles to oppose the Arab advance. Unfortunately for him, many of
@@ -11844,7 +11685,6 @@ you and us.' Some of the Turks were furious and wanted to execute
 the ambassador there and then but BazagharI refused. The messenger
 was increasingly anxious for his own safety, so he made an offer that
 
-THE GREAT ARAB CONQ!JESTS
 
 half the Arabs would go free and half would serve the Khagan. Then
 he went to the wall, held on to the rope and was pulled up. When he
@@ -11922,7 +11762,6 @@ come out and attack them. In the event the Dabusiya garrison, seeing
 horsemen, standards and a large military force approaching, thought
 that Kamarja had fallen and that this was the Khagan's army approaching them. They prepared for war. Then the mood changed completely
 
-THE GREAT ARAB CONQ1JESTS
 
 when a messenger from the army told them the true story, and horsemen galloped out to help the weak and injured through the city walls.
 One by one the hostages were allowed to go, but only when the Arab
@@ -12001,7 +11840,6 @@ struggle continued until both sides parted, exhausted. The standardbearer's reso
 bravely, with about eighty of his fellow Azdis.
 As usual with accounts of battles in the early Islamic conquests, we
 
-THE GREAT ARAB CONQ!JESTS
 
 have a number of vignettes, rather than an overall picture. Some of
 these vignettes are martyrdom stories, no doubt preserved to inspire
@@ -12082,7 +11920,6 @@ Meanwhile J unayd took advantage of the diversion to head for
 Samarqand, but he was not out of trouble yet. On the advice of one
 of his most experienced officers 60 he pitched camp rather than pressing
 
-THE GREAT ARAB CONQ1JESTS
 
 on to the city. It was just as well that he did, because if the Turks had
 caught him in open country, they would probably have annihilated
@@ -12159,7 +11996,6 @@ of the famous Barmakid dynasty of viziers, and Saman-khuda, ancestor
 of the Samanids who were to rule much of Khurasan and Transoxania
 in the tenth century. Asad's diplomacy and conciliatory policy may
 
-THE GREAT ARAB CONQ!JESTS
 
 have made a crucial difference and laid the foundations of future
 Muslim dominance in the area.
@@ -12235,7 +12071,6 @@ Islam meant that you became an equal member of the ruling community. It was a cl
 leading Muslims of the city and make public pronouncements about current political
 Issues.
 
-THE GREAT ARAB CONQ!JESTS
 
 creation of a ruling class in Khurasan and Transoxania which was
 defined by religion, Islam, rather than by ethnic identity, Arab. It was
@@ -12326,7 +12161,6 @@ in 744 seems to have been intended to develop commercial contacts
 
 294
 
-THE GREAT ARAB CONQlJESTS
 
 and contained representatives from the Soghdian cities Tukharistan,
 Shash and even Zabulistan (in southern Afghanistan). Further
@@ -12430,7 +12264,6 @@ give shed little light on the country or its conquest. Nor are local
 sources much more forthcoming. The only Sindi chronicle to deal
 with the conquests is the Chachnamah 3 of 12 16 by All b. Hamid alI
 
-FURTHEST EAST AND FURTHEST WEST
 
 297
 
@@ -12472,7 +12305,6 @@ remote from the centres of early Muslim power in the Hijaz but they
 were well placed to play a role in the maritime trade in the Indian
 Ocean. They converted to Islam and played an important part in the
 
-THE GREAT ARAB CONQ!JESTS
 
 conquest of F ars and other areas in Iran. They fonned a powerful
 lobby, wanting to invade Sind to further their commercial aspirations.
@@ -12511,7 +12343,6 @@ swampy lands by the Indus and grow sugar cane. According to Muslim
 sources, some Zutt were transported to southern Iraq by the Sasanian
 shah Bahram Gur (420-38) to cheer his people up with their musicmaking! I I
 
-FURTHEST EAST AND FURTHEST WEST
 
 299
 
@@ -12555,7 +12386,6 @@ The forces met up outside Daybul. Muhammad immediately began
 
 300
 
-THE GREAT ARAB CONQ1JESTS
 
 to invest the city, digging siege works. He ordered that lances be set
 up with tribal banners flying from them and that the troops encamp
@@ -12594,7 +12424,6 @@ unable to put up a prolonged resistance. The fort held out for a week
 before the commander made his escape by night. The Muslims entered
 the city, which was looted in the customary way, except that the
 
-FURTHEST EAST AND FURTHEST WEST
 
 30r
 
@@ -12638,7 +12467,6 @@ with him in the litter. The historian Mada'ini preserves a short poem
 
 302
 
-THE GREAT ARAB CONQlJESTS
 
 of triumph said to have been uttered by the Arab who killed him:
 The horses at the battle of Dahir and the spears
@@ -12756,7 +12584,6 @@ local sorceress. When consulted, she retired to her chambers and
 emerged after a few hours saying that she had travelled the whole
 world looking for Dahir, producing a nutmeg from Ceylon as proof
 
-FURTHEST EAST AND FURTHEST WEST
 
 of her voyages, and had seen no sign of him. This intelligence persuaded many of the inhabitants that they should open negotiations
 with Muhammad, whose reputation for virtue and justice was well
@@ -12795,7 +12622,6 @@ town was rich and the temple (budd) was a major pilgrimage centre.
 
 306
 
-THE GREAT ARAB CONQ!JESTS
 
 The inhabitants put up a stout resistance and the besieging Muslims
 ran very short of supplies, being obliged to eat their own donkeys.
@@ -12836,7 +12662,6 @@ Umayyad throne saw a violent reaction against Hajjaj and his officials.
 Muhammad was unceremoniously ordered back to Iraq, where he was
 imprisoned and tortured by the new governor and soon died in
 
-FURTHEST EAST AND FURTHEST WEST
 
 captivity. He deserved better. Like his contemporaries, Qutayba b.
 Muslim in Khurasan and Musa b. Nusayr in Spain, he found that his
@@ -12913,7 +12738,6 @@ they were of a different religion from the people of Spain.
 In the same year that Muhammad b. al-Qasim was taking Daybul
 and pressing on up the Indus valley, the Berber commander of the
 
-FURTHEST EAST AND FURTHEST WEST
 
 Muslim outpost at Tangier, Tariq b. Ziyad, was making plans to lead
 his men across the Straits of Gibraltar to southern Spain. It is not
@@ -12953,7 +12777,6 @@ Ibn Abd al-Hakam,33 considerable prominence is given to the story of
 
 310
 
-THE GREAT ARAB CONQ!JESTS
 
 'Julian'. This mysterious figure is said to have been lord of Ceuta, a
 port city just to the east of Tangier which may still have been under
@@ -12994,7 +12817,6 @@ arrived, giving him a total of perhaps 12,000 men. He is also said to
 have been joined by some of the partisans of the sons of Witiza,
 opposed to the new king. The role of the Visigothic 'opposition' is
 
-FURTHEST EAST AND FURTHEST WEST
 
 controversial. From a modern Spanish point of view, it is easy to see
 that, if they did indeed aid the Muslim invasion, they were traitors.
@@ -13035,7 +12857,6 @@ under the command of the maw/a Mughlth. The fall of Cordova, soon
 
 3 12
 
-THE GREAT ARAB CONQ1JESTS
 
 to be the capital of Andalus, is recorded with some circumstantial, and
 probably fictitious, details in the Arabic sourcesY When MughIth was
@@ -13075,7 +12896,6 @@ rather than a shepherd, and contrary to the precepts of the ancients,
 he deserted Christ's flock and headed for his Roman homeland'.3 8 Ibn
 Abd al-Hakam's only contribution to the history of the taking of the
 
-FURTHEST EAST AND FURTHEST WEST
 
 Visigothic capital is the story of the sealed room which, like the story
 of Julian, has been passed down in history and legend. According to
@@ -13114,7 +12934,6 @@ capital at Toledo, now held by 'lariq. Here he forced his subordinate
 to hand over the treasury and the riches he had confiscated from the
 churches. The Arab sources are, as often, very interested in the booty
 
-THE GREAT ARAB CONQlJESTS
 
 and its distribution. In this case, they report the rivalry between iariq
 and MfisiL The focus of conflict was the 'Table of Solomon', kept in
@@ -13154,7 +12973,6 @@ orders and returned to the central Islamic lands. In both cases the
 conquering heroes were humiliated, dispossessed of their gains and
 imprisoned. Mfisa died in 716-17, probably still in confinement. Of
 
-FURTHEST EAST AND FURTHEST WEST
 
 the fate of Tariq we know nothing at all, but he must have died in the
 Middle East in complete obscurity.
@@ -13192,7 +13010,6 @@ were the reality of Arab 'conquest' in many areas of the caliphate. It
 is clear that rather than embark on a difficult and costly campaign,
 the Muslims preferred to make an agreement that would grant them
 
-THE GREAT ARAB CONQ!JESTS
 
 security from hostile activities and some tribute. It is a pattern we can
 observe in many areas of Iran and Transoxania. It is interesting to
@@ -13230,7 +13047,6 @@ The new rulers of Spain began to make their mark on the administration almost im
 of the coinage. The arrival of MUSil b. Nusayr was marked by the
 minting of a new gold coinage, based not on Visigothic but on North
 
-FURTHEST EAST AND FURTHEST WEST
 
 Mrican models. The earliest of these coins have the Latin legend 'In
 Nomine Domini non Deus nisi Deus Solus', a direct translation of the
@@ -13268,7 +13084,6 @@ Picos de Europa. The landscape of the Picos is rugged, with steep
 gorges and rocky outcrops. Frequent rains mean that it is astonishingly
 green, with well-watered fields and forests and swift-flowing rivers. It
 
-THE GREAT ARAB CONQ!JESTS
 
 was a very different landscape from the open plains of the Meseta to
 the south and a world away from the deserts of North Mrica and
@@ -13304,7 +13119,6 @@ the areas to the south. When Daylamite mountaineers from northern
 Iran conquered much of Iran and Iraq in the tenth century, they did
 so as Muslims, and they soon lost their identity among the wider
 
-FURTHEST EAST AND FURTHEST WEST
 
 Muslim populations. The Armenians maintained their independence
 but they never sought to make conquests beyond their traditional
@@ -13344,7 +13158,6 @@ They then moved east through the Midi. Nimes surrendered
 
 320
 
-THE GREAT ARAB CONQ!JESTS
 
 peacefully, giving up hostages who were sent behind the lines to
 Barcelona. The governor* then led his men on a lightning raid up the
@@ -13380,7 +13193,6 @@ to more lasting conquest. Mter this point, Arab military activity was
 largely confined to the area around Narbonne, and al-Andalus began
 * Anbasa b. Sulaym al-Kalbi.
 
-FURTHEST EAST AND FURTHEST WEST
 
 321
 
@@ -13422,7 +13234,6 @@ Charles Martel], greater in number of soldiers and formidably armed,
 
 322
 
-THE GREAT ARAB CONQ1JESTS
 
 killed the king Abd aI-Rahman, when they found him, striking him on
 the chest. But suddenly, within sight of the countless tents of the
@@ -13470,7 +13281,6 @@ with any degree of success. The military prowess of the Franks, like
 the 'northern glacier', was only one of the reasons for the end of
 expansion. The Muslims were probably short of manpower. The
 
-FURTHEST EAST AND FURTHEST WEST
 
 32 3
 
@@ -13648,7 +13458,6 @@ and only a few Byzantines escaped with their lives. Ibn AbI Sarh
 remained at the site for a few days and then returned to Syria.
 * 'alii ai-bohr.
 
-THE GREAT ARAB CONCWESTS
 
 The longest account of the battle we have is given by Ibn Abd alHakam, who used sources from Egypt, presumably collected there
 because many of the men in the Arab fleet came from Egypt and
@@ -13728,7 +13537,6 @@ some lines that seem to shed light on a contemporary reality.
 
 33 0
 
-THE GREAT ARAB CONQYESTS
 
 For behold just as you, Lord of All, saved your city from the crashing
 waves of the filthy and most evil Arabs, you stole away fear of them
@@ -13810,7 +13618,6 @@ Many of the sailors in both the Muslim fleets were Coptic
 
 33 2
 
-THE GREAT ARAB CONQ1JESTS
 
 Christians from Egypt and at least some of them decided that their
 real loyalties lay with their fellow Christians in the Byzantine Empire.
@@ -13889,7 +13696,6 @@ the Maghreb. 19 He also wants more details of those who have not
 
 334
 
-THE GREAT ARAB CONQlJESTS
 
 returned, of who has died and why some have remained in Africa. We
 have only the governor's letter, not the pagarch's reply, but the papyrus
@@ -14046,7 +13852,6 @@ be sent to Damietta 'for the raiding fleet', but our fullest information
 about the city comes from an account of a Byzantine raid in the early
 summer of 853. It was the time of the feast that marked the end of
 
-THE GREAT ARAB CONQ!JESTS
 
 Ramadan and the governor of Egypt had incautiously ordered the
 local garrison to go to the capital at Fustat to join the celebrations.
@@ -14131,7 +13936,6 @@ The standard Byzantine warship of the period was called the dromon
 or chelandion and the Arabs adopted the same types, calling them shini
 or shalandi. Merchant ships in this period relied exclusively on wind
 
-THE GREAT ARAB CONQ1JESTS
 
 power but warships were propelled by oars, using sails only when
 cruising in suitable weather or as a supplementary power source. Oars
@@ -14518,7 +14322,6 @@ Church turned again to moral laxity and heresy. God again used the
 
 35 0
 
-THE GREAT ARAB CONQ!JESTS
 
 Arabs to punish their behaviour, causing the destructive civil war that
 broke out in 683 after the death of Yazld I (the same civil war that
@@ -14683,7 +14486,6 @@ anonymous Latin Chronicle of 754. 18 The author probably lived in
 Cordova and may well have been old enough to have personal memories of the fall of the Visigothic kingdom. His familiarity with the
 II
 
-THE GREAT ARAB CONQ!JESTS
 
 354
 
@@ -14766,7 +14568,6 @@ deliver you from this wicked one [Edom/Byzantium]. He raises up
 over the Ishmaelites a prophet according to his will and he will conquer
 the land for them, and they will come and restore it to greatness and
 
-THE GREAT ARAB CONCWESTS
 
 a great dread will come between them and the sons of Esau [the
 Byzantines]. '
@@ -14841,7 +14642,6 @@ of the Muslim conquest, and it is extremely interesting in showing
 how an aristocratic Persian of the period saw the coming of the
 Muslims. He does not explicitly condemn Islam or the Arabs, but
 
-THE GREAT ARAB CONQ1JESTS
 
 he paints a sorrowful view of the consequences of the conquest for
 traditional Iranian culture and values. The disruption of the old social
@@ -14913,7 +14713,6 @@ Religious faith. The winter and the spring
 * Sasanian shah who ruled 420-38 and who was considered the epitome of the courtly
 warrior, a great hunter and patron of musicians.
 
-THE GREAT ARAB CONQ1JESTS
 
 "Will pass mankind unmarked, * no one will bring
 The wine to celebrate such moments then;
@@ -14987,7 +14786,6 @@ oppression and injustice on one hand and stressing jihad and the
 rewards of paradise on the other. We are shown a puritanical society
 where the veiling of women and the prohibition, at least in public, of
 
-THE GREAT ARAB CONQ!JESTS
 
 alcohol and music are clearly evident. It is also a prosperous society,
 and one in which the prosperity is widely shared across the different
@@ -15134,7 +14932,6 @@ no wall but a series of fortified towns from Tarsus in the west to
 Malatya in the east, in which Muslim garrisons were established.
 I
 
-THE GREAT ARAB CONQ!)ESTS
 
 These Muslim outposts were always in the plains or river valleys: the
 mountains of the Taurus and anti-Taurus belonged to the Byzantines.
@@ -15212,7 +15009,6 @@ churchmen and other members of the elite fled to the comparative
 safety of North Mrica or Italy. Archaeological work has suggested
 that, in Anatolia at least, the advance of the Persian armies did enormous damage to urban life and that people abandoned the spacious
 
-THE GREAT ARAB CONQlJESTS
 
 cities of the plains to take refuge in mountain-top fortresses. 2 The
 restoration of Byzantine imperial control came only a year or two
@@ -15288,7 +15084,6 @@ there is little evidence that they actually helped the invaders. The
 peasants of the Sawad of Iraq may well have felt relieved by the
 destruction of the Persian ruling class; the merchants and craftsmen
 
-THE GREAT ARAB CONQ1JESTS
 
 of Sind are said to have cooperated willingly with the Muslims against
 the Brahmin military ruling class. In North Africa, the Berbers fought
@@ -15365,7 +15160,6 @@ consultation and discussion.
 
 37 2
 
-THE GREAT ARAB CONQ1JESTS
 
 The effectiveness of the leadership may be in part a product of the
 political traditions of Arabian society. Leadership was passed down
@@ -15446,7 +15240,6 @@ communities that never saw an Arab, who heard only weeks, months
 
 374
 
-THE GREAT ARAB CONQ!JESTS
 
 or even years later that they were no longer ruled by the emperor or
 the shah. The mountains of Azerbaijan, the ranges at the south of the
@@ -15536,7 +15329,6 @@ The conquest did not cause conversion but it was a major prerequisite:
 without it Islam would not have become the dominant faith in these
 areas.
 
-THE GREAT ARAB CONQ!JESTS
 
 The success of the Muslim conquests was the product of a unique
 set of circumstances and the preaching of a simple new monotheistic
@@ -15630,7 +15422,6 @@ p.I.
 3. C. Lyall, The Dlwiins orAbld ibn
 al-A bras, ofAsad and cAmir ibn at-
 
-THE GREAT ARAB CONQ!JESTS
 
 Tufayl, oj"Amir ibn Sacsacah
 (London, 1913).
@@ -15812,7 +15603,6 @@ notes by J. Howard-Johnston and
 T. Greenwood, 2 vols.
 (Liverpool, 1999), I, p. 97.
 
-THE GREAT ARAB CONQlJESTS
 
 18. TabarI, Ta'rlkh, I, pp. 2145-6,
 21 57.
@@ -16005,7 +15795,6 @@ excavations at Rira', Ars Islamica
 1(1934): 51-74- Sadly there were
 no further campaigns on the site.
 
-THE GREAT ARAB CONQlJESTS
 
 16. BaladhurI, Putah, p. 244.
 17· BaladhurI, Putah, p. 243.
@@ -16181,7 +15970,6 @@ et la conquete de l'Afrique du
 Nord par les Arabes: etude
 critique', Annales de l'Institut des
 
-THE GREAT ARAB CONQ!JESTS
 
 Etudes Orientales 6 (1942-7):
 108-55, and W Kubiak, AlFustiit, Its Foundation and Early
@@ -16359,7 +16147,6 @@ of Ancient Alexandria into a
 Medieval City', in Colloque
 international d'archeologie
 
-THE GREAT ARAB CONQlJESTS
 
 islamique, ed. R-P. Gayraud
 (Cairo, 1998), pp. 368-86.
@@ -16547,7 +16334,6 @@ I. The secondary literature on the
 conquest of North Africa is not
 extensive. For a narrative account
 
-THE GREAT ARAB CONQ!JESTS
 
 based on a careful reading of the
 meagre Arabic literary source, see
@@ -16759,7 +16545,6 @@ article by c.E. Bosworth,
 
 390
 
-THE GREAT ARAB CONQ!JESTS
 
 24. TabarI, Ta'rikh, II, pp. 831-S.
 2S. TabarI, Ta'rikh, II, p. 1022.
@@ -16943,7 +16728,6 @@ art', Central Asiatic Journal 17
 
 39 2
 
-THE GREAT ARAB CONQ1JESTS
 
 also the poem in TabarI, Ta'rlkh,
 II, p. 1432.
@@ -17147,7 +16931,6 @@ in Constable, Medieval Iberia, pp.
 
 394
 
-THE GREAT ARAB CONQYESTS
 
 41. Constable, Medieval Iberia, pp.
 37-8.
@@ -17330,7 +17113,6 @@ period, see Pryor and Jeffreys,
 The Age of the Dromon, pp.
 123-61, and F. M. Hocker, 'Late
 
-THE GREAT ARAB CONQ!JESTS
 
 Roman, Byzantine and Islamic
 fleets', in The Age of the Galley:
@@ -17561,7 +17343,6 @@ Al-KindI, Muhammad b. Yusuf, Kitab al-Wulat, ed. R. Guest (London, 1912).
 Al-KindI, Ya'qub b. Ishaq, Al-Suyilf wa Ajnasiha, ed. Abd aI-Rahman Zaki,
 Bulletin of the Faculty ofArts, Cairo, vol. 14 (1952), Arabic section, pp. 1-36.
 
-THE GREAT ARAB CONQ!JESTS
 
 Al-Mas'udI, 'All b. al-Husayn, Mum} al-Dhahab, ed. C. Pellat, 7 vols. (Beirut,
 1966 -79).
@@ -17658,7 +17439,6 @@ Prl R l<nTP (r"tnhrirlITP T(V''''''
 
 402
 
-THE GREAT ARAB CONQlJESTS
 
 Cameron, A., 'Byzantine Africa - the literary evidence', in Excavations at
 Carthage 1975-1978, vol. vii, ed.]. H. Humphrey (Ann Arbor, MI, 197778), pp. 29-62, reprinted in eadem, Changing Cultures in Early Byzantium
@@ -17745,7 +17525,6 @@ Sind', East and West 15 (1964-65): 281-95.
 Gayraud, R.-P., 'Fostat: evolution d'une capitale arabe du VII au XII siecle
 d'apres les fouilles d'Istabl cAntar', in Colloque international d'archiologie
 
-THE GREAT ARAB CONQ!JESTS
 
 Gero, S., 'Only a change of masters? The Christians of Iran and the Muslim
 conquest', in Transition Periods in Iranian History. Actes du Symposium de
@@ -17844,7 +17623,6 @@ Der Islam 67 (1990): 1-26.
 Le Strange, G., Palestine under the Moslems: A description of Syria and the Holy
 LandfromAD 650 to 1500 (London, 1890).
 
-THE GREAT ARAB CONQ!JESTS
 
 - - Lands of the Eastern Caliphate (Cambridge, 1905).
 Lecker, M., 'The estates of CAmr b.al-cAs in Palestine', Bulletin of the School of
@@ -17942,7 +17720,6 @@ Stratos, A. N., 'The naval engagement at Phoenix', in Charanis studies: essays
 in honor of Peter Charanis, ed. A. E. Laiou-Thomadakis (New Brunswick,
 19 80), pp. 229-47·
 
-THE GREAT ARAB CONQ1JESTS
 
 Taha, A. D., The Muslim Conquest and Settlement of North Africa and Spain
 (London, 1989).
@@ -18052,7 +17829,6 @@ Amir b. al-TufayI4I-2
 
 4 10
 
-THE GREAT ARAB CONQlJESTS
 
 Amr b. aI-As 52-3,56,71,73,78-9,
 83,88,9 2,9 6,146-5 2,154,155,
@@ -18234,7 +18010,6 @@ Chalkis 76, 86-7, 95,373
 
 412
 
-THE GREAT ARAB CONQlJESTS
 
 Charjui 227
 Charles Martel 319, 320, 321
@@ -18408,7 +18183,6 @@ Ibn Abd al-Hakam 24-7, 139-40,
 149,204,206,217-18,308,
 3°9-10,312-13,316,327,328
 
-THE GREAT ARAB CONQlJESTS
 
 Ibn AbI Sarh see Abd Allah b. Sacd b.
 AbI Sarh
@@ -18591,7 +18365,6 @@ mawilli 105, 248, 257, 273
 ~onophysites 8-9, 36-7,67, 142,
 144, 145, 16 7, 349, 369
 
-THE GREAT ARAB CONQ!JESTS
 
 Monothelitism 9
 Morocco 201, 202, 208, 212-213,
@@ -18769,7 +18542,6 @@ Salih b. Muslim al-BahilI 269,275
 Saljuk Turks 57
 Salm b. Ziyad 237-8
 
-THE GREAT ARAB CONQ1JESTS
 
 Samarqand 61,185,189,225,23°,
 shipbuilding 33°,331,334,338,339,

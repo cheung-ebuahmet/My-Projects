@@ -1,7 +1,5 @@
 # The Sage Learning of Liu Zhi
 
-> 来源: The Sage Learning of Liu Zhi.pdf
-
 Review
 Reviewed Work(s): The Sage Learning of Liu Zhi: Islamic Thought in Confucian Terms by
 Sachico Murata, William Chittick, Tu Weiming and Seyyed Hossein Nasr
@@ -189,8 +187,6 @@ Islam written in the past two decades, The Vision of Islam , Professor Murata is
 
 an expert of Islam and the Sino-Japanese intellectual tradition especially the
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 lea
 
@@ -251,8 +247,6 @@ the leading authority on Confucianism. At those seminars Murata made the
 exciting discovery that the idea that she put to work in her Tao of Islam,
 namely of examining Islamic thought with Far eastern eyes, has already been
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 476
 
@@ -426,8 +420,6 @@ composed a trilogy of important works. Tianfang xingli (Nature and principles
 in Islam: The Sage Learning) according to Murata, focuses on Usūluddīn or
 roots and principles of religion. In this work Liu "addressed the basic articles
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 BOOK
 of
@@ -613,8 +605,6 @@ Zhi since in the beginning Murata raises the important question, that since Liu
 
 Zhi's present work is devoid of usual references to the verses of Qur'än,
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 exp
 
@@ -940,8 +930,6 @@ message
 
 the
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 o
 
@@ -1201,8 +1189,6 @@ Islam
 Tu also addresses the sam
 introduction about the Is
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 4go
 
@@ -1282,8 +1268,6 @@ M. A. Sherif, a system analyst and an unusually versatile writer, has excelling
 number of biographies to his credit. He is currently exploring history of
 London-based Muslims and their social and political activism coupled with
 
-This content downloaded from 222.29.122.77 on Fri, 10 May 2019 08:46:49 UTC
-All use subject to https://about.jstor.org/terms
 
 hav
 

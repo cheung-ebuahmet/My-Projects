@@ -1,7 +1,5 @@
 # The Beginning and the End
 
-> 来源: The Beginning and the End.pdf
-
 ‫ﺍﻟﺒﺪﺍﻳﺔ ﻭﺍﻟﻨﻬﺎﻳﺔ‬
 The Beginning and The End
 by:
@@ -45,8 +43,6 @@ Table of Contents
 
 2
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 26. What will happen after Allah resurrects us?
 27. Evidences of the Resurrection in the Qur'an
@@ -75,8 +71,6 @@ ________________________________________________________________________________
 
 3
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 All praise is to Allah Who said:
 O man! What has made you careless concerning your
@@ -104,8 +98,6 @@ indeed be proven false.
 
 4
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Allah () the Creator of the seen and unseen worlds, is not in
 need of His creation; rather, His creation is in need of Him.
@@ -140,8 +132,6 @@ the first person ‘I’.
 
 5
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 sins, so seek forgiveness from Me and I shall forgive you.
 O My slaves, you will not attain harming Me so as to harm
@@ -178,8 +168,6 @@ made from a smokeless flame of fire.
 
 6
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 created equilibrium between physical and spiritual aspects of
 life. Allah () says:
@@ -211,8 +199,6 @@ is) sent down by the All-Wise, worthy of all praise
 
 7
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 In the end, Allah’s legislation, His Deen, and His army will be
 the successful. Allah () says:
@@ -243,8 +229,6 @@ The Prophet () said:
 
 8
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 “This Deen will reach every place which sees night and
 day. Allah will not leave a house made of mud nor (a tent
@@ -280,8 +264,6 @@ female, and We made you into different nations and tribes
 
 9
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 that you may come to know one another. Verily, the most
 honorable of you to Allah is that (believer) who has the
@@ -315,8 +297,6 @@ hadeeth.
 
 10
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Abdurrahmaan b. Abdul-Kareem ash-Sheha
 Riyadh, 11535
@@ -329,8 +309,6 @@ http://www.islamland.com
 
 11
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Belief in Allah
 Belief in Allah, His existence, and His Oneness is the basis of
@@ -364,13 +342,10 @@ what Allah chooses to reveal.
 
 12
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Creator, the Shaper out of naught, the Fashioner. To Him
 belong the Best Names. All that is in the heavens and the
 earth glorify Him. And He is the All-Mighty, the AllWise. [59:22-4]
-Allah () also says:
 Allah! None has the right to be worshipped but He, the
 Ever-Living, the One Who sustains and protects all that
 exists. Neither slumber, nor sleep overtakes Him. To Him
@@ -398,8 +373,6 @@ He has no wife or child and all creation depends upon Him.
 
 13
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 He has no partner, rival or equal, all things are in need of Him,
 while He stands in need of none of His creatures. He was not
@@ -433,8 +406,6 @@ anything. And if there be the weight of a mustard seed,
 
 14
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 We will bring it. And Sufficient are We as Reckoners.
 [21:47]
@@ -455,7 +426,6 @@ Allah () has many Names and Attributes which are
 indicative of His perfection and magnificence. If one wishes,
 he may refer to books which detail them.
 One should know though that Allah’s Names are not limited.
-The Prophet () said:
 “No slave says upon feeling stress or sadness:
 ‘Allahumma innee ‘abduk, ibnu ‘abdik, ibnu amatik,
 nasiyatee biyadik, madin fiyya hukmuk, ‘adlun fiyya
@@ -467,8 +437,6 @@ wajalaa`a huznee wa dhahaaba hammee.’
 
 15
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Meaning: O Allah, I am Your slave, son of Your slave, son
 of Your female slave, my forelock is in Your Hand (i.e. You
@@ -502,8 +470,6 @@ mercy on him).
 
 16
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Due to the fact that humans have been created with the innate
 nature to inquire and find out the truth about various
@@ -538,8 +504,6 @@ Shaytaan.”
 
 17
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 He () replied, ‘Allah is the Greatest! Allah is the Greatest!
 All Praise be to Allah Who granted you the knowledge to
@@ -566,8 +530,6 @@ Allah always speaks the truth. He () says:
 
 18
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Proofs of the Existence of Allah
 Everything in this universe is a definite proof of the
@@ -602,8 +564,6 @@ through their effects and signs! Seeking tangible evidences for
 
 19
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 the belief in the existence of Allah has distanced many from
 believing in Allah by pondering His signs.
@@ -635,8 +595,6 @@ polytheists, sinners, etc.] that day. And they [the angels]
 
 20
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 will say: ‘All kinds of glad tidings are forbidden for you.
 [25:21]
@@ -670,8 +628,6 @@ surrounds them and to think about the different creations
 
 21
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 found within them. All these are proofs of a Creator who takes
 care of its affairs. Allah () says:
@@ -691,7 +647,6 @@ says:
 He has created the heavens without any pillars that you
 see and has set on the earth firm mountains, lest it should
 shake with you. [31:10]
-Allah () also says:
 So exalted is Allah when you reach the evening and when
 you reach the morning. * And to Him is (due all) praise
 throughout the heavens and the earth. And [exalted is He]
@@ -705,8 +660,6 @@ that He created for you from yourselves mates that you
 
 22
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 may find tranquility in them; and He placed between you
 affection and mercy. Indeed in that are signs for a people
@@ -729,7 +682,6 @@ creation; then He repeats it, and that is (even) easier for
 Him8. To Him belongs the highest description [i.e.,
 attribute] in the heavens and earth. And He is the Exalted
 in Might, the Wise. [30:17-27]
-Allah () also says:
 …the sun, the moon, and the stars, (all) subjected by His
 command. Unquestionably, His is the creation and the
 command; blessed is Allah, Rubb of the worlds. [7:54]
@@ -741,8 +693,6 @@ same, they are both easy.
 
 23
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 * The wondrous creation of mankind and the beautiful form
 they are created in, and the ability which Allah has endowed
@@ -776,8 +726,6 @@ certain things.
 
 24
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And it is He who spread the earth and placed therein
 firmly set mountains and rivers; and from all of the fruits
@@ -813,15 +761,12 @@ i.e., only one from a root.
 
 25
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 * The wondrous way provisions are distributed and
 provided to all creatures. Allah () says:
 And there is no creature on earth but that upon Allah is
 its provision, and He knows its place of dwelling and
 place of storage11. All is in a clear book.12 [6:103]
-Allah () also says:
 And how many a creature carries not its (own) provision.
 Allah provides for it and for you. And He is the Hearing,
 the Knowing. [29:60]
@@ -851,8 +796,6 @@ until the Day of Resurrection.
 
 26
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 the mountains are tracts, white and red of varying shades
 and (some) extremely black. And among people and
@@ -885,8 +828,6 @@ earth? Rather, they are not certain. [52:35-6]
 
 27
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 * It is from the innate human nature that humans feel and
 acknowledge the presence of a Creator Who created them as
@@ -897,7 +838,6 @@ truth. (Adhere to) the fitrah13 of Allah upon which He has
 created (all) people. No change should there be in the
 creation of Allah.14 That is the correct Deen, but most of the
 people do not know. [30:30]
-The Prophet () said:
 “Every child is born on the Fitrah [Natural Disposition];
 But his parents, turn him into a Jew or a Christian. Just as
 you see the cattle-beast; Do you see it born with
@@ -923,8 +863,6 @@ Islam.
 
 28
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 common instinct among humans; although some reject it out
 of pride or stubbornness, and others believe in it. This innate
@@ -958,8 +896,6 @@ that which he worships.
 
 29
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And you [i.e., mankind] have not been given of knowledge
 except a little. [17:85]
@@ -993,8 +929,6 @@ killed and I pardon the other.. so he is not killed.” [ibn Katheer]
 
 30
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Say, ‘If mankind and the jinn gathered in order to
 produce the like of this Qur'an, they could not produce its
@@ -1029,8 +963,6 @@ This phrase refers back to the Qur'an.
 
 31
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 If it was conjured by humans, it would contain many
 contradictions. Allah () says:
@@ -1047,8 +979,6 @@ the heavens and the earth. [39:62-63]
 
 32
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The First Creation of the Tangible World
 Since man's knowledge and understanding is limited to the
@@ -1086,8 +1016,6 @@ i.e., repeatedly.
 
 33
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 word is the truth.20 And His is the dominion (on) the Day
 the Horn is blown. (He is the) Knower of the Unseen and
@@ -1126,8 +1054,6 @@ i.e., created the day from within the surrounding darkness.
 
 34
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And We have sent the fertilizing winds23, and sent down
 water from the sky and given you drink from it. and it is
@@ -1162,8 +1088,6 @@ Winds causing precipitation in rain clouds or carrying pollen.
 
 35
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Allah created seven heavens and seven earths. Allah ()
 says:
@@ -1199,8 +1123,6 @@ Also “four equal days” or “four days of completion”.
 
 36
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 for beauty] and as protection.25 That is the determination of
 the Exalted in Might, the Knowing. [41:9-12]
@@ -1212,8 +1134,6 @@ from the angels.
 
 37
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Creation of the Angels
 The Angels are a creation of Allah which He created from
@@ -1245,8 +1165,6 @@ and vegetation, while Israafeel has been assigned the task of
 
 38
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 blowing the trumpet. He will blow it for the first time, and all
 would be struck with terror. Allah () says:
@@ -1279,8 +1197,6 @@ Himself all together. [4:172]
 
 39
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Some have been assigned tasks in Jannah, while others have
 been assigned tasks in Hellfire. Allah () says:
@@ -1310,8 +1226,6 @@ says:
 
 40
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Whoever desires to learn more on this subject may read
 books (which are based on the Qur'an and authentic Sunnah)
@@ -1320,8 +1234,6 @@ which talk about the angels and their duties.
 
 41
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Creation of the Jinn
 Jinn are an unseen creation of Allah who were created to
@@ -1343,15 +1255,12 @@ which guides to the truth and to a straight path.’ [46:29-30]
 Allah created them from fire. He () says:
 He created man from clay like (that of) pottery. * And He
 created the jinn from a smokeless flame of fire. [55:14-5]
-Allah () also says:
 And indeed, We created man from sounding clay of
 altered black smooth mud. * And the jinn, We created
 aforetime from the smokeless flame of fire. [15:26-7]
 
 42
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Creation of Adam ()
 Adam is the father of humanity. Allah () says:
@@ -1386,8 +1295,6 @@ worship.
 
 43
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 (condition) in which they had been. And We said, ‘Go
 down (all of you) as enemies to one another, and you will
@@ -1416,8 +1323,6 @@ righteousness and piety.” [Ahmed]
 
 44
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 How Adam () was Created
 Allah () has clarified that Adam was created from earth; as
@@ -1448,8 +1353,6 @@ In any case, Adam was created from one substance.
 
 45
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Allah () created Adam from clay, and he passed through
 different stages. He stayed like this, for as long as Allah willed;
@@ -1481,8 +1384,6 @@ again. [20:55]
 
 46
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Adam’s () Attributes
 The Messenger of Allah () told us of his attributes. He ()
@@ -1515,8 +1416,6 @@ they could procreate. Allah () says:
 
 47
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 O mankind! Be dutiful to your Rubb, Who created you
 from a single person (Adam), and from him [Adam] He
@@ -1525,7 +1424,6 @@ created many men and women and fear Allah through
 Whom you demand your mutual (rights) and (do not cut
 the relations of) the wombs [kinship]. Surely, Allah is Ever
 a Watcher over you. [4:1]
-The Prophet () said:
 “Whoever believes in Allah and the Last Day let him not
 harm his neighbor. Treat your wives well, for indeed they
 have been created from a rib. Indeed the most bent part of
@@ -1550,8 +1448,6 @@ and their private parts became apparent to them, and they
 
 48
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 begun to fasten over themselves from the leaves of Jannah.
 And Adam disobeyed his Rubb and erred. * Then his Rubb
@@ -1586,8 +1482,6 @@ degrees whom We will. Indeed, your Rubb is Wise and
 
 49
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Knowing. * And We gave to him [i.e., Abraham] Is’haaq
 [Isaac] and Ya’qoob [Jacob] - all (of them) We guided. And
@@ -1611,7 +1505,6 @@ to Musaa and ‘Eesaa, and that which has been given to the
 Prophets from their Rubb. We make no distinction
 between any of them, and to Him we have submitted (in
 Islam). [2:136]
-Allah () also says:
 And (remember) Isma‘eel, and Idrees [Enoch] and DhulKifl [Isaiah], all were from among the patient. [21:85]
 There are other Prophets and Messengers whom Allah did
 not inform us about. Allah () says:
@@ -1620,8 +1513,6 @@ Messengers We have not mentioned to you… [4:164]
 
 50
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Allah, the Exalted, would send messengers and prophets
 from time to time to guide people back to the Deen of Allah,
@@ -1655,8 +1546,6 @@ to was that there is only One God worthy of being
 
 51
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 worshipped, Who disposes all affairs, and from whom they
 should seek refuge. This would lead them to spiritual
@@ -1682,8 +1571,6 @@ and comfort.
 
 52
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 What are Humans?
 They are a creation who Allah fashioned in the best stature.
@@ -1715,8 +1602,6 @@ humans. Allah () says:
 
 53
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And has subjected to you all that is in the heavens and all
 that is in the earth; it is all as a favor and kindness from
@@ -1750,8 +1635,6 @@ love. He gave them things which were not given to anyone
 
 54
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 else. He subjected for them all that is in the heavens and
 earth and what is in between, even the angels who are the
@@ -1786,8 +1669,6 @@ after he was ignorant, and was guided aright after
 
 55
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 misguidance. He became rich after poverty. Therefore, he
 was nothing, and what is worse than being nothing?! Then
@@ -1819,8 +1700,6 @@ stages of darkness. It passes through specific stages until it
 
 56
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 reaches, by the ability of Allah, its final stage, and then it exits
 the womb and enters into this world. Allah () says:
@@ -1852,8 +1731,6 @@ says:
 
 57
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 To Allah belongs the kingdom of the heavens and the
 earth. He creates what He wills. He bestows female
@@ -1863,7 +1740,6 @@ males and females, and He renders barren whom He wills.
 Verily, He is the All-Knower and is Able to do all things.
 [42:49-50]
 
-Allah () also says:
 He it is Who shapes you in the wombs as He pleases. Laa
 ilaaha illa Huwa [none has the right to be worshipped but
 He] the All-Mighty, the All-Wise. [3:6]
@@ -1888,13 +1764,10 @@ other creatures to which it attaches itself to. Allah () says:
 
 58
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Read! In the Name of your Rubb, Who has created (all
 that exists), * has created man from a clot [a piece of thick
 coagulated blood]. [96:1-2]
-Allah () also says:
 Was he not a Nutfah [mixed male and female discharge of
 semen] poured forth? * Then he became an ‘Alaqa [a clot];
 then (Allah) shaped and fashioned (him) in due
@@ -1922,8 +1795,6 @@ Literally, a mudghah is a lump of something which is chewed.
 
 59
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 There is a certain time period for each stage, as is mentioned
 in the Hadeeth of Ibn Masood () him in which he - and he is
@@ -1957,8 +1828,6 @@ and any attempt to investigate it is futile. Allah () says:
 
 60
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And they ask you (O Muhammad) about the soul. Say,
 "The soul is of the affair [i.e. concern] of my Rubb. And
@@ -1992,8 +1861,6 @@ Taken from Dha’riyah ilaa Makaarim ash-Shari’ah pg. 75
 
 61
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 female conceive nor brings forth (young), except by His
 Knowledge. [41:47]
@@ -2028,8 +1895,6 @@ nothing after having known. And you see the earth barren,
 
 62
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 but when We send down water [rain] on it, it is stirred (to
 life), it swells and puts forth every lovely kind (of growth).
@@ -2062,8 +1927,6 @@ Muhammad and did not lose the Messiah'.
 
 63
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 
 
@@ -2071,8 +1934,6 @@ ________________________________________________________________________________
 
 64
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Reality of the Life of this World
 Allah () has clarified to us the reality of the life of this
@@ -2106,8 +1967,6 @@ world, it is like the water [rain] which We send down from
 
 65
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 the sky, and the vegetation of the earth mingles with it,
 and becomes fresh and green. But (later) it becomes dry
@@ -2141,8 +2000,6 @@ He said: ‘By the one in Whose hands is my soul, this world
 
 66
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 is far more worthless to Allah than this to its master …
 were this life equal to a wing of a fly, He would not have
@@ -2174,8 +2031,6 @@ with clothes given by Allah, which He has produced for
 
 67
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 his slaves, and At-Tayyibaat [all kinds of Halaal (lawful)
 things] of food?’ [7:32]
@@ -2203,8 +2058,6 @@ All-Knower, All-Seer of His slaves. [17:29-30]
 
 68
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 What is the Goal in the Creation of Humans
 and Jinn?
@@ -2236,8 +2089,6 @@ Allah guides whom He wills to a Straight Path. [2:213]
 
 69
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 This was the case until all the messages were completed and
 finalized by the Message of Muhammad () who was sent to
@@ -2273,8 +2124,6 @@ who disbelieve (in Islamic Monotheism) from the Fire!
 
 70
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The worship of Allah is accomplished through fulfilling His
 commandments and abstaining from His prohibitions, which
@@ -2293,16 +2142,12 @@ They will be requited for what they used to do. [7:180]
 
 71
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The
 End
 
 72
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The End
 The end of every living thing in this universe is death…
@@ -2334,8 +2179,6 @@ body), if you are truthful? [56:83-7]
 
 73
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Upon death, everyone will believe, but they will not have the
 opportunity to return to this world and do good deeds. Allah
@@ -2366,8 +2209,6 @@ people who think deeply. [39:42]
 
 74
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 What Happens After Death
 After death one would be resurrected, and the records would
@@ -2399,8 +2240,6 @@ only conjecture. [45:24]
 
 75
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Some even sought impossible evidences in order to believe.
 Allah () says:
@@ -2434,8 +2273,6 @@ Jannah). [34:3-5]
 
 76
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 On that Day, Allah () will resurrect the entire creation.
 Allah () says:
@@ -2462,14 +2299,11 @@ will wish that there were a great distance between him and
 his evil. And Allah warns you against Himself [i.e. His
 Punishment] and Allah is full of Kindness to the (His)
 slaves. [3:30]
-Allah () also says:
 On the Day when Allah will resurrect them all together
 [i.e. the Day of Resurrection] and inform them of what they
 
 77
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 did. Allah has kept account of it, while they have forgotten
 it. And Allah is Witness over all things. [58:6]
@@ -2504,8 +2338,6 @@ painful torment. [5:36]
 
 78
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The only thing accepted on that Day is one’s righteous deeds.
 Allah () says:
@@ -2533,8 +2365,6 @@ to the weight of an atom (or a small ant) shall see it. [99:78]
 
 79
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 What will happen After Allah Resurrects Us?
 After Resurrection, man would either go to Jannah or to Hell;
@@ -2568,8 +2398,6 @@ Security (Jannah). * Among Gardens and Springs. *
 
 80
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Dressed in fine silk and (also) in thick silk, facing each
 other. * So (it will be), and We shall marry them to Hoors
@@ -2587,7 +2415,6 @@ even think of.” Abu Hurairah () said: “Read if you like
 the saying of Allah:
 No person knows what is kept hidden for them of joy as
 a reward for what they used to do. [32:17]31
-The Prophet () said:
 “The first group of people who will enter Jannah will do
 so like a full moon. The next group will do so like the
 brightest of stars in the sky. The will have to neither
@@ -2607,8 +2434,6 @@ Bukhari.
 
 81
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 disagree], and they will resemble their father, (Adam,)
 sixty arm-lengths (in height).” [Ibn Hibbaan]
@@ -2640,8 +2465,6 @@ the saying of Allah:
 
 82
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And it will be cried out to them: ‘This is the Jannah
 which you have inherited for what you used to do.’
@@ -2676,8 +2499,6 @@ Muslim.
 
 83
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 But those who disbelieve (in Islam), for them will be the
 Fire of Hell. It will neither have a complete killing effect
@@ -2711,8 +2532,6 @@ recited:
 
 84
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And warn them (Muhammad ()) of the Day of grief and
 regrets, when the case has been decided, while (now) they
@@ -2720,7 +2539,6 @@ are in a state of heedlessness...
 … they are in a state of heedlessness i.e. the people of the
 world…
 … and they believe not. [19:39]33
-The Prophet () said:
 “None shall enter Jannah until he is shown (while in the
 grave) the place he would have resided in the Hellfire if he
 did evil [disbelief], so that he will (feel more joy and) show
@@ -2747,8 +2565,6 @@ Bukhari.
 
 85
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Allah encourages man to ponder over how He produces
 fresh vegetation from land which was once dead. Allah ()
@@ -2782,8 +2598,6 @@ dust?” He replied, “Indeed Allah will raise this! He will
 
 86
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 cause you to die, then He will bring you back to life and
 then He will put you in the Hellfire.”
@@ -2813,15 +2627,11 @@ Ibn Hibban
 
 87
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 
 
 88
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 How Can One Save Himself?
 If you want to know what the accepted Deen on that Day is;
@@ -2854,13 +2664,10 @@ Islam. Allah () says:
 
 89
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And whoever seeks a Deen other than Islam, it will never
 be accepted of him, and in the Hereafter he will be one of
 the losers. [3:85]
-The Prophet () said:
 “By Him in Whose Hands is Muhammad’s soul. None
 hears of me amongst humanity, not even a Jew or a
 Christian, and dies not believing in what I have been sent
@@ -2888,8 +2695,6 @@ Allah () says about fasting:
 
 90
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 O you who believe! Fasting has been prescribed for you
 as it was prescribed for those before you, that you may
@@ -2906,8 +2711,6 @@ the unity of Muslim society and its ties.
 
 91
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Pillars of Islam
 The Two Testimonies
@@ -2938,8 +2741,6 @@ Faith starts to weaken, one hears the call to prayer [Adhaan]
 
 92
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 which would strengthen his Faith. Through this, one
 maintains a continual relationship with His Creator.
@@ -2973,8 +2774,6 @@ The following are some of its conditions.
 
 93
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 1). Possession of the minimum required amount: A person’s
 wealth must reach the limit which has been set by the Deen of
@@ -3008,8 +2807,6 @@ may have against the rich. They see them giving from their
 
 94
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 wealth as Allah has ordered, and continuously caring for
 them, by giving them money and treating them well.
@@ -3044,8 +2841,6 @@ explained in his saying:
 
 95
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 “All the actions of the children of Adam are for him except
 fasting, for it is for me and I will reward for it. The Fasting
@@ -3082,8 +2877,6 @@ duty that mankind owes to Allah, those who can afford the
 
 96
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 expenses; and whoever disbelieves, then Allah stands not
 in need of any of the ‘aalameen [mankind, Jinn and all that
@@ -3112,8 +2905,6 @@ feelings.
 
 97
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 The Pillars of Faith (Imaan)
 Belief in Allah
@@ -3144,8 +2935,6 @@ He has no equal in His Names and Attributes. Allah () says:
 
 98
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And (all) the Most Beautiful Names belong to Allah, so
 call on Him by them, and leave the company of those who
@@ -3180,8 +2969,6 @@ who disobey not, (from executing) the Commands they
 
 99
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 receive from Allah, but do that which they are
 commanded. [66:6]
@@ -3215,8 +3002,6 @@ commandments): That no bearer of burden shall bear the
 
 100
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 burden of another; And that man shall have nothing but
 what he strives for; And that his striving shall soon be
@@ -3250,8 +3035,6 @@ must believe that they are from Allah (). It is not lawful for
 
 101
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 him to abide by its laws, since these Books were revealed to
 specific nations during specific times. It is attributed to 'Eesaa
@@ -3287,8 +3070,6 @@ mankind to be Messengers whom He sent to His creation with
 
 102
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 specific legislations; to worship and obey Allah, and to
 establish His Deen and His Tawheed. He ordered His
@@ -3323,8 +3104,6 @@ would have followed His verses and become of the believers.”
 
 103
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 being, while Allah does not eat). Look how We make the
 aayaat [i.e. proofs, evidences, verses, lessons, signs,
@@ -3359,8 +3138,6 @@ and on the Day when the Hour will be established (it will
 
 104
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 be said to the angels): ‘Make Fir‘awn’s [Pharaoh's] people
 enter the severest torment! [40:46]
@@ -3393,8 +3170,6 @@ what they used to do. * And they will say to their skins,
 
 105
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 caused us to speak, He causes all things to speak: and He
 created you the first time, and to Him you are made to
@@ -3429,8 +3204,6 @@ We will bring it. And Sufficient are We to take account.
 
 106
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Then, as for him who will be given his Record in his right
 hand, He surely will receive an easy reckoning. * And he
@@ -3459,8 +3232,6 @@ from it once, will never feel thirsty thereafter.
 
 107
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Belief in Qadaa´ and Qadar37
 It is to believe that Allah knew everything before it came
@@ -3494,8 +3265,6 @@ leave them as Arabic terms and understand them in their true light.
 
 108
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 ‘means’ to fulfill our goals are also considered from the Qadar
 of Allah. The Prophet () was asked:
@@ -3529,8 +3298,6 @@ humans to seek their cure, and this is done by searching for
 
 109
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 the sources of medicine which Allah, the Exalted, created in
 this universe.
@@ -3565,8 +3332,6 @@ you. If the whole world was to gather to bring you some
 
 110
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 harm, they would not be able to harm you except with
 something which Allah has already written for you. The
@@ -3587,8 +3352,6 @@ money or not.” [Bukhari]
 
 111
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Who is the Messenger of Islam?
 He is Muhammad ibn Abdullah, the final Messenger. Allah
@@ -3621,8 +3384,6 @@ Allah! Allah will never humiliate you. Indeed you
 
 112
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 maintain ties of kinship, you shoulder the problems of
 others, you give wealth to those who do not have it, you
@@ -3659,8 +3420,6 @@ new sense of reverence for that mighty Arabian teacher.'
 
 113
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 What is the Qur'an?
 It is the Words of Allah which Jibreel () conveyed to
@@ -3691,8 +3450,6 @@ it.” [Bukhari]
 
 114
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 3) The Qur'an includes all the legislations which reform
 society and guarantees happiness for all in its implementation.
@@ -3726,8 +3483,6 @@ Allah (Alone) knows their meanings.
 
 115
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Such considerations are part of what gives the Qur'anic
 Revelation its unique place, and forces the impartial scientist
@@ -3760,8 +3515,6 @@ Earth seeks forgiveness for the scholar, even the fish in
 
 116
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 water. The excellence of a scholar over a normal
 worshipper is like the difference between the brightness
@@ -3775,7 +3528,6 @@ Islam and Wealth
 In Islam, all wealth is actually the possession of Allah which
 humans are entrusted with. It is a responsibility; it must be
 earned through lawful means and spent in permissible ways.
-The Prophet () said:
 “A slave will not be able to take a step further on the Day
 of Judgment until he taken to account for (the following
 things): his time and how he spent it, his knowledge and
@@ -3796,8 +3548,6 @@ whatever He Wills He does (Qaddarullaah wa maa shaa fa‘al),’
 
 117
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 for indeed (the saying of) ‘if’ opens the door for Shaytaan’s
 works.” [Muslim]
@@ -3809,7 +3559,6 @@ you, the home of the Hereafter, and forget not your
 portion of legal enjoyment in this world, and do good as
 Allah has been good to you, and seek not mischief in the
 land. [28:77]
-The Prophet () said:
 “How good is pure wealth when it is in the possession of a
 righteous person!” [Ibn Hibbaan]
 Islam has forbidden that money be wasted. Allah () says:
@@ -3821,8 +3570,6 @@ ever ungrateful to his Rubb. [17:26-7]
 
 118
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 Conclusion
 I have tried my best to keep this book concise and thus have
@@ -3854,8 +3601,6 @@ stringent, or blindly follow things. Allah () says:
 
 119
 
-The Beginning and the End
-______________________________________________________________________________________________
 
 And when it is said to them: 'Come to what Allah has
 revealed and unto the Messenger [Muhammad ()].’

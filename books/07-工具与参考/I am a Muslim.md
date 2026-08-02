@@ -1,7 +1,5 @@
 # I am a Muslim
 
-> 来源: I am a Muslim.pdf
-
 I am a Muslim
 A Revised Edition
 By

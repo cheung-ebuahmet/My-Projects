@@ -1,46 +1,23 @@
 # My First Dua Companion
 
-> 来源: My First Dua Companion.pdf
-
 My First Dua Companion
 24 Selected Duas for a Little Muslim's Life
 
 My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
-My First Dua Companion
-24 Selected Duas for a Little Muslim's Life
 
-My Name................................
 
 ‫ﺑﺴﻢ ﷲ اﻟﺮﺣﻤﻦ اﻟﺮﺣﻴﻢ‬
 ‫اﻟﺤﻤﺪ ﻟﻠﻪ رب اﻟﻌﺎﻟﻤﻴﻦ‬
@@ -60,7 +37,6 @@ and all of his Companions.
 
 Table of Contents
 
-© www.studioarabiya.com
 
 Page 2
 
@@ -102,7 +78,6 @@ and ask Him to accept it from us and make it beneficial to
 others. Whatever mistake is contained in this work is from
 us, and we ask Allah SWT to forgive our shortcomings.
 
-© www.studioarabiya.com
 
 Page 3
 
@@ -125,7 +100,6 @@ dua before going to sleep.
 (Here dying and living represent sleep and wakefulness)
 (Al-Bukhari, Riyad as-Salihin 817)
 
-© www.studioarabiya.com
 
 Page 4
 
@@ -151,7 +125,6 @@ When we exit the bathroom or toilet, we say:
 [Ghufraanak.]
 “I seek Your forgiveness (O Allah)”
 (Hisn al-Muslim 11)
-© www.studioarabiya.com
 
 Page 5
 
@@ -184,7 +157,6 @@ razaqaneehi min ghayri Hawlin minnee wa laa quwwah.]
 “All praise is for Allah who fed me this and provided it for
 me without any might nor power from myself.”
 (At-Tirmidhi 3/159)
-© www.studioarabiya.com
 
 Page 6
 
@@ -210,7 +182,6 @@ will have his sins forgiven even if they are like the foam of
 the sea."
 (Al-Bukhari 7/168)
 
-© www.studioarabiya.com
 
 Page 7
 
@@ -230,7 +201,6 @@ forgiveness of Allah, and repent to Him more than
 seventy times in a day."
 (Al-Bukhari, cf. Al-Asqalani, Fathul-Bari 11/101)
 
-© www.studioarabiya.com
 
 Page 8
 
@@ -257,7 +227,6 @@ naHyaa wa bika namootu wa ilayka l-maSeer.]
 its beginning, You bring us life and you bring us death,
 and to You is our fate."
 (Sahih At-Tirmidhi 3/142.')
-© www.studioarabiya.com
 
 Page 9
 
@@ -289,7 +258,6 @@ goodness and the goodness of what it has been made for, and I seek
 Your protection from the evil of it and the evil of what it has been
 made for.”
 (Hisn al-Muslim 6)
-© www.studioarabiya.com
 
 Page 10
 
@@ -316,7 +284,6 @@ leave, and upon our Lord we depend.”
 [then say As-Salāmu `Alaykum to those present].
 (Hisn al-Muslim 18, Abu Dawud 4/325)
 
-© www.studioarabiya.com
 
 Page 11
 
@@ -360,7 +327,6 @@ Allah is the Most Great. Allah is the Most Great. Allah is the
 Most Great. Glory is to You. O Allah, I have wronged my own
 soul. Forgive me, for surely none forgives sins but You.”
 (Abu Dawud 3/34, At-Tirmidhi 5/501.Al-Albani, Sahih AtTirmidhi 3/156)
-© www.studioarabiya.com
 
 Page 12
 
@@ -371,7 +337,6 @@ Transportation
 When You
 Get Angry
 
-© www.studioarabiya.com
 
 Page 13
 
@@ -396,7 +361,6 @@ yawma yaqoomu l-Hisaab.]
 believers the Day the account is established."
 (Surah Ibraheem, 14:41)
 
-© www.studioarabiya.com
 
 Page 14
 
@@ -420,7 +384,6 @@ raHmatika wa anta arHamu r-raaHimeen.]
 into Your mercy, for You are the most merciful of the
 merciful."
 (Surah Al-A'raaf, 7:151)
-© www.studioarabiya.com
 
 Page 15
 
@@ -443,7 +406,6 @@ Knowledge
 Always ask Allah for guidance and beneficial
 knowledge.
 
-© www.studioarabiya.com
 
 Page 16
 
@@ -462,7 +424,6 @@ The Prophet (‫ )ﷺ‬said: "Whoever prays for Allah's
 blessings upon me once, will be blessed for it by Allah
 ten times." (Muslim 1/288)
 
-© www.studioarabiya.com
 
 Page 17
 
@@ -491,7 +452,6 @@ from our descendants a Muslim nation [in submission] to You.
 And show us our rites and accept our repentance. Indeed, You
 are the Accepting of repentance, the Merciful.”
 (Surah Al-Baqarah, 2:128)
-© www.studioarabiya.com
 
 Page 18
 
@@ -510,12 +470,8 @@ with wakefulness and fever".
 O Allah! Help me with .............................................................................
 ...................................................................................................................
 O Allah! Protect me from .......................................................................
-...................................................................................................................
 O Allah! Help my mom/dad/sister/brother/friend with ......................
-...................................................................................................................
 O Allah!......................................................................................................
-...................................................................................................................
-© www.studioarabiya.com
 
 Page 19
 
@@ -525,9 +481,6 @@ be in the Arabic language. You can make your own duas to ask
 for more personal things. Use these pages to write down some
 duas that you can say whenever needed insha'Allah!
 
-...................................................................................................................
-...................................................................................................................
-© www.studioarabiya.com
 
 Page 20
 

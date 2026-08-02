@@ -1,7 +1,5 @@
 # Prostration Due to Forgetfulness in the Prayer - Sujood as-Sahw
 
-> 来源: Prostration Due to Forgetfulness in the Prayer - Sujood as-Sahw.pdf
-
 ‫ِب ۡس ِبي ٱ ِب ٱلَّر ۡس َم ٰـ ِب ٱلَّر ِب ِبي‬
 Bismi Allahi Alrrahmani Alrraheemi
 

@@ -1,7 +1,5 @@
 # Muslim Brotherhood in Egypt
 
-> 来源: Muslim Brotherhood in Egypt.pdf
-
 Such a complex and lengthy system is set up specifically to
 prevent the infiltration of state security agents into the
 brotherhood, similar to what happened in other political parties

@@ -1,7 +1,5 @@
 # In the Footsteps of the Prophet
 
-> 来源: In the Footsteps of the Prophet.pdf
-
 IN THE
 FOOTSTEPS OF THE
 

@@ -1,8 +1,5 @@
 # An-Nawawi's Forty Hadiths
 
-> 来源: An-Nawawi's Forty Hadiths.pdf
-> 提取于: iSlam/圣训和圣行/An-Nawawi's Forty Hadiths.pdf
-
 Imam Nawawi’s forty hadeeth
 Yahya ibn Sharaf an-Nawawi
 
@@ -100,7 +97,6 @@ us knew him. He walked up and sat down in front of the Prophet (peace and blessi
 
 ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Allah be upon him), with his knees touching against the Prophet’s (peace and blessings
 of Allah be upon him) and placing the palms of his hands on his thighs he said, “O
@@ -146,9 +142,7 @@ On the authority of Abdullah ibn Masood (may Allah be pleased with him), who sai
 
 3
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 The Messenger of Allah (peace and blessings of Allah be upon him), and he is the
 truthful, the believed, narrated to us, “Verily the creation of each one of you is brought
@@ -194,9 +188,7 @@ On the authority of Tameem ibn Aus ad-Daree (may Allah be pleased with him):
 
 4
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 The Prophet (peace and blessings of Allah be upon him) said, “The deen (religion) is
 naseehah (advice, sincerity).” We said “To whom?” He (peace and blessings of Allah be
@@ -212,7 +204,6 @@ worthy of worship except Allah and that Muhammad is the Messenger of Allah, and
 until they establish the salah and pay the zakat. And if they do that then they will have
 gained protection from me for their lives and property, unless [they commit acts that
 are punishable] in Islam, and their reckoning will be with Allah.
-It was related by al-Bukhari and Muslim.
 
 Hadeeth 9
 On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
@@ -223,7 +214,6 @@ Prophets that destroyed [the nations] who were before you.”
 Related by al-Bukhari and Muslim.
 
 Hadeeth 10
-On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
 The Messenger of Allah (peace and blessings of Allah be upon him) said, “Allah the
 Almighty is Good and accepts only that which is good. And verily Allah has commanded
 the believers to do that which He has commanded the Messengers. So the Almighty
@@ -238,9 +228,7 @@ Narrated by Muslim.
 
 5
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Hadeeth 11
 On the authority of Abu Muhammad al-Hasan ibn Ali ibn Abee Talib (may Allah be pleased with
@@ -252,7 +240,6 @@ It was related by at-Tirmidhi and an-Nasai, with at-Tirmidhi saying that it was 
 (hasan saheeh) hadeeth.
 
 Hadeeth 12
-On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
 The Messenger of Allah (peace and blessings of Allah be upon him) said, “Part of the
 perfection of one’s Islam is his leaving that which does not concern him.”
 A hasan (good) hadeeth which was related by at-Tirmidhi and others in this fashion.
@@ -262,7 +249,6 @@ On the authority of Abu Hamzah Anas bin Malik (may Allah be pleased with him) �
 of the Messenger of Allah (peace and blessings of Allah be upon him) — that the Prophet (peace
 and blessings of Allah be upon him) said:
 None of you [truly] believes until he loves for his brother that which he loves for himself.
-It was related by al-Bukhari and Muslim.
 
 Hadeeth 14
 On the authority of Ibn Masood (may Allah be pleased with him) who said:
@@ -270,7 +256,6 @@ The Messenger of Allah (peace and blessings of Allah be upon him) said, “It is
 permissible to spill the blood of a Muslim except in three [instances]: the married
 person who commits adultery, a life for a life, and the one who forsakes his religion and
 separates from the community.”
-It was related by al-Bukhari and Muslim.
 
 Hadeeth 15
 On the authority of Abu Hurayrah (may Allah be pleased with him), that the Messenger of Allah
@@ -278,12 +263,9 @@ On the authority of Abu Hurayrah (may Allah be pleased with him), that the Messe
 Let him who believes in Allah and the Last Day speak good, or keep silent; and let him
 who believes in Allah and the Last Day be generous to his neighbour; and let him who
 believes in Allah and the Last Day be generous to his guest.
-It was related by al-Bukhari and Muslim.
 6
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Hadeeth 16
 On the authority of Abu Hurayrah (may Allah be pleased with him):
@@ -291,7 +273,6 @@ A man said to the Prophet (peace and blessings of Allah be upon him), “Counsel
 so he (peace and blessings of Allah be upon him) said, “Do not become angry.”
 The man repeated [his request for counsel] several times, and [each time] he (peace and
 blessings of Allah be upon him) said, “Do not become angry.”
-It was related by al-Bukhari and Muslim.
 
 Hadeeth 17
 On the authority of Abu Ya’la Shaddad bin Aws (may Allah be pleased with him), that the
@@ -299,7 +280,6 @@ Messenger of Allah (peace and blessings of Allah be upon him) said:
 Verily Allah has prescribed ihsan (proficiency, perfection) in all things. So if you kill
 then kill well; and if you slaughter, then slaughter well. Let each one of you sharpen his
 blade and let him spare suffering to the animal he slaughters.”
-It was related by Muslim.
 
 Hadeeth 18
 On the authority of Abu Dharr Jundub ibn Junadah, and Abu Abdur-Rahman Muadh bin Jabal
@@ -325,9 +305,7 @@ It was related by at-Tirmidhi, who said it was a good and sound hadeeth.
 Another narration, other than that of Tirmidhi, reads:
 7
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Be mindful of Allah, and you will find Him in front of you. Recognise and acknowledge
 Allah in times of ease and prosperity, and He will remember you in times of adversity.
@@ -348,7 +326,6 @@ On the authority of Abu ’Amr — and he is also called Abu ’Amrah — Sufyan
 I said, “O Messenger of Allah, tell me something about al-Islam which I can ask of no
 one but you.” He (peace and blessings of Allah be upon him) said, “Say I believe in
 Allah — and then be Steadfast.”
-It was related by Muslim.
 
 Hadeeth 22
 On the authority of Abu Abdullah Jabir bin Abdullah al-Ansaree (may Allah be pleased with him)
@@ -358,7 +335,6 @@ and said, “Do you think that if I perform the obligatory prayers, fast in Rama
 treat as lawful that which is halal, and treat as forbidden that which is haram, and
 do not increase upon that [in voluntary good deeds], then I shall enter Paradise?” He
 (peace and blessings of Allah be upon him) replied, “Yes.”
-It was related by Muslim.
 
 Hadeeth 23
 On the authority of Abu Malik al-Harith bin al-Harith al-Asharee (may Allah be pleased with him)
@@ -369,14 +345,11 @@ of iman (faith). ‘al-hamdu lillah (praise be to Allah)’ fills the scales, an
 that which is between heaven and earth. And the salah (prayer) is a light, and charity is
 8
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 a proof, and patience is illumination, and the Qur’an is a proof either for you or against
 you. Every person starts his day as a vendor of his soul, either freeing it or causing its
 ruin.”
-It was related by Muslim.
 
 Hadeeth 24
 On the authority of Abu Dharr al-Ghifaree (may Allah be pleased with him) from the Prophet
@@ -406,7 +379,6 @@ is decreased of the ocean when a needle is dipped into it.
 O My servants, it is but your deeds that I account for you, and then recompense you
 for. So he who finds good, let him praise Allah, and he who finds other than that, let
 him blame no one but himself.
-It was related by Muslim.
 
 Hadeeth 25
 Also on the authority of Abu Dharr (may Allah be pleased with him):
@@ -417,9 +389,7 @@ He (peace and blessings of Allah be upon him) said, “Has not Allah made things
 to give in charity? Truly every tasbeehah [saying: ‘subhan-Allah’] is a charity, and every
 9
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 takbeerah [saying: ‘Allahu akbar ’] is a charity, and every tahmeedah [saying: ‘al-hamdu
 lillah’] is a charity, and every tahleelah [saying: ‘laa ilaha illal Allah’] is a charity. And
@@ -430,24 +400,20 @@ some reward for that?” He (peace and blessings of Allah be upon him) said, “
 not see that if he were to act upon it [his desire] in an unlawful manner then he would
 be deserving of punishment? Likewise, if he were to act upon it in a lawful manner then
 he will be deserving of a reward.”
-It was related by Muslim.
 
 Hadeeth 26
-On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
 The Messenger of Allah (peace and blessings of Allah be upon him) said, “Every joint
 of a person must perform a charity each day that the sun rises: to judge justly between
 two people is a charity. To help a man with his mount, lifting him onto it or hoisting
 up his belongings onto it, is a charity. And the good word is a charity. And every step
 that you take towards the prayer is a charity, and removing a harmful object from the
 road is a charity.”
-It was related by al-Bukhari and Muslim.
 
 Hadeeth 27
 On the authority of an-Nawas bin Sam’an (may Allah be pleased with him), that the Prophet
 (peace and blessings of Allah be upon him) said:
 Righteousness is in good character, and wrongdoing is that which wavers in your soul,
 and which you dislike people finding out about.
-It was related by Muslim.
 And on the authority of Wabisah bin Ma’bad (may Allah be pleased with him) who said:
 I came to the Messenger of Allah (peace and blessings of Allah be upon him) and
 he (peace and blessings of Allah be upon him) said, “You have come to ask about
@@ -460,9 +426,7 @@ A good hadeeth transmitted from the musnads of the two imams, Ahmed bin Hambal a
 
 10
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Hadeeth 28
 On the authority of Abu Najeeh al-’Irbaad ibn Saariyah (may Allah be pleased with him) who said:
@@ -510,9 +474,7 @@ with him) — that the Messenger of Allah (peace and blessings of Allah be upon 
 
 11
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Verily Allah ta’ala has laid down religious obligations (fara’id ), so do not neglect them;
 and He has set limits, so do not overstep them; and He has forbidden some things, so
@@ -553,17 +515,13 @@ On the authority of Abu Sa’eed al-Khudree (may Allah be pleased with him) who 
 
 12
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 I heard the Messenger of Allah (peace and blessings of Allah be upon him) say, “Whosoever of you sees an evil, let him change it with his hand; and if he is not able to do so,
 then [let him change it] with his tongue; and if he is not able to do so, then with his
 heart — and that is the weakest of faith.”
-It was related by Muslim.
 
 Hadeeth 35
-On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
 The Messenger of Allah (peace and blessings of Allah be upon him) said, “Do not envy
 one another, and do not inflate prices for one another, and do not hate one another,
 and do not turn away from one another, and do not undercut one another in trade, but
@@ -573,7 +531,6 @@ does he hold him in contempt. Taqwa (piety) is right here [and he pointed to his
 three times]. It is evil enough for a man to hold his brother Muslim in contempt. The
 whole of a Muslim is inviolable for another Muslim: his blood, his property, and his
 honour.”
-It was related by Muslim.
 
 Hadeeth 36
 On the authority of Abu Hurayrah (may Allah be pleased with him), that the Prophet (peace and
@@ -600,9 +557,7 @@ it, then Allah writes it down with Himself as a complete good deed. And if he in
 to perform it and then did perform it, then Allah writes it down with Himself as from
 13
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 ten good deeds up to seven hundred times, up to many times multiplied. And if he
 intended to perform an evil deed, but did not do it, then Allah writes it down with
@@ -611,7 +566,6 @@ performed it, then Allah writes it down as one evil deed.”
 It was related by al-Bukhari and Muslim in their two Saheehs in these words.
 
 Hadeeth 38
-On the authority of Abu Hurayrah (may Allah be pleased with him) who said:
 The Messenger of Allah (peace and blessings of Allah be upon him) said, “Verily Allah
 ta’ala has said: ‘Whosoever shows enmity to a wali (friend) of Mine, then I have declared
 war against him. And My servant does not draw near to Me with anything more loved
@@ -641,9 +595,7 @@ It was related by al-Bukhari.
 
 14
 
-ISOC-0203-06-012
 
-Imam Nawawi’s forty hadeeth – Yahya ibn Sharaf an-Nawawi
 
 Hadeeth 41
 On the authority of Abu Muhammad Abdullah bin ’Amr bin al-’Aas (may Allah be pleased with
@@ -665,4 +617,3 @@ It was related by at-Tirmidhi, who said that it was a hasan hadeeth.
 
 15
 
-ISOC-0203-06-012

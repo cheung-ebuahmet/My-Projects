@@ -1,7 +1,5 @@
 # The Greeting of Peace
 
-> 来源: The Greeting of Peace.pdf
-
 NPO Reg Number: 2016/256811/08
 
 Projects by Muslim Central

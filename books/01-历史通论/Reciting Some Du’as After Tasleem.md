@@ -1,8 +1,5 @@
 # Reciting Some Du’as After Tasleem
 
-> 来源: Reciting Some Du’as After Tasleem.pdf
-> 提取于: iSlam/祈祷词·赞词/Reciting Some Du’as After Tasleem.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

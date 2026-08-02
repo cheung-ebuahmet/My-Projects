@@ -1,7 +1,5 @@
 # The Zheng He Voyages - A Reassessment
 
-> 来源: The Zheng He Voyages - A Reassessment.pdf
-
 Asia Research Institute
 Working Paper Series
 No. 31
@@ -97,7 +95,6 @@ The author wishes to thank Anthony Reid for comments and criticisms on an earlie
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 (“Zheng He was the greatest maritime voyager in history”)
 Tan Ta Sen (Asian Culture No. 27, June 2003)
@@ -136,7 +133,6 @@ commemorated in 2005), there will in the coming years be much more attention pai
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 to the Zheng He voyages and their position in world history. Greater attention will
 almost inevitably mean a more diverse range of views. As part of this process, I
@@ -166,7 +162,6 @@ To this end, he pursued three prongs of southern expansion:
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 a) The Invasion and Occupation of the Yun-nan Tai Polities-- Successful Ming
 Land-based Colonialism
@@ -211,7 +206,6 @@ See footnote 52.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 then almost tripled to 18,000 liang. When it was realised that this was impossible to
 meet, the levy was reduced to the original amount.8
@@ -258,7 +252,6 @@ Ming Tai-zong shi-lu, juan 32.1a.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 the senior Chinese representative in Yun-nan, Mu Sheng, launched an attack on Babai (Lan Na).15 The attempts at domination extended even to what is today Assam in
 India, with envoys carrying threats being despatched to Da-gu-la, the polity of Uttarakula which lay on the northern bank of the Brahmaputra River.16
@@ -302,7 +295,6 @@ Ming Tai-zong shi-lu, juan 57.2a-b.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 These processes continued well after the reign of Yong-le. The 1430s and
 1440s, in particular, saw massive military expeditions against the Tai polities of Yunnan, particularly the Tai Mao polity known to the Chinese as Lu-chuan, but those
@@ -341,7 +333,6 @@ today called Zhuang and Yao.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 each been ordered to supply 200,000 shi25 of grain to feed the expeditionary army,
 and Yun-nan was to arrange for 10,000 troops as reinforcements. The official account
@@ -388,7 +379,6 @@ The new name of the occupied Đại Việt.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 until 1428, when the Ming forces were driven out and the provincial status was
 formally withdrawn.
@@ -430,7 +420,6 @@ the French in Vietnam more than 450 years later.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 Jiao-zhi with the task of treasure collecting for the Emperor, but an equal amount of
 treasure collection appears to have been done for themselves.
@@ -468,7 +457,6 @@ Fu (宋福)to Siam in 1395.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 apparently responsible for the polities in the Eastern Ocean and brought envoys and
 rulers to China from there —Bo-ni, Pangasinan, Sulu and Luzon. The listing in the
@@ -505,7 +493,6 @@ Ming Tai-zong shi-lu, juan 19.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 first expedition, Zhe-jiang and other regional military commissions were ordered to
 build 1,180 ocean-going ships.41 By 1408, the task was assigned to a central ministry
@@ -549,7 +536,6 @@ Xuan-zong shi-lu, juan 26.2a.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 To enable these great fleets to maintain the pax Ming in the immediate region
 and sail through the Indian Ocean to Africa, it was necessary to create staging posts in
@@ -588,7 +574,6 @@ this time by both Majapahit in Java and Ayudhya in what is today Thailand.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 i) Attack on the Old Port Pacification Superintendency in Sumatra in 1407
 •
@@ -632,7 +617,6 @@ the Ming was trying to impose its dominance.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 which was the Ming’s major competitor for regional hegemony in maritime
 Southeast Asia, or Javanese forces opposed to Majapahit is indeed significant. .
@@ -678,7 +662,6 @@ The phonetics suggest Nawrahta, but this name does not accord with existing list
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 ways and start anew. If he does not reform, I will then order the generals to
 despatch the army. The troops will attack from the ocean route and you can
@@ -718,7 +701,6 @@ Tai-zong shi-lu, juan 118.4a.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 (v) Attack and capture of Su-gan-la of Samudera in 1415
 •
@@ -760,7 +742,6 @@ A reference to the inhabitants of Ayudhya.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 taijian xiyangji tongsu yanyi of 1597, which seems to have some basis in the
 events of the voyages, also notes how the Chinese forces used gunpowder
@@ -790,7 +771,6 @@ trade routes, one controlled trade, an essential element for the missions’ tre
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 necessary to ensure that the control was maintained. In their methods, the Ming,
 through these maritime missions, were engaged in what might be called proto
@@ -830,7 +810,6 @@ network with less violence on the coast of Guinea and more commerce), and sugges
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 “Portuguese” with “Chinese” we would have an excellent description of the Ming
 activities in Southeast Asia and the Indian Ocean in the first third of the 15th century.
@@ -862,7 +841,6 @@ Ming Ying-zong shi-lu, juan 132.8a.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 ‘Colonialism’ and the Ming
 Having examined three spheres of 15th-century Ming military activity in
@@ -897,7 +875,6 @@ Herold J. Wiens, China's March toward the Tropics. Hamden-Connecticut: Shoe Stri
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 to refer to Ming expansion? Does this Chinese expansion in the 14th and 15th
 centuries accord with Schumpeter’s definition of imperialism as being when “a state
@@ -933,7 +910,6 @@ Quoted in Ferro, Colonization, p. 14.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 institutions and policies, T.R. Adam defines colonialism as “the political control of an
 underdeveloped people whose social and economic life is directed by the dominant
@@ -975,7 +951,6 @@ University Press, 1978), p.18.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 distance” as an indispensable element of colonialism. Does this distance produce a
 qualitative difference in the phenomenon?
@@ -1015,7 +990,6 @@ Social Sciences, vol. 3, pp.1-6. (New York: Macmillan and Free Press, 1968).
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 it appears that there is quite some basis for classifying them as the actions of a
 colonial state.
@@ -1047,7 +1021,6 @@ colonial administration in the Tai areas of Yun-nan.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 Examination of the colonial experience in Southeast Asia has long remained
 limited to the period subsequent to the arrival of European forces in the region. The
@@ -1067,7 +1040,6 @@ economic base for the overseas ventures was a key factor.
 
 ARI WPS No. 31
 
-Wade, Zheng He Voyages
 
 Appendix:
 Eunuch-led Voyages to the Western and Eastern Oceans

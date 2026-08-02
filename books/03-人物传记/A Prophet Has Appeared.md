@@ -1,7 +1,5 @@
 # A Prophet Has Appeared
 
-> 来源: A Prophet Has Appeared.pdf
-
 A Prophet Has Appeared
 
 A Prophet Has Appeared
@@ -1432,7 +1430,6 @@ a false prophet has appeared. Abraham writes, “When [Sergius]
 the candidatus was killed by the Saracens, I was in Caesarea, and I
 went by ship to Sykamina.7 And they were saying, ‘The candidatus
 has been killed,’ and we Jews were overjoyed. And they were saying, ‘A prophet has appeared, coming with the Saracens, and he is
-The Te aching of Jacob
 
 [ 39 ]
 
@@ -1465,7 +1462,6 @@ historical tradition, one would certainly read this passage as indicating that M
 Saracens.”10
 [ 40 ]
 
-The Te aching of Jacob
 
 As for the letter’s report that Muhammad was “preaching the
 arrival of the anointed one who is to come, the Messiah,” there is
@@ -1491,7 +1487,6 @@ regularly named the Messiah in the Qur’an (e.g., 3:45, 4:157, 171–72,
 5:17, 72, 75, 9:30–31), and the Qur’an itself expects Jesus to return
 just before the Hour, as one of its signs. The most important passage
 associating his return with the Hour’s arrival is 43:57–61. According to its canonical vocalization, the final verse of this passage
-The Te aching of Jacob
 
 [ 41 ]
 
@@ -1519,7 +1514,6 @@ why his return occupies such a prominent role in Islamic eschatology to this day
 indicate the antiquity of this tradition.18 Accordingly, it appears that
 [ 42 ]
 
-The Te aching of Jacob
 
 expectation of Christ’s return at the eschaton was likely proclaimed
 in the Qur’an and was a part of the primitive kerygma of its community’s faith. Thus, Abraham’s report that this prophet was preaching
@@ -1546,7 +1540,6 @@ high-quality witness to the earliest history of Muhammad’s new
 religious movement. It is contemporary with the events that it
 describes, and it purports to derive its information from an eyewitness source in Palestine who had confirmed what he writes with followers of Muhammad who had met him. To be sure, we cannot be
 entirely certain that all of this is indeed factual, but nevertheless,
-The Te aching of Jacob
 
 [ 43 ]
 
@@ -1572,7 +1565,6 @@ non-Islamic, bear out much of what he reports.
 
 [ 44 ]
 
-The Te aching of Jacob
 
 2
 
@@ -2610,7 +2602,6 @@ is given as “Constans,” which does not appear to refer to a specific
 
 [ 82 ]
 
-The end-Times, ps.-ephRem The syRian
 
 historical individual. This is as one would expect, since this figure
 presumably has not yet appeared but is expected in the near future.
@@ -2636,7 +2627,6 @@ Because the biblical passage had lost its original resonance through
 the passage of time, another meaning had to be found that could
 make it speak to a new and very different historical context.
 
-The end-Times, ps.-ephRem The syRian
 
 [ 83 ]
 
@@ -2665,7 +2655,6 @@ this tradition to include the most recent imperial hegemons, the followers of Mu
 
 [ 84 ]
 
-The end-Times, ps.-ephRem The syRian
 
 Homily on the End-Times, 2–511
 2. Therefore, my beloved ones, the end-times have arrived. Behold,
@@ -2696,7 +2685,6 @@ forth among the bright stars, and the light of his face will gleam.
 Rulers will quake and tremble; the armies that they send forth will
 crumble. The nations of the earth will be terrified when they see the
 
-The end-Times, ps.-ephRem The syRian
 
 [ 85 ]
 
@@ -2730,7 +2718,6 @@ the day of resurrection.” A son will stand and watch his father sold
 into slavery. The tears of both will flow, with one groaning before
 [ 86 ]
 
-The end-Times, ps.-ephRem The syRian
 
 the other. Brother will see brother slaughtered and thrown to the
 ground, and they will lead him too into captivity to be a slave in a
@@ -2762,7 +2749,6 @@ Commentary
 This apocalypse, whose true author is unknown, seems to have been
 written not long after Muhammad’s followers swept in and swiftly
 seized control of much of the Roman and Sasanian Near East, probably sometime around 640 or not long thereafter. Indeed, for the
-The end-Times, ps.-ephRem The syRian
 
 [ 87 ]
 
@@ -2793,7 +2779,6 @@ original apocalypse, although there is some evidence, he maintains,
 that the original text derives from the age of Ephrem the Syrian,
 [ 88 ]
 
-The end-Times, ps.-ephRem The syRian
 
 Nevertheless, Suermann, as the others before him, is quite clear in
 dating the apocalyptic account of the arrival of Muhammad’s followers to sometime between 640 and 650.18
@@ -2818,7 +2803,6 @@ Despite these more recent waverings, the most likely date of
 this apocalypse in fact remains sometime during the early stages of
 the invasions by the sons of Hagar, and its composition around 640
 still seems like a good approximation. As Kmosko and other early
-The end-Times, ps.-ephRem The syRian
 
 [ 89 ]
 
@@ -2852,7 +2836,6 @@ As for the imposition of tribute, while it is not entirely impossible
 that this could refer to the jizya poll tax, it is far more likely, I think,
 [ 90 ]
 
-The end-Times, ps.-ephRem The syRian
 
 that this reference to tributes instead indicates payments on the part
 of cities and local authorities in acknowledgment of their submission
@@ -2879,7 +2862,6 @@ In Ps.-Ephrem’s Homily on the End-Times we find the imperial
 eschatology of the pre-Islamic period reframed in order to understand the circumstances of Rome’s defeat in the Near East and
 the new hegemony of Muhammad’s followers in the region. As
 Ps.-Ephrem’s apocalypse opens by describing the general conditions
-The end-Times, ps.-ephRem The syRian
 
 [ 91 ]
 
@@ -2908,7 +2890,6 @@ new religious movement in the seventh and eight centuries.
 
 [ 92 ]
 
-The end-Times, ps.-ephRem The syRian
 
 9
 
@@ -2986,7 +2967,6 @@ seems to have been instrumental in turning so many in Simeon’s
 province away from the Christian faith. This same “seducer,”
 Ishoʿyahb notes, had also been active “among us in the land of
 Radan,” a region just to the north of the capital Seleucia- Ctesiphon
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 [ 95 ]
 
@@ -3021,7 +3001,6 @@ Christian subjects hand over half of their belongings. Only if they
 abandoned their Christian faith would they be allowed to retain all
 [ 96 ]
 
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 of their property, an option, according to Ishoʿyahb, that inspired
 many Christians to embrace the faith of their conquerors.
@@ -3049,7 +3028,6 @@ One of the great mysteries of this passage, however, concerns
 the identity of the people of Mrwny’, with whom Ishoʿyahb lays the
 primary blame for such widespread defections from the faith in
 Simeon’s jurisdiction. Although Joseph Assemani originally suggested that this word refers to the inhabitants of Merv in modern
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 [ 97 ]
 
@@ -3083,7 +3061,6 @@ of these biographies there is no guarantee that Muhammad actually
 spoke such words from his deathbed.10 Nevertheless, this tradition
 [ 98 ]
 
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 is ascribed to the legendary early authority of Muhammad’s life, Ibn
 Shihāb al-Zuhrī (d. 742), via two lines of transmission, establishing
@@ -3112,7 +3089,6 @@ then, Ishoʿyahb’s report that the invaders encouraged Christians to
 hold on to their faith (for a fee, of course) derives from his own context and was not in fact the circumstance faced by the Christians of
 Mrwny’. Insofar as Ishoʿyahb seemingly aims to belittle Simeon by
 portraying him as a poor shepherd of his flock, it may be that he has
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 [ 99 ]
 
@@ -3143,7 +3119,6 @@ who will be considered below.
 
 [ 100 ]
 
-l e T T e r 14 c , i s h oʿ y a h b i i i o f a d i a b e n e
 
 10
 
@@ -3337,7 +3312,6 @@ I heard digging in that place like the sound of many people toiling
 and shouting and crying out and throwing lots of debris over the wall.
 [ 106 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 I was thinking then that it was the Egyptian people who were toiling,
 and as it were, I was distressed that they did not stop even at night.
@@ -3372,7 +3346,6 @@ our life, I am eager to compile only those that strengthen the faith
 of Christians and provide great encouragement to our brothers who
 have been taken captive and for all those who hear and read them
 with faith. Among these is the one now about to be told.
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 107 ]
 
@@ -3407,7 +3380,6 @@ with honor. Do not let us, like orphaned sheep, fall into the hands
 of these wolves [cf. Matt 10.16], but imitate Abraham and offer us
 [ 108 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 as a sacrifice to God in this holy place [cf. Gen 22.1–19]. And do not
 take pity on us, so that God will take pity on you. Sacrifice these your
@@ -3437,7 +3409,6 @@ desert his departure from this life. And he went to the Holy Bush
 to pray and receive the holy mysteries. And when he became ill in
 what is called the guesthouse, some of the holy fathers came to his
 side. Most of them are still alive, being eyewitnesses to these things.
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 109 ]
 
@@ -3475,7 +3446,6 @@ go downward. And that old woman is the fraud of their faith.’” Those
 who saw these things are still alive in the flesh unto this very day.
 [ 110 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 i i . 1 3 (C 8) 2 1
 
@@ -3508,7 +3478,6 @@ this miserable man found the courage to reveal these things in secret
 to some others of our brothers who are trustworthy.
 Let the church of Christ hear and rejoice greatly! Let the children of Christians hear these things and let them dance and preserve them indelibly! Let the children of Jews and infidels hear these
 things and let them be ashamed! Let those who do not confess that
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 111 ]
 
@@ -3544,7 +3513,6 @@ Although we can only be certain that this collection was compiled
 by 690 at the latest, as noted above, many of its tales are significantly earlier, as evidenced particularly by the second story (II.7),
 [ 112 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 which relates events from Jerusalem “thirty years ago.” In this
 same anecdote, Anastasius explains that he wrote this story down
@@ -3581,7 +3549,6 @@ as among the new Muslims.” The Dome, then, was not built under
 ʿAbd al-Malik with the intent of diverting the pilgrimage, as alleged
 
 in some later anti-Umayyad polemics, but rather it was intended to
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 113 ]
 
@@ -3613,7 +3580,6 @@ the invading Saracens for Christian holy places and relics as well
 as their unfathomable disregard for divine signs and wonders that
 [ 114 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 transpired before their very eyes. In the first story, from the longer
 version of this tale, Anastasius tells of events at the shrine of Saint
@@ -3641,7 +3607,6 @@ visible, as he himself could attest, having seen the icon and venerated it himse
 No doubt, the most important point of these stories for Anastasius and his readers was the wonders that were worked at these
 shrines, a testament in their view to the truth of their faith and the
 spiritual ignorance of their conquerors. For the historian, however, these anecdotes are especially interesting for their reports of
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 115 ]
 
@@ -3671,7 +3636,6 @@ thought this work was being done by “Egyptians,” only to discover
 that the laborers were in fact demons, who were assisting the Egyptians by continuing this work on their behalf at night. Of course,
 [ 116 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 Anastasius’s report of demonic labor on the Temple Mount is not to
 be believed, and indeed, demonic collaboration with Muhammad’s
@@ -3700,7 +3664,6 @@ that Anastasius here describes preliminary construction work on
 the Dome, particularly given his comments in this context rebutting
 those contemporaries who were claiming that the Temple was being
 rebuilt.34
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 117 ]
 
@@ -3736,7 +3699,6 @@ to wander in the deserts and live among the beasts for many years
 until he died in the monastery surrounded by the holy fathers, whom
 [ 118 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 Anastasius thinks were in fact angels. It is quite unexpected, I think,
 that our hero should escape with his life after having slain his own
@@ -3767,7 +3729,6 @@ was the death sought by the story’s protagonist and his family. Of
 course, it is possible that in this instance it is Anastasius, rather than
 Muhammad’s followers, who is determined to draw a firm religious
 boundary. It could be, for instance, that Muhammad’s followers
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 119 ]
 
@@ -3801,7 +3762,6 @@ their sacrifices are, of course, polemical and of little use for understanding t
 the Qur’an to the Believers’ practice of offering animal sacrifices at
 [ 120 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 a particular, distinctive place of worship, presented here on the basis
 of Christian eyewitnesses. As we will see in chapter 11, the Khuzistan
@@ -3829,7 +3789,6 @@ Binggeli, the text’s editor, suggests that these men should be
 understood as sailors, since the previous two anecdotes in the collection concern sailors from the Roman port of Klysma on the Red Sea.39
 Yet, the anecdote itself makes no indication of this status, and presumably such an assumption is intended to identify this shrine with
 Mecca based on outdated notions regarding Mecca’s importance in
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 121 ]
 
@@ -3858,7 +3817,6 @@ a response to the faith of their new rulers. Particularly noteworthy
 is the comment that these infidels insult Christ even more than the
 [ 122 ]
 
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 demons, since even the demons at least acknowledge that Christ is
 God. Clearly the issue of Christ’s divinity was already emerging as a
@@ -3886,7 +3844,6 @@ that there were likely many young Christians who were taken captive during the c
 masters. Such would seem to be the circumstances faced by the
 eight-year-old George. One should perhaps consider such possible
 compulsion alongside claims that Muhammad’s followers did not
-e d i f y i n g Ta l e s , a n a s Ta s i u s o f s i n a i
 
 [ 123 ]
 
@@ -4093,7 +4050,6 @@ extremely well fortified, with mighty rivers and canals surrounding it on all si
 by it is called Semiramis, named for the queen,11 and another one
 [ 130 ]
 
-T h e K h u z i s Ta n c h ro n i c l e
 
 Darayagan, named for Darius.12 And the greatest of them all is a
 mighty torrent that flows down from the northern mountains.
@@ -4126,7 +4082,6 @@ to capture it. Then, a certain man from Qatar among the foreigners there became 
 the wall. And the two of them conspired, and they went out to the
 Nomads and said to them, “If you give us a third of the spoils from
 the city, we will let you into the city.”17 And they made an agreement
-T h e K h u z i s Ta n c h ro n i c l e
 
 [ 131 ]
 
@@ -4164,7 +4119,6 @@ in possessions and also wanted to be far away from the jealousy of
 the Canaanites, he chose to dwell in the remote and vast places of
 [ 132 ]
 
-T h e K h u z i s Ta n c h ro n i c l e
 
 the desert. And since he was dwelling in tents, he built this place for
 worship of God and offering sacrifices. And because the memory of
@@ -4193,7 +4147,6 @@ this account, Muhammad was the leader of sons of Ishmael at the
 time of their invasion, seemingly in parallel fashion to Rustam’s
 leadership of the Sasanian army. Taking the passage at face value,
 and without knowledge of the much later Islamic historical tradition, one would certainly assume that the report identifies Muhammad as still alive at the time of the invasion and leading his followers
-T h e K h u z i s Ta n c h ro n i c l e
 
 [ 133 ]
 
@@ -4221,7 +4174,6 @@ confidence in the modern reader.”32 After retreating from the capital, Yazdger
 otherwise unknown Hormizdan the Mede. Muhammad’s followers
 [ 134 ]
 
-T h e K h u z i s Ta n c h ro n i c l e
 
 soon arrived and took control of the region and most of its cities,
 excepting only the fortified cities of Susa and Shushtar. Hormizdan
@@ -4250,7 +4202,6 @@ been able to learn about the “tent of Abraham,” an important cultic site for
 again is not specified, and while it is quite possible that this “tent”
 could refer to the Meccan Kaʿba, as with the reference in the previous section from Anastasius, one should not entirely exclude other
 possibilities at this stage.33 The main concern in this account of the
-T h e K h u z i s Ta n c h ro n i c l e
 
 [ 135 ]
 
@@ -4284,7 +4235,6 @@ destruction as a result of the Believers’ invasion, echoing similar reports in
 Nevertheless, these invaders were seeimingly willing to forego violence so long as they were paid an adequate tribute, as the truce with
 [ 136 ]
 
-T h e K h u z i s Ta n c h ro n i c l e
 
 Susa and Shushtar would seem to indicate. When they captured Susa
 the chronicle says that they stole the relics of the prophet Daniel from
@@ -4304,7 +4254,6 @@ remark that the successor of Ishoʿyahb II, the Catholicos Maremmeh
 seems to indicate in this instance a more positive and engaging attitude toward the Christians of the Near East and their leaders, as do
 the comments of Maremmeh’s successor, Ishoʿyahb III, seen above.
 
-T h e K h u z i s Ta n c h ro n i c l e
 
 [ 137 ]
 
@@ -4747,7 +4696,6 @@ they say that the people of the city made an outcry against the king
 
 [ 152 ]
 
-The maroniTe chronicle
 
 and were calling him a second Cain, a murderer of his brother. And
 greatly enraged, he left his son Constantine on his throne and taking
@@ -4778,7 +4726,6 @@ from the civil wars, he broke the truce with the Romans and no longer accepted a
 a truce, let them hand over their weapons and pay the tax (gzita). . . .
 [A folio is missing in the manuscript.]6
 
-The maroniTe chronicle
 
 [ 153 ]
 
@@ -4819,7 +4766,6 @@ of the chief conspirators against Uthmān, although he was put to
 death shortly thereafter in 656.10 The Maronite Chronicle seems to
 [ 154 ]
 
-The maroniTe chronicle
 
 place the death of ʿAlī’ and Ḥudhayfa mistakenly in the same year,
 
@@ -4848,7 +4794,6 @@ effectively forced the Miaphysites to continue paying him protection
 money so that he will not allow the Maronites to persecute them. In
 any case, the episode portrays the leader of the Believers playing a
 surprisingly influential role in deciding theological issues within the
-The maroniTe chronicle
 
 [ 155 ]
 
@@ -4883,7 +4828,6 @@ nature of the Believer’s new religious movement. In such a case, an
 intervention by Muʿāwiya in the doctrinal disputes of the Christians
 [ 156 ]
 
-The maroniTe chronicle
 
 would not simply reflect a concern for greater social stability among
 the various religious communities of his dominion. Rather, such
@@ -4914,7 +4858,6 @@ historians concering Muʿāwiya may in this case be based in some
 historical realities.
 If we follow Donner’s hypothesis regarding the interconfessional
 nature of the community of the Believers for the first several decades
-The maroniTe chronicle
 
 [ 157 ]
 
@@ -4944,7 +4887,6 @@ There is reason enough, then, on this basis for Muʿāwiya to have
 chosen Jerusalem for his coronation. Yet the sanctity of Jerusalem
 [ 158 ]
 
-The maroniTe chronicle
 
 and the Holy Land for Muhammad’s earliest followers is inextricably bound up with the matter of apparent proximity and overlap
 between the early Believers and the Jewish and Christian communities of the seventh-century Near East. The paramount sanctity
@@ -4969,7 +4911,6 @@ context of their Christian veneration. One could hardly ask for better evidence 
 open in its earliest history.23 According to this chronicle, Muʿāwiya’s
 first act as the community’s leader was to pray not in a mosque or
 on the Temple Mount, but in the two holiest Christian shrines dedicated to the two most imporant figures of the Christian tradition.
-The maroniTe chronicle
 
 [ 159 ]
 
@@ -5002,7 +4943,6 @@ Palm Sunday, as Heribert Busse argues, the Believers joined in the
 Christian celebrations of Holy Week. It did not take very long, however, before they abandoned this practice and turned their attention to the Temple Mount, where they would begin building not
 [ 160 ]
 
-The maroniTe chronicle
 
 long after the conquest, a project that would finally culminate in
 the Dome of the Rock and the al-Aqsā Mosque.26
@@ -5036,7 +4976,6 @@ and I see little reason to doubt it. Accordingly, we have in this
 chronicle, it would seem, substantial evidence that still at the
 time of Muʿāwiya’s enthronement, the community of the Believers
 remained an interconfessional religious movement that embraced
-The maroniTe chronicle
 
 [ 161 ]
 
@@ -5074,7 +5013,6 @@ coin was struck,”32 meaning that these coins were produced in large
 numbers, yet this coin type is extremely rare. As Clive Foss explains,
 [ 162 ]
 
-The maroniTe chronicle
 
 this evidence seems to indicate a situation in which a large number of coins were produced but failed to be accepted in circulation,
 precisely the circumstance that the Maronite Chronicle describes.
@@ -5083,7 +5021,6 @@ Although we know that Muʿāwiya minted silver in other regions,
 presumably no exemplars have been discovered from Syria because
 these crossless verions were rejected by the populus.33
 
-The maroniTe chronicle
 
 [ 163 ]
 
@@ -5169,7 +5106,6 @@ which stands in the southeast corner of the Haram al-Sharif.6
 
 [ 166 ]
 
-o n T h e h o ly p l ac e s , a d o m n á n / a R C u l f
 
 Nevertheless, I would propose that we should not completely rule
 out the possibility that there may be some sort of a relation between
@@ -5198,7 +5134,6 @@ Both Sebeos (chapter 6) and the Georgian fragment from John Moscos (chapter 7) d
 destroyed Temple soon after the Believers came into possession
 of Jerusalem, while other sources refer to building activities there
 
-o n T h e h o ly p l ac e s , a d o m n á n / a R C u l f
 
 [ 167 ]
 
@@ -5229,7 +5164,6 @@ the Dome appears to have served as a kind of ersatz Temple, constructed to resto
 in a state of humiliating devastation for almost six hundred years.10
 [ 168 ]
 
-o n T h e h o ly p l ac e s , a d o m n á n / a R C u l f
 
 In these early years, when the Dome was a stand-in for the Temple, the public was allowed to worship in the Dome only on Mondays
 and Thursdays, when they came to venerate its sacred stone.11 The
@@ -5258,7 +5192,6 @@ doing this in collaboration with the “Hagarenes,” who then appropriated the 
 structure elsewhere.
 One suspects that some sort of work on what would become the
 Dome of the Rock had already begun by the time of Arculf’s alleged
-o n T h e h o ly p l ac e s , a d o m n á n / a R C u l f
 
 [ 169 ]
 
@@ -5280,7 +5213,6 @@ sort of worship to its sacred precincts.
 
 [ 170 ]
 
-o n T h e h o ly p l ac e s , a d o m n á n / a R C u l f
 
 16
 
@@ -5357,7 +5289,6 @@ masters. Woe to Egypt because of the Persians, for they will take the
 church vessels and drink wine from them before the altar without
 fear or concern. Likewise, they will rape women in front of their husbands. And there will be great adversity and distress, and of those
 who survive, one-third of them will die from grief and sorrow.
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 173 ]
 
@@ -5392,7 +5323,6 @@ consensus that this Apocalypse of Shenoute was part of the Sahidic
 Coptic Life of Shenoute as it had taken shape by the end of the seventh
 [ 174 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 century, and moreover that this version is transmitted, with relative
 faithfulness, in the Arabic version of Shenoute’s Life. Accordingly,
@@ -5424,7 +5354,6 @@ most notably Ignác Goldziher, took these reports at face value, with
 the result that the Believers’ construction on the Temple Mount was
 understood to have begun as a specific response to the events of the
 Second Civil War.10 In such case, any reference to Muhammad’s followers building on the site of the Temple would be understood as
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 175 ]
 
@@ -5461,7 +5390,6 @@ such reports. Likewise, Goitein exhumed substantial evidence for
 the sanctity of Jerusalem and Palestine in Muhammad’s new religious movement, showing that it was not a product of Umayyad
 [ 176 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 political machinations but instead had its basis in the genuine religious beliefs of the early Believers.13 As Goitein rightly observes, it
 is extremely improbable that ʿAbd al-Malik would have attempted
@@ -5494,7 +5422,6 @@ the Believers had constructed a sanctuary on the Temple Mount, in
 the place of the Temple, well before ʿAbd al-Malik, a project that they
 began not long after taking control of Jerusalem. In similar fashion,
 the Apocalypse of Shenoute refers to the construction of a sanctuary
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 177 ]
 
@@ -5527,7 +5454,6 @@ on the site of the former Jewish temple, a task which would seem to
 have been initiated ca. 638.”16 Hoyland’s proposal is quite reasonable in light of the evidence, and it demands that we give serious
 [ 178 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 consideration to the likelihood that this Apocalypse of Shenoute was
 in fact composed sometime in the middle of the seventh century,
@@ -5555,7 +5481,6 @@ as it stands within the Qur’an itself, we must look to its broader context the
 “can be seen to be echoing the language of contemporary Christian
 controversy.”19 When read within this immediate Qur’anic context,
 then, the passage does not deny the reality of Christ’s death and crucifixion, but rather it rebukes the Jews for foolishly believing that
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 179 ]
 
@@ -5586,7 +5511,6 @@ on the cross and the rebuilding the Temple is also consistent with
 Jewish support for the Believers’ restoration of worship to the site of
 [ 180 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 the Temple, as we have seen reported in several other sources in this
 volume, including Sebeos (chapter 6), Anastasius (chapter 10), and
@@ -5616,7 +5540,6 @@ Finally, there is the peculiar equation of the sons of Ishmael
 with the sons of Esau, so that both are pursuing the “Christians.”
 Amélineau did not know what to make of these sons of Esau, whom
 he thought were “probably first cousins of the sons of Ishmael.”22
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 181 ]
 
@@ -5649,7 +5572,6 @@ the wicked Diophysite heretics loyal to the Roman imperial church.
 The majority of Egypt’s Christians rejected the two-natures Christology of the Council of Chalcedon that was officially sanctioned by
 [ 182 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 the Roman imperial church, and for this “disloyalty” they had been
 severely persecuted by the Roman authorities in the later sixth and
@@ -5677,7 +5599,6 @@ of a Chalcedonian, Sarjūn ibn Mans≥ū r (the father of John of Damascus), as 
 of the pro-Roman, Chalcedonian Maronites in that very chronicle
 and the fact that John later followed his father, Sarjūn, in the same
 position. There is some indication, Papaconstaninou proposes, that
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 [ 183 ]
 
@@ -5696,7 +5617,6 @@ the Believers’ polity.
 
 [ 184 ]
 
-T h e a p o c a ly p s e o f p s .- s h e n o u T e
 
 17
 
@@ -5780,7 +5700,6 @@ were their desire, and anger and rage were their food. They were not
 appeased by anything that was offered to them.
 And when they were successful and had done the will of the
 one who summoned them, they reigned and ruled over all the kingdoms of the world. And they subjected all the peoples to ruthless
-booK of main poinTs, John ba R penk ay e
 
 [ 187 ]
 
@@ -5818,7 +5737,6 @@ And every year their raiders went to distant regions and to the
 islands, bringing back captives from every people under heaven.
 [ 188 ]
 
-booK of main poinTs, John ba R penk ay e
 
 And from everyone they demanded only tribute and allowed them
 to remain in whatever faith they wished, for among them were also
@@ -5852,7 +5770,6 @@ Zubayr died, they set up his son after him in the emirate [ʾamīrūtā].
 The westerners had a general, ʿAbd al-Raḥmān bar Zāyāt [ʿUbayd
 
 Allāh ibn Ziyād],7 and the easterners had another one named
-booK of main poinTs, John ba R penk ay e
 
 [ 189 ]
 
@@ -5892,7 +5809,6 @@ shame, for they were defeated not by men but by weaklings. And the
 man who was prepared for the patriarchate was barely able to save his
 [ 190 ]
 
-booK of main poinTs, John ba R penk ay e
 
 cloak. The westerners were severely crushed, and their general also
 was killed. Their enemies took all the provisions that they had assembled, their wealth, possessions, weapons, and money, and in defeat
@@ -5921,7 +5837,6 @@ response to these divine signs, for which he chastises the current
 generation.]
 For the coming of these Shurt≥ ē and their victory is from God.
 And I believe that they will be the cause of the destruction of the
-booK of main poinTs, John ba R penk ay e
 
 [ 191 ]
 
@@ -5956,7 +5871,6 @@ stock aspersions against them, such as were de riguer among Christian writers of
 “barbarians,” who were filled with rage and thirsty for bloodshed
 [ 192 ]
 
-booK of main poinTs, John ba R penk ay e
 
 and plunder. Yet at the same time, he notes the remarkable tolerance that the Believers had for the Christians and especially their
 monks, and he believed that they had arisen through the Providence of God, who specifically prepared them to hold Christians
@@ -5984,7 +5898,6 @@ about the precise nature of the religous polity formed by Muhammad’s followers
 as to precisely when we should begin to talk about the actual establishment and function of state apparatus among the early Believers.
 Under the first four caliphs and up through the conclusion of the
 First Civil War in 661, it seems unlikely that there was much in the
-booK of main poinTs, John ba R penk ay e
 
 [ 193 ]
 
@@ -6018,7 +5931,6 @@ Muʿāwiya we get the first clear signs of a state with an army and
 a navy (the latter of which he founded while governor of Syria), a
 [ 194 ]
 
-booK of main poinTs, John ba R penk ay e
 
 police force, taxation and coinage, official state media bearing his
 name, and so on.13 It is no wonder, then, that for John, and presumably many other citizens of the seventh-century Near East as well,
@@ -6046,7 +5958,6 @@ have seen him as prophetic, his prophetic status was not understood
 as unique in the manner that it would be later. Insofar as Muhammad was viewed as a prophet, he was merely the last in a long line of
 monotheist prophets, including Moses and Jesus, whose revelations
 from the one true God were in their essentials identical with Muhammad’s message, as certain passages from the Qur’an itself indicate.15
-booK of main poinTs, John ba R penk ay e
 
 [ 195 ]
 
@@ -6080,7 +5991,6 @@ Christian sources describe him. John’s report that the Believers held
 the Christians in general and their monastics especially in honor
 [ 196 ]
 
-booK of main poinTs, John ba R penk ay e
 
 seems to confirm what we have already seen in Ishoʿyahb’s letter,
 written during the 650s in Adiabene, also in northern Mesopotamia.
@@ -6111,7 +6021,6 @@ particularly since he begins his account only after Yazīd’s death. We
 learn nothing, for instance of the revolt in Kufa on behalf of Ḥusayn
 ibn ʿAlī just after Yazīd’s accession, which Yazīd’s army put down
 while also killing Ḥusayn at the Battle of Karbala in 680.
-booK of main poinTs, John ba R penk ay e
 
 [ 197 ]
 
@@ -6149,7 +6058,6 @@ the same time “ideas about the pilgrimage and the sanctuary were
 involved in the conflict.”21 Ibn al-Zubayr’s revolt against the Umayyads was in large part a response to the Israelite and Jerusalemite
 [ 198 ]
 
-booK of main poinTs, John ba R penk ay e
 
 piety of the Umayyads, against which he championed a distinctively
 Arabian and “Islamic” holy land in the Hijaz centered on the Meccan
@@ -6190,7 +6098,6 @@ Brock rightly observes, this must be a mistake for ʿUbayd Allāh ibn
 
 Ziyād, who was the actual leader of the Umayyad forces in this area:
 ʿAbd al-Raḥmān was his brother and the governor of Khorasan.24
-booK of main poinTs, John ba R penk ay e
 
 [ 199 ]
 
@@ -6225,7 +6132,6 @@ been enslaved, the mawālī, that would join his army. The offer
 was apparently well received, and he amassed a force of thirteen
 [ 200 ]
 
-booK of main poinTs, John ba R penk ay e
 
 thousand former slaves who set off with only minimal armaments
 under the leadership of the general Ibrāhīm ibn al-Ashtar to meet
@@ -6255,7 +6161,6 @@ near approach, who will defeat the sons of Ishmael, after which the
 end of the world will arrive, in the very near future, according to
 John’s estimation.
 
-booK of main poinTs, John ba R penk ay e
 
 [ 201 ]
 
@@ -6341,7 +6246,6 @@ shrine. Again, there is no way that this can be made consistent with
 a Meccan Kaʿba. From Basra and Kufa one would turn even more
 [ 204 ]
 
-fourTh leTTer, JaCob of e de s s a
 
 sharply south than from Alexandria. And while minor astronomical inaccuracies might be understandable, here we are dealing with
 major divergences from the supposedly “correct” direction, and the
@@ -6367,7 +6271,6 @@ was not a standard practice among Muhammad’s early followers,
 but this shrine and its veneration instead emerged only gradually as
 a central focus of Islamic faith and practice. As I have noted elsewhere, there can be little question that the original direction of prayer
 for Muhammad’s followers was indeed Jerusalem.6 The Qur’an itself
-fourTh leTTer, JaCob of e de s s a
 
 [ 205 ]
 
@@ -6398,7 +6301,6 @@ any significant presence at all in the seventh-century Hijaz, when
 this remains rather doubtful in light of the current state of our evidence. Although Christianity had literally encircled the Hijaz by
 [ 206 ]
 
-fourTh leTTer, JaCob of e de s s a
 
 Muhammad’s lifetime, there is simply no evidence of a significant
 Christian community in either Mecca or Medina.13 Consequently,
@@ -6432,7 +6334,6 @@ accounts of the construction of Kufa’s mosque in 638 clearly indicate
 that the direction of the qibla was to the west, seemingly due west,
 exactly the direction of Jerusalem, leading Hoyland to conclude
 that the original direction of prayer in Kufa was indeed westward.18
-fourTh leTTer, JaCob of e de s s a
 
 [ 207 ]
 
@@ -6464,7 +6365,6 @@ the seventh century by ʿAbd al-Malik.
 
 [ 208 ]
 
-fourTh leTTer, JaCob of e de s s a
 
 19
 
@@ -6546,7 +6446,6 @@ relate. Robert Hoyland favors giving precedence to Theophanes’s
 brief account of Peter’s martyrdom (which, again affirms John of
 Damascus’s authorship),7 but the passage in question is quite confused and seems to reflect an amalgamation of various different
 Peters, including someone named Peter of Maiouma, which, one
-The passion of peTer of c a piTol i as
 
 [ 211 ]
 
@@ -6576,7 +6475,6 @@ over through flattery, while others were stolen away by the promise
 of gifts. And once it happened that they broke some people through
 [ 212 ]
 
-The passion of peTer of c a piTol i as
 
 coercion by torture and beat them into exchanging light for darkness and made them renounce the name of our Lord Jesus Christ.
 Because of this he was enraged and distressed and forsaking life. He
@@ -6603,7 +6501,6 @@ him, he fell into illness of the flesh so that he would become healthier in spir
 to death, but the longing of his spirit remained unyielding. He had
 only one desire, to die as a martyr for Christ’s sake, and one concern, one sorrow, one sadness: that he would go forth from the body
 without shedding his blood for Christ’s sake. Because of this, then,
-The passion of peTer of c a piTol i as
 
 [ 213 ]
 
@@ -6637,7 +6534,6 @@ mocks us? Look at how he has made our religion appear dishonored
 and ridiculed! Should we not kill him? Shall we not bring death upon
 [ 214 ]
 
-The passion of peTer of c a piTol i as
 
 him prematurely?” And they were about to do this, if they had not
 seen that he was in his final breath.
@@ -6669,7 +6565,6 @@ them in writing to ʿUmar, the son of Walid, the tyrant of the Arabs.
 
 authority over the Arabs settled in Jordan, and when he received their
 letter, he wrote to one named Zora, who had been given authority
-The passion of peTer of c a piTol i as
 
 [ 215 ]
 
@@ -6703,7 +6598,6 @@ boldness and a fearless mind, he said to them: “I am speaking the
 truth; I am not lying [cf. Rom 9.1]. I do not ever recall any deception
 [ 216 ]
 
-The passion of peTer of c a piTol i as
 
 of the mind during the time of my illness, and what I said then is
 true.” He said this, and with a great and brilliant voice and with a
@@ -6737,7 +6631,6 @@ for one month, bound with chains on his neck and with shackles on
 his hands. Therefore when they completed their journey, they came
 to Kassia, which is a mountain overlooking the city of Damascus,
 where once had been the beautiful monastery of Saint Theodore,
-The passion of peTer of c a piTol i as
 
 [ 217 ]
 
@@ -6778,7 +6671,6 @@ said to the holy one: “Why am I hearing talk about you? So be it if you
 want to confess Jesus as God, even though he is a man and servant of
 [ 218 ]
 
-The passion of peTer of c a piTol i as
 
 the Creator. Why have you insulted our religion? Why have you said
 that our peaceful prophet is the master of deception and the father
@@ -6806,7 +6698,6 @@ Greek and probably was translated directly from Greek into Georgian,
 without an Arabic intermediary as sometimes is the case.
 The scale of Christian persecution during the early Islamic
 period was certainly nothing close to what the early Christians faced
-The passion of peTer of c a piTol i as
 
 [ 219 ]
 
@@ -6835,7 +6726,6 @@ avert his execution are exceptional.14 The Islamic authorities, Walīd
 andʿUmar, who are also known from the Islamic tradition, and the
 [ 220 ]
 
-The passion of peTer of c a piTol i as
 
 local official Zora all seek a way to avoid killing Peter.15 Even after he
 has repeatedly denied that illness was the cause of his public denunciations of Muhammad’s claims to prophecy, these officials persistently try to convince him to take the easy way out: just say it was
@@ -6861,7 +6751,6 @@ As for Peter’s behavior in the narrative, his ardent desire to
 suffer a painful death, seemingly without necessity, undoubtedly
 strikes most modern readers as bizarre and utterly deranged. Moreover, given the circumstances of his execution, as described in this
 narrative, it is not entirely clear that Peter is in fact a proper martyr. According to the story of his Passion, Peter is put to death not so
-The passion of peTer of c a piTol i as
 
 [ 221 ]
 
@@ -6892,7 +6781,6 @@ they merely wish that he would shut up about their religion. It is true
 that Peter was allegedly inspired to speak out against Islam because
 [ 222 ]
 
-The passion of peTer of c a piTol i as
 
 he was enraged that some Christians had been lured away from their
 faith through bribery or even torture. He was greatly disturbed, or
@@ -6920,7 +6808,6 @@ Islamic Palestine that such prophecy had absolutely come to an end
 with John the Baptist and was no longer possible or even useful after
 God’s incarnation and direct revelation in Jesus Christ. The practical
 purpose of such rhetoric is relatively easy to grasp.
-The passion of peTer of c a piTol i as
 
 [ 223 ]
 
@@ -7010,7 +6897,6 @@ Conterno’s work draws our attention especially to the sections in
 which the parallels are “almost word for word.” These passages all
 [ 226 ]
 
-exCeRpTs fRom a losT gReek souRCe
 
 concern events from the seventh century, which they relate from a
 Byzantine point of view, and, perhaps most importantly, they bear
@@ -7037,7 +6923,6 @@ seventh century at the latest. In Glen Bowersock’s assessment, these
 accounts reflect “reports that were either contemporary with the
 events or were circulated soon afterward and subsequently written
 down in Greek before being incorporated into the Syriac and Arabic
-exCeRpTs fRom a losT gReek souRCe
 
 [ 227 ]
 
@@ -7071,7 +6956,6 @@ In this year ʿUmar invaded
 Palestine, and after he beseiged the Holy City for two years, he took
 [ 228 ]
 
-exCeRpTs fRom a losT gReek souRCe
 
 it by agreement, for Sophronius the bishop of Jerusalem received
 a guarantee of security for all of Palestine. And ʿUmar entered
@@ -7108,7 +6992,6 @@ he answered, “Because you asked me and you have shown me great
 honor, lend me these belonging to you to wear until you have taken
 my garments and given them to be washed, and when you return
 mine, take yours,” and thus he did.
-exCeRpTs fRom a losT gReek souRCe
 
 [ 229 ]
 
@@ -7147,7 +7030,6 @@ publications, the Believers’ determination to restore sanctity and
 worship to the site of the Jewish Temple is directly linked to their
 [ 230 ]
 
-exCeRpTs fRom a losT gReek souRCe
 
 imminent eschatological expectations and their resolve to reclaim
 the Abrahamic patrimony in advance of the final judgment and end
@@ -7176,7 +7058,6 @@ of these events related by Theophanes, he maintains, has distorted
 the original version preserved by the Semitic sources to a polemical
 end, and is to be effectively disregarded in their favor, a conclusion
 in which he follows Conterno.19
-exCeRpTs fRom a losT gReek souRCe
 
 [ 231 ]
 
@@ -7207,7 +7088,6 @@ Sophronius’s own words, then, are not consistent with Conterno and Bowersock�
 between the two leaders in which the patriarch warmly welcomed
 [ 232 ]
 
-exCeRpTs fRom a losT gReek souRCe
 
 the humble caliph as they carved out a diplomatic détente in mutual
 admiration. To be sure, it is not impossible that something like this
@@ -7232,7 +7112,6 @@ to a paradigm of Christian-Muslim relations different from Sophronius’s own ex
 Sophronius consistently explains the sufferings wrought by the Saracens against the Christians of Palestine as an instrument of divine
 punishment. Yet this judgment does not somehow obviate the fact
 that Sophronius describes Muhammad’s followers in terms largely
-exCeRpTs fRom a losT gReek souRCe
 
 [ 233 ]
 
@@ -7251,7 +7130,6 @@ these four medieval chronicles. Certainly, no aspect of the so-called
 
 [ 234 ]
 
-exCeRpTs fRom a losT gReek souRCe
 
 Notes
 

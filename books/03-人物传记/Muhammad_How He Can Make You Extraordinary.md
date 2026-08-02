@@ -1,7 +1,5 @@
 # Muhammad_How He Can Make You Extraordinary
 
-> 来源: Muhammad_How He Can Make You Extraordinary.pdf
-
 HESHAM AL-AWADI
 
 MUHAMMAD
@@ -5006,317 +5004,128 @@ Books, Cirencester, 2011).
 
 Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)
 
-House Publishing, Wales, 2009).
 
-Secretan, Lance, Inspire: What Great Leaders Do (John Wiley,
-New Jersey, 2004).
 
-Ramirez, Laura, “Parenting Tips: Giving Your Children the Gift
 of
 Time"
-http://parenting-child-development.com
-/parenting-tips.html (accessed 15 April 2016).
 
-Severe, Sal, How to Behave So Your Children Will, Too!
-(Penguin, New York, 2003).
 
-Ramsey, Robert, 501 Ways to Boost Your Child's Self Esteem
-(Contemporary* Books, Chicago, 2003).
 
-Shenk, David, The Genius in all of Us (Icon Books, London,
 2010).
 
-Rayan, M, Adaptability: How to Survive Change You Didn't
-Ask For (Broadway Books, New York, 2009).
 
-Umari, Akram, As-Sirah al-Nabawiya as-Sahihah (The
-Authoritative History of the Prophet Muhammad), 2
-Volumes (Obeikan Publishing, Riyadh, 1996).
 
-Salahi, Adil, Muhammad: Man and Prophet (The Islamic
-Foundation, Leicestershire, 2002).
 
-Scouller, James, The Three Levels of Leadership (Management
-Books, Cirencester, 2011).
 
-Wheatley, Margaret, Leadership and the New Science (BerrettKoehler Publishers, New York, 2009)

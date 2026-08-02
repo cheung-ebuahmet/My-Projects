@@ -1,8 +1,5 @@
 # ISLAM AND THE WEST - NARRATIVES OF CONFLICT AND CONFLICT TRANSFORMATION
 
-> 来源: ISLAM AND THE WEST - NARRATIVES OF CONFLICT AND CONFLICT TRANSFORMATION.pdf
-> 提取于: iSlam/伊斯兰与现代·比较宗教/ISLAM AND THE WEST - NARRATIVES OF CONFLICT AND CONFLICT TRANSFORMATION.pdf
-
 International Journal of Peace Studies, Volume 9, Number 1, Spring/Summer 2004
 
 ISLAM AND THE WEST:
@@ -81,7 +78,6 @@ West. Recent events have significantly increased temptations on both sides of th
 macro-cultural relationship to embrace deeply polarized and conflict-saturated narratives.
 At the popular level, narratives of intercultural rivalry have already become dominant.
 
-Nathan C. Funk and Abdul Aziz Said
 
 3
 
@@ -124,7 +120,6 @@ effective settlements. An essential part of the search for constructive response
 
 4
 
-Islam and the West
 
 conflict, Ross (2002, p. 304, emphasis added) notes, is “the development of new
 narratives, ones which do not directly challenge older ones, but which reframe them in
@@ -163,7 +158,6 @@ Muslims and Westerners have viewed the “other” as unassimilable – as a “
 wall” personage who speaks only to confirm their own greatness, virtue, and selfsufficiency. This idea of the “other” as an inferior rival or shadow of the “self” has led to
 dehumanizing stereotypes as well as to habits of selective perception in which negative
 
-Nathan C. Funk and Abdul Aziz Said
 
 5
 
@@ -210,7 +204,6 @@ Muslim Middle East, Westerners are inclined to believe, is a land of harsh extre
 
 6
 
-Islam and the West
 
 They are tempted to view it as a part of the world that may justifiably be considered
 strange and even arbitrary – a place that runs in accordance with unfamiliar rules that
@@ -254,7 +247,6 @@ the seventh century, the “Saracens” versus the Franks during the era of the 
 Ottoman Turks versus European empires in more recent times. To support speculations
 concerning the future volatility of cross-cultural relationships, conflicts between groups
 
-Nathan C. Funk and Abdul Aziz Said
 
 7
 
@@ -301,7 +293,6 @@ international system by adopting Western liberal models of thought and governanc
 
 8
 
-Islam and the West
 
 (Lewis, 1990, 1993). Where Muslim voices argue that cultural and political change
 proceed best when people are allowed to learn from their own trial and error process,
@@ -341,7 +332,6 @@ shaping relations between communal groups than remembered history: the history t
 the record-keepers, politicians, and storytellers of a community define as pertinent to
 challenges that the group faces today. The way we remember the past – what it says
 
-Nathan C. Funk and Abdul Aziz Said
 
 9
 
@@ -389,7 +379,6 @@ dynamism and cultural self-confidence. Muslims, after all, interpreted the rise 
 
 10
 
-Islam and the West
 
 a world-historical force as a sign of divine favor, just as Christian interpreters of Islam
 viewed the good fortunes of their counterparts with great existential discomfort. For
@@ -432,7 +421,6 @@ Particularly in the Middle East, this perception has remained acute even with th
 of colonialism, in no small part on account of Cold War geopolitics, Western oil interests,
 and the Arab-Israeli and Israeli-Palestinian conflicts.
 
-Nathan C. Funk and Abdul Aziz Said
 
 11
 
@@ -480,7 +468,6 @@ such criticism, contemporary Muslims locate freedom at the level of the communit
 
 12
 
-Islam and the West
 
 argue that the West has become estranged from itself, placing expediency ahead of all
 other values. These critiques of the “other” are deeply intertwined with political conflict
@@ -523,7 +510,6 @@ hear nuances in what Western countries and cultures are communicating.
 Whereas most middle-class Muslims encounter the West in multiple ways –
 through education, images of popular culture, and news of politics – the average
 
-Nathan C. Funk and Abdul Aziz Said
 
 13
 
@@ -571,7 +557,6 @@ hatred for America has more to do with Islam itself than with the tragic history
 
 14
 
-Islam and the West
 
 America’s relationships with Arabs and Middle Eastern Muslims. In the aftermath of
 September 11, many columnists interpreted the shocking acts of al Qaeda militants as a
@@ -613,7 +598,6 @@ West,” “Americans have become targets because their enemies hate freedom.”
 frequency with which such statements are expressed reveals strong psychological and
 cultural dynamics of conflict, in which the “self” is defined through narratives that use
 
-Nathan C. Funk and Abdul Aziz Said
 
 15
 
@@ -657,7 +641,6 @@ out of Arab, Biblicist, and Hellenic cultures, and cast an even wider net by int
 
 16
 
-Islam and the West
 
 Persian and Central Asian as well as Indian components within its cultural synthesis.
 Culturally and intellectually, Islam formed a bridge between East and West, and
@@ -701,7 +684,6 @@ humiliate or antagonize adversaries, giving rise to religious nationalism. While
 acknowledging that, from a historical perspective, Middle Eastern Islamic and Western
 cultures are both guilty of totalistic pretensions, they propose that present tensions are
 
-Nathan C. Funk and Abdul Aziz Said
 
 17
 
@@ -748,7 +730,6 @@ technological and political factors, combined with a determination not to submit
 
 18
 
-Islam and the West
 
 longer to the cultural humiliation of judging oneself by Western standards, has
 contributed to the growth in a tide of greater self-consciousness as Islamic peoples in the
@@ -790,7 +771,6 @@ only the Muslims, as a people, have not reversed the decline in their global sta
 Japanese, the Chinese, and the Europeans have all regained their world influence. Beset
 by a failure of secular nationalist movements to restore a sense of dignity and self-respect
 
-Nathan C. Funk and Abdul Aziz Said
 
 19
 
@@ -838,7 +818,6 @@ views is a leading source of radicalization; often the only “safe” space for
 
 20
 
-Islam and the West
 
 mosque. Opening political space and taking actions that ameliorate key grievances can
 help to correct this problem by providing a sense of political efficacy that inspires
@@ -880,7 +859,6 @@ religious denotation, we have found it more analytically useful to define fundam
 as a cultural pathology of intergroup conflict in which the ability to hear and
 communicate with others shuts down. Fundamentalism consists of a politicization of
 
-Nathan C. Funk and Abdul Aziz Said
 
 21
 
@@ -926,7 +904,6 @@ to a morality play.
 
 22
 
-Islam and the West
 
 The story of compatibility questions the comfortable assumptions of the story of
 confrontation, and seeks to counteract misperceptions and double standards. This means
@@ -966,7 +943,6 @@ on “Islam and the West” is deeply laden with presuppositions of irreconcilab
 categories; cultural and religious factors are obstacles to peacemaking, not resources. A
 “clash” is inevitable, and can only be managed.
 
-Nathan C. Funk and Abdul Aziz Said
 
 23
 
@@ -1013,7 +989,6 @@ impulses triggered by symbols (turbans, flags, the presence or absence of veils 
 
 24
 
-Islam and the West
 
 To fixate on symbols that trigger an “us versus them” mentality is to endure a
 psychopathic condition. This confusion of symbolic form with substance is precisely
@@ -1054,7 +1029,6 @@ opposed values can actually reinforce each other opens new possibilities both fo
 intercultural relations and for full development of the human personality.
 Conclusion: Implications for Peacemaking
 
-Nathan C. Funk and Abdul Aziz Said
 
 25
 
@@ -1101,7 +1075,6 @@ positive social values can be furthered. We need new ways of relating to one ano
 
 26
 
-Islam and the West
 
 the basis of what we might create together and not merely on the basis of that which we
 fear and desire to avoid.
@@ -1143,7 +1116,6 @@ New York: Anchor Books.
 Cohen, Anthony P. 1985. The Symbolic Construction of Community. New York:
 Routledge.
 
-Nathan C. Funk and Abdul Aziz Said
 
 27
 
@@ -1186,7 +1158,6 @@ Berkeley, CA: University of California Press.
 
 28
 
-Islam and the West
 
 Moussalli, Ahmad S. 1999. Moderate and Radical Islamic Fundamentalism: The Quest
 for Modernity, Legitimacy, and the Islamic State. Gainesville, FL: University

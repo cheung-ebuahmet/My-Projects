@@ -1,7 +1,5 @@
 # Islam for Children
 
-> 来源: Islam for Children.pdf
-
 f尹 其斤 J
 
 ..,..

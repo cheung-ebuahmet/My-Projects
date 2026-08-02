@@ -1,8 +1,5 @@
 # Treatise on Prayer
 
-> 来源: Treatise on Prayer.pdf
-> 提取于: iSlam/伊斯兰法学（教法）/Treatise on Prayer.pdf
-
 Introduction
 Verily, all praise is due to Allah, we praise Him and we seek His aid and we ask His
 forgiveness, we seek shelter from the evil of ourselves and from the wickedness of
@@ -91,7 +88,6 @@ Ibn Hibban
 7
 Muslim
 8
-Bukhari and Muslim.
 
 And it is recorded from the Prophet's Companions that they said: «Allah's Messenger
 used to stand up straight while we were still prostrating.»
@@ -479,7 +475,6 @@ and are fearful of incurring sins of their own or of the worshippers behind them
 perform Salah (pray) badly. And the reciters (Qari) are those who have memorized
 25
 
-Bukhari and Muslim.
 Also narrated by Tabari and al-Khateeb al-Baghdadi from Ibn 'Umar.
 27
 At-Tabarani. This has been narrated by al-`Uqayli in his book adh-Dhu 'afa'
@@ -1070,7 +1065,6 @@ the religion. It is the first of his deeds about which the slave will be asked o
 77
 
 Fuqaha': Sing: faqeeh; Scholars of Islamic jurisprudence.
-Bukhari and Muslim.
 79
 by Ahmed, Malik and ad-Darimi.
 80
@@ -1119,7 +1113,6 @@ remote. Between me and the mosque there are palm trees and a ravine — is there
 
 82
 
-Bukhari and Muslim.
 Shaykh al-Islam ibn Taymiyah has mentioned in his book al-Qawa'id an-Nooraniya al-Fiqhiyyah —
 The Enlightened Rules of Fiqh that this narration is not attributable to the Prophet (pbuh) with an
 authentic sanad, but that it is a saying of 'Ali (may Allah be pleased with him). At all accounts, there is
@@ -1181,7 +1174,6 @@ perfectly, just as it is obligatory for a person who put on garments of Hajj (Ih
 87
 88
 
-Bukhari and Muslim.
 Al-Mundhiri.
 
 cloth) to perform Hajj perfectly, even though it may be a voluntary act. And whoever
@@ -1283,4 +1275,3 @@ speech amongst the Arabs, and Allah knows best.
 This is the well known hadith of the man who performed Salah (prayed) badly, reported by
 Bukhari, Muslim, Abu Dawood, Tirmidhi, Nasa'i and Ibn Majah.
 92
-Bukhari and Muslim.

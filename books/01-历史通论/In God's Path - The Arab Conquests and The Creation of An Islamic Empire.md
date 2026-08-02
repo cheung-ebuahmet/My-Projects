@@ -1,7 +1,5 @@
 # In God's Path - The Arab Conquests and The Creation of An Islamic Empire
 
-> 来源: In God's Path - The Arab Conquests and The Creation of An Islamic Empire.pdf
-
 In God’s Path
 
 Ancient Warfare and Civilization
@@ -280,7 +278,6 @@ the implementation of God’s plan for His chosen people. Just as Eusebius of
 
 4
 
- I n G od ’ s P ath
 
 Caesarea (d. 339) began his Ecclesiastical History with Christ, so Muslim historians made a strong distinction between profane time, when “barbarity”
 (jahl) prevailed, and sacred time, when Muhammad founded his community at
@@ -346,7 +343,6 @@ Kurds, Berbers, etc.). This causes much confusion among students, and among
 
 6
 
- I n G od ’ s P ath
 
 quite a few experts too, for it tends to be assumed that the Arabs conquered
 most or all of the lands that are majority Muslim today, whereas a large proportion of them were actually conquered much later, by local Muslim dynasties, of non-Arab origin, or were Islamized slowly by traders, missionaries, and
@@ -495,7 +491,6 @@ and attacking Persia from the north, supported by a large contingent of Turks.
 
 12
 
- I n G od ’ s P ath
 
 This enabled him to strike at the heart of his enemy’s empire, advancing on the
 capital, Seleucia-Ctesiphon, sacking royal residences as he went and putting the
@@ -566,7 +561,6 @@ Zoroastrianism never managed to gain quite the same status in the Persian
 
 14
 
- I n G od ’ s P ath
 
 world, but its clergymen certainly sought imperial backing. One third-century
 Zoroastrian high priest boasted in an inscription that “the king of kings conferred on me the staff and belt and created for me a higher rank and dignity,
@@ -620,7 +614,6 @@ Saudi Arabia, ca. late seventh century. © Christian Robin.
 
 16
 
- I n G od ’ s P ath
 
 FIGURE 1.3 Lintel of a martyrium with foundation inscription in Arabic and Greek,
 
@@ -726,7 +719,6 @@ other luxury goods from China that they were trading. Byzantine courtiers
 
 20
 
- I n G od ’ s P ath
 
 perhaps smiled when envoys from the khagan referred to him as “great lord of
 the seven races, master of the seven climes,”13 and yet it was only with the aid
@@ -791,7 +783,6 @@ are the subject of this book. They are very difficult to write about because
 
 22
 
- I n G od ’ s P ath
 
 the term “Arab” has, as one would expect, meant different things to different people at different times since it was first introduced into the historical
 record almost three millennia ago. A recent academic study into the nature of
@@ -860,7 +851,6 @@ communities. A whole new genre of literature arose that celebrated the more
 
 24
 
- I n G od ’ s P ath
 
 heroic representatives of this movement and their devout exploits. In texts
 of this genre the indigenous inhabitants of the desert lands loom large,
@@ -1088,7 +1078,6 @@ around 632–33 was the succession crisis resolved, when a grandson of Khusrau
 
 32
 
- I n G od ’ s P ath
 
 named Yazdgird took charge. In the meantime, the Persian lands had been left
 critically exposed to potential invaders.
@@ -1241,7 +1230,6 @@ world domination from the beginning, but it is inherently unlikely that he
 
 38
 
- I n G od ’ s P ath
 
 expected to spread his message so far from the outset. Certainly the Qur’an suggests that he had more local objectives: God wanted him to “warn the mother of
 towns [assumed to be Mecca] and those who live around it” (42:7; cf. 6:92), and
@@ -1328,7 +1316,6 @@ barely pay his soldiers their wages, much less you dogs!”9
 
 42
 
- I n G od ’ s P ath
 
 Before we get into the accounts of the battles themselves, it is worth making
 clear that we have no good descriptions of the tactics or weaponry employed
@@ -1400,7 +1387,6 @@ put them to the sword and put to flight Theodore, brother of the emperor
 
 44
 
- I n G od ’ s P ath
 
 Heraclius.” One might wonder that such a senior figure in the Byzantine establishment would be involved—perhaps there is confusion with an assistant of
 the provincial governor (vicarius) of the same name (i.e., Theodore), who was
@@ -1467,7 +1453,6 @@ the defense of the Syrian capital. Vahan marched from Antioch with the main
 
 46
 
- I n G od ’ s P ath
 
 army, apparently routing a small Arab exploratory force on the way, in the
 vicinity of Homs. In the early summer of 636 “an enormous multitude of
@@ -1648,7 +1633,6 @@ troops with encouraging words and distributing stipends.
 
 52
 
- I n G od ’ s P ath
 
 In the autumn of 637 the Persian army got under way. They crossed the
 river Tigris and slowly and inexorably drove the Arabs back, defeating them in
@@ -1704,7 +1688,6 @@ FIGURE 2.4 View of Zagros Mountains from the plains of Iraq. © Hugh Kennedy.
 
 54
 
- I n G od ’ s P ath
 
 The Jazira (Northern Mesopotamia; Map 2.2)
 The clashes narrated so far all happened in the southern parts of the Levant
@@ -1767,7 +1750,6 @@ have remained the case at least until the end of the seventh century.
 
 56
 
- I n G od ’ s P ath
 
 FIGURE 2.5 The walls of Dara in southeast Turkey (as seen in 1978). © Jim Crow.
 
@@ -1824,7 +1806,6 @@ particular monotheist persuasion. 29 This remained the case for some time
 
 58
 
- I n G od ’ s P ath
 
 after Muhammad’s death, though, once the Arab armies had entered Syria
 and Iraq, Jews became much less important and Christians much more so.
@@ -1893,7 +1874,6 @@ in 638 on the condition that they were given the top rate of stipends, and a
 
 60
 
- I n G od ’ s P ath
 
 contingent of Slavs defected from the Byzantines when promised resettlement
 in Syria, wives, and payments in money and kind.33
@@ -2026,7 +2006,6 @@ emperor Heraclius wished to rally his troops to fight the Persians, he emphasize
 
 64
 
- I n G od ’ s P ath
 
 sacrifice themselves to God for the sake of their compatriots and “to seize the
 martyrs’ crown.”41 These exhortations accord well with similarly encouraging
@@ -2224,7 +2203,6 @@ MAP 3.2 The Battle of Heliopolis.
 
 72
 
- I n G od ’ s P ath
 
 The Arab success had a number of significant consequences. The most
 immediate one was that the Arabs took control of Tendunias, for its garrison
@@ -2290,7 +2268,6 @@ disposed toward the conquerors. He also makes clear that the Arabs themselves we
 
 74
 
- I n G od ’ s P ath
 
 the Egyptians lay not in sectarian differences but in how to face this challenge: whether it was better to submit and make peace or to stand and fight.
 “A great strife had broken out between the inhabitants of Lower Egypt, and
@@ -2545,7 +2522,6 @@ any garrison there.”18
 
 82
 
- I n G od ’ s P ath
 
 Iran (Maps 2.3 and 3.3)
 At the same time ‘Amr was pushing into Egypt, other Arab armies were seeking to consolidate their hold on Iraq and to prepare the ground for extending
@@ -2589,7 +2565,6 @@ said to be either that of the prophet Daniel or of King Darius himself. Next
 
 84
 
- I n G od ’ s P ath
 
 FIGURE 3.2 Bridge over the river Karun at Shustar in southwest Iran. Drawing from
 
@@ -2646,7 +2621,6 @@ both eventually fell sometime in the early 650s. The latter allegedly suffered
 
 86
 
- I n G od ’ s P ath
 
 the massacre of 40,000 of its inhabitants, including many of the Sasanian elite
 who had sought sanctuary there in the homeland of their kings.20
@@ -2891,7 +2865,6 @@ in their swift defeat. The continual outbreaks of war between these two powers
 
 94
 
- I n G od ’ s P ath
 
 since 502, and in particular the almighty clash of 603–28, was a huge drain
 on their finances and manpower. Recruitment of troops was also adversely
@@ -3021,7 +2994,6 @@ in peace as long as they paid tribute.
 
 98
 
- I n G od ’ s P ath
 
 The Beginnings of Arab Government
 Although we can discern traces of a command structure in the execution of
@@ -3088,7 +3060,6 @@ stipend system is also sometimes attributed to a Persian precedent, though it
 
 10 0
 
- I n G od ’ s P ath
 
 may have suggested itself simply because the Arabs formerly in the employ of
 the empires had become accustomed to receiving stipends in return for military service. In order to facilitate payments to the Arab troops, they were, in
@@ -3192,7 +3163,6 @@ by a storm. This loss diminished the reputation of the caliph ‘Uthman somewhat
 
 104
 
- I n G od ’ s P ath
 
 656 to 661. They began to fight among themselves, observed the contemporary Armenian chronicler Sebeos: those in Egypt and Arabia united; they
 killed ‘Uthman, plundered the treasury, and installed another king, namely,
@@ -3292,7 +3262,6 @@ life on behalf of the king.” The emperor and his brother sailed as swiftly as
 they could back to Constantinople, while the rest of the Byzantine fleet was
 cut to pieces “on a sea so violent that it was said that dense spray ascended
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
 en
 ld
@@ -3418,7 +3387,6 @@ the pain of hunger and pestilence,” at which point the land force returned,
 
 110
 
- I n G od ’ s P ath
 
 plundering Anatolian towns along the way. Two other factors might have
 tipped the balance in favor of the Byzantines. The first is that the emperor
@@ -3475,7 +3443,6 @@ offer Mu‘awiya presents and to receive from him robes of gold and a banner of
 
 112
 
- I n G od ’ s P ath
 
 his own colors and, most important, the rank of prince of Armenia along with
 oversight of Georgia, Albania, and Siunik. These three principalities had been
@@ -3506,7 +3473,6 @@ In order to regain at least some of their prestige and avoid an all-out rebellio
 so two regiments were hurriedly dispatched to the north from Iraq. One contingent, headed by Habib ibn Maslama, had the objective of regaining control of Armenia. In the spring of 655 they moved against the Byzantines, who
 were besieging Nakhchawan. With relative ease they defeated them, slaying
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  113
 
@@ -3530,7 +3496,6 @@ Sea (ca. 1890). Photo from ca. 1890 by Dmitry Yermakov.
 
 114
 
- I n G od ’ s P ath
 
 then a large army of nomads appeared on the scene and they caught the Arabs
 in a classic pincer movement. One branch attacked them from the front, while
@@ -3563,7 +3528,6 @@ By 661, however, the Arab civil war was at an end and Mu‘awiya was reasserting
 emperor of Byzantium had been rendered powerless and weak by the Arabs,
 “who had consumed the former’s populous markets and cities like a flame,”
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  115
 
@@ -3601,7 +3565,6 @@ grip on the western central plateau around Nihawand and on the southwest
 
 116
 
- I n G od ’ s P ath
 
 provinces of Khuzistan, Fars, and Kirman, but the north and the east had
 experienced little more than opportunistic raiding. The only major Arab garrison was at Merv, and even here the troops were not permanently settled but
@@ -3783,7 +3746,6 @@ seams of precious metals, especially the silver mines of Panjshir, provided a
 
 122
 
- I n G od ’ s P ath
 
 good living for its inhabitants. The Arabs established reasonable control over
 Zarang and its hinterland, especially in the time of the long-serving governor
@@ -3818,7 +3780,6 @@ Africa (Map 4.3)
 Arab troops in North Africa also found further expansion very slow going.
 The core of Byzantine Africa, and subsequently of Arab Ifriqiya, consisted
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  123
 
@@ -3834,7 +3795,6 @@ kept mostly to the fertile agricultural areas near to the coast, and so the resi
 
 124
 
- I n G od ’ s P ath
 
 their own polities, which often exhibited an interesting blend of Byzantine
 and Moorish features. For example, an inscription of 508 from Altava, in
@@ -3868,7 +3828,6 @@ lot of restoration work, including the erection of ramparts, was carried out
 here around the year 540. On the lintel of one of the new city gates, accompanied by lavish ornamentation, was inscribed a poem that recorded how, “by
 the hand of Justinian,” the “terror of the Moors” had been replaced by sound
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  125
 
@@ -3894,7 +3853,6 @@ expanded in the ninth century. Photo by anonymous German Orientalist from ca. 19
 
 126
 
- I n G od ’ s P ath
 
 siege of Jalulah, which lies twenty miles northwest of Qayrawan. However,
 other candidates have been proposed. One early source states explicitly that
@@ -4026,7 +3984,6 @@ rather than using the hijra era that had become standard by his day, counting
 
 130
 
- I n G od ’ s P ath
 
 from the year in which Muhammad founded his community in Medina. It is
 very much in the tradition of ancient Middle Eastern kings and suggests that
@@ -4126,7 +4083,6 @@ same class and upbringing as himself. They share the same language of refined
 politeness: “my brother, admirable in all ways,” “my God-guarded master and
 brother,” “your honourable and admirable Friendship.” As a member of the
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  133
 
@@ -4163,7 +4119,6 @@ a framework for governing the lands that the Arabs had newly acquired was
 
 134
 
- I n G od ’ s P ath
 
 criticized. Later scholars were unanimous that whereas the caliphs in Medina
 (Abu Bakr, ‘Umar, ‘Uthman, and ‘Ali) had ministered to their subjects in
@@ -4197,7 +4152,6 @@ ibn Hanbal (d. 855) was won round to it.27 Those who accepted this historical
 vision called themselves Sunnis (those who held to the sunna/prescribed path),
 and those who rejected it formed distinct sects outside of this “orthodox”
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  135
 
@@ -4267,7 +4221,6 @@ of course important to his community: the Arabs “kept to the tradition
 of Muhammad, their instructor, to such an extent that they inflicted the
 death penalty on anyone who was seen to act brazenly against his laws,” says
 
-T he P ush for C onstantinople ( 6 5 2 – 6 8 5 )
 
  137
 
@@ -4348,7 +4301,6 @@ that the Arab regime was still a force to be reckoned with. He made a couple
 
 14 0
 
- I n G od ’ s P ath
 
 FIGURE 5.1 Silver coin of Qatari ibn al-Fuja’a, Bishapur, dated 75 ah (694–95),
 
@@ -4397,7 +4349,6 @@ soon had an opportunity to do so, for in 692 the peace treaty concluded by
 
 142
 
- I n G od ’ s P ath
 
 his father with Mu‘awiya and renewed by Marwan and ‘Abd al-Malik was
 dissolved amid mutual recriminations. The two sides marched out to meet
@@ -4465,7 +4416,6 @@ legend and mystery. Our earliest Muslim source notes only that in 692 Hassan
 
 14 4
 
- I n G od ’ s P ath
 
 ibn Nu‘man raided and conquered the Aures and that in 694 “the prophetess
 was killed,” while a tenth-century Christian chronicler places under the year
@@ -4498,7 +4448,6 @@ tribes. The literal meaning of baranis is “hoods” or “cowls,” which sugg
 that there was some difference in appearance; this is less obvious for the word
 butr, which means “cut off/removed,” though some Muslim sources state that
 
-T he G reat L eap F orward ( 6 8 5 – 7 1 5 )
 
  145
 
@@ -4621,7 +4570,6 @@ Arab forces.” Sogdia was divided into cantons, principally a city and its hint
 ruler they were all under Arab authority. Also Khuttal, in southern Tajikistan,
 and Ferghana, in southeast Uzbekistan, were under the control of the Arabs,
 
-T he G reat L eap F orward ( 6 8 5 – 7 1 5 )
 
  149
 
@@ -4659,7 +4607,6 @@ under the control of a new confederation known as the Turgesh. Alliances
 
 150
 
- I n G od ’ s P ath
 
 and confrontations between these powers—China, Tibet, the Turks, and the
 Arabs—as well as with local lords shifted to and fro in a rather intricate
@@ -4694,7 +4641,6 @@ great mud-brick walls of the city by tunneling underneath them, slaughtered all
 its fighting men and plundered its immense wealth. Only in the fourth season
 of hard campaigning was Bukhara overwhelmed. And there were a number of
 
-T he G reat L eap F orward ( 6 8 5 – 7 1 5 )
 
  151
 
@@ -4732,7 +4678,6 @@ his warriors and enslaved his people.” With a combined force of Basran and
 
 152
 
- I n G od ’ s P ath
 
 Kufan troops ‘Ubaydallah marched into Zabulistan, seizing livestock and
 reducing forts as he went. However, lured on by hopes of booty and glory he
@@ -4765,7 +4710,6 @@ deliver messages. He sent his brother up the Arghandab River, into Arrukhaj,
 but found that the Rutbil had withdrawn and left none behind bar the elderly
 and a few Arab corpses.
 
-T he G reat L eap F orward ( 6 8 5 – 7 1 5 )
 
  153
 
@@ -5097,7 +5041,6 @@ speaks Arabic is an Arab.”25
 
 16 4
 
- I n G od ’ s P ath
 
 One could say that the Arab Empire became an immigrant society, but
 people were not migrating from one country to another (though some were
@@ -5167,7 +5110,6 @@ and Turks.”27
 
 166
 
- I n G od ’ s P ath
 
 On the supply side, the Arabs found that there was no shortage of
 non-Arab volunteers. It was well known that “you only have to let a herald
@@ -5201,7 +5143,6 @@ Tabaristan, or else in one of the slave markets of Basra or Kufa. We do not
 know about Hayyan’s early career, but we find him as commander of the
 non-Arab forces in Khurasan in the early eighth century. He was particularly
 
-T he G reat L eap F orward ( 6 8 5 – 7 1 5 )
 
  167
 
@@ -5358,7 +5299,6 @@ stable succession for a while, but it also stoked increasing resentment, which
 
 172
 
- I n G od ’ s P ath
 
 FIGURE 6.1 Courtyard entrance to prayer hall of the Umayyad Mosque of Damascus,
 
@@ -5393,7 +5333,6 @@ booty to be extracted from the imperial city. As with previous attempts on
 
 174
 
- I n G od ’ s P ath
 
 FIGURE 6.3 External view of the Umayyad palace of Qasr al-Hayr al-Sharqi in
 
@@ -5449,7 +5388,6 @@ number of 1800.” However, the wind then dropped and the big ships,
 
 176
 
- I n G od ’ s P ath
 
 FIGURE 6.4 View of Theodosian walls of Constantinople (as seen ca. 1930). © Ian
 
@@ -5507,7 +5445,6 @@ livestock had either been eaten or perished of starvation. 5 He also sent food
 
 178
 
- I n G od ’ s P ath
 
 and money, and he issued a call throughout his empire to everyone who
 had a brother or other relative in the army under Maslama’s command to
@@ -5576,7 +5513,6 @@ the local Hispano-Roman aristocracies lest these unite to eject them.
 
 18 0
 
- I n G od ’ s P ath
 
 North Africa and the Berbers
 The Berber rebellion of the 740s occurred in many of the same areas where
@@ -5645,7 +5581,6 @@ expansion. Sensing an opportunity and encouraged by rumors that Arab rule
 
 182
 
- I n G od ’ s P ath
 
 was destined to last only one century, a number of Transoxanian nobles wrote
 to the Chinese emperor pleading for military support. The most interesting is
@@ -5702,7 +5637,6 @@ a local nobleman in typical Hu attire. © State Hermitage Museum, St. Petersburg
 
 18 4
 
- I n G od ’ s P ath
 
 Unfortunately for Dewashtich, the new governor of Khurasan was the
 implacable Sa‘id al-Harashi (722–24). Having received intelligence of the vulnerability of Arab rule in the region, Sa‘id crossed the river Oxus as soon as
@@ -5902,7 +5836,6 @@ region between the Caspian Gates and the Alan Gates, receiving or enforcing thei
 
 190
 
- I n G od ’ s P ath
 
 centuries beforehand, establishing a buffer zone between his realm and the
 steppe peoples to the north.
@@ -6096,7 +6029,6 @@ accordingly chosen for their challenge to Christianity, in particular Qur’an
 
 196
 
- I n G od ’ s P ath
 
 FIGURE 6.6 Arabic inscription of 109 ah (727–28) from Jabal Ramm in southern
 
@@ -6146,7 +6078,6 @@ Islam, did the division conqueror/conquered shift to Muslim/non-Muslim. In
 
 198
 
- I n G od ’ s P ath
 
 any case, it is only with ‘Umar II that we begin to have contemporary evidence
 for discriminatory policies.20 The stimulus for this seems to have been the
@@ -6214,7 +6145,6 @@ brings many benefits and those who are already citizens tend to be nervous
 
 200
 
- I n G od ’ s P ath
 
 that if the door is opened wide to immigrants those benefits will be diluted.
 The authorities would ideally like to accept only educated and skilled immigrants, but it can be difficult to justify a selection process on legal grounds
@@ -6347,7 +6277,6 @@ shadow and from it created a sun. He annihilated the shadow and
 
 204
 
- I n G od ’ s P ath
 
 said: “There should not be another god besides me.” He then made all
 creation from the two seas. He called forth the unbelievers from the
@@ -6768,7 +6697,6 @@ Khurasan. The question was rather whether one supported a narrow Arab
 
 218
 
- I n G od ’ s P ath
 
 focus for Islam (the “Arab” party) or a more cosmopolitan focus, which was
 open to alien wisdom and values (the “gentile” party). In modern terms, it was
@@ -6838,7 +6766,6 @@ the conquerors, hailing from Arabia, and from the conquered. Some
 
 220
 
- I n G od ’ s P ath
 
 modern scholars regard Arabia as having been cut off from the wider world in
 pre-Islamic times and so principally look for these ingredients in the cultures
@@ -6971,7 +6898,6 @@ rules). If we turn to collections of Muhammad’s sayings we find it written
 
 224
 
- I n G od ’ s P ath
 
 there that Muhammad was once approached by two men who disagreed about
 an inheritance and he told them to cast lots and to accept whatever result
@@ -7090,7 +7016,6 @@ to some degree acculturated to their ways. In fact, these sources hint that we
 
 228
 
- I n G od ’ s P ath
 
 should view many in Muhammad’s west Arabian coalition, its settled members
 as well as its nomads, not so much as outsiders seeking to despoil the empires

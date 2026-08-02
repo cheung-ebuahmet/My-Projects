@@ -1,7 +1,5 @@
 # A Visit to Madinah
 
-> 来源: A Visit to Madinah.pdf
-
 A VISIT TO MADINAH
 Prophet Muhammad for Little Hearts
 by

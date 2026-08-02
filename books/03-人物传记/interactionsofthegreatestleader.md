@@ -1,7 +1,5 @@
 # interactionsofthegreatestleader
 
-> 来源: interactionsofthegreatestleader.pdf
-
 Interactions Of The
 Greatest Leader
 The Prophet´s Dealings with
@@ -131,7 +129,6 @@ with Jinn.......................................................................
 Section Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, treated
 Cattle............................................................................................................................................................ 867
 
-The Prophet´s Dealings with Different People
 
 7
 
@@ -162,7 +159,6 @@ We have ensured that references are given to all the narrations and sto-
 
 8
 
-Interactions Of The Greatest Leader
 
 ries mentioned in the book, and divided the book into main chapters and
 sections within the chapters.
@@ -185,7 +181,6 @@ and to enable us to perform all that pleases Him.
 Zad Group
 14/4/1435 A.H.
 
-The Prophet´s Dealings with Different People
 
 9
 
@@ -217,7 +212,6 @@ following were the steps we went through to produce this valuable book:
 
 10
 
-Interactions Of The Greatest Leader
 
 • The texts and narrations of the book were collected from their original source and in their original language (Arabic) and an Arabic
 version of the book was produced.
@@ -252,7 +246,6 @@ We present this piece of work to our respected readers with the hope
 
 11
 
-The Prophet´s Dealings with Different People
 
 that we have succeeded in fulfilling the sought objective. However, this
 remains a human effort which can never be entirely error-free, and thus
@@ -264,7 +257,6 @@ Best regards,
 Hazem Ragab
 Translation Team Leader
 
-The Prophet´s Dealings with Different People
 
 13
 
@@ -294,7 +286,6 @@ the message that guided us to the Path of Allaah).
 
 14
 
-Interactions Of The Greatest Leader
 
 In the second term we pray that Allaah renders the Prophet, sallallaahu
 ‘alayhi wa sallam, free from any dispraised matter with regards to his mission and Nation and make his Nation blessed and increase those who call
@@ -323,7 +314,6 @@ are some of these narrations:
 1 Reported by At-Tirmithi (3546) and Ahmad (1736).
 2 Reported by At-Tirmithi (3545).
 
-The Prophet´s Dealings with Different People
 
 15
 
@@ -360,7 +350,6 @@ There are many reasons why one should say sallallaahu ‘alayhi wa sal1 Reported
 
 16
 
-Interactions Of The Greatest Leader
 
 lam upon hearing or reading his name. The following are some of these
 reasons:
@@ -389,7 +378,6 @@ of reward.” 1
 
 1 Ibn Salaah in his book Muqaddimat Ibn Salaah (pg. 188).
 
-The Prophet´s Dealings with Different People
 
 17
 
@@ -459,7 +447,6 @@ sallam, served two main objectives: he was a chosen Prophet and Messenger who de
 
 22
 
-Interactions Of The Greatest Leader
 
 an exemplary human being upon whom Muslims pattern their behavior
 and character. His guidance and practice is the only means to understand
@@ -490,7 +477,6 @@ Messenger of Allaah.”1
 Allaah sent His Messenger as mercy and guidance to humanity. Therefore, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, became the best of
 1 Tafseer Ibn Katheer (391/6).
 
-Chapter One: An Example To Humanity
 
 23
 
@@ -522,7 +508,6 @@ Thus, a doubter must become certain, a sinner must repent, and a believer must
 
 24
 
-Interactions Of The Greatest Leader
 
 become stronger in faith. It is through stories of the Prophets that one becomes
 able to follow their examples properly.”1
@@ -554,7 +539,6 @@ many traditions regarding his diligence in worship, despite the fact that
 1 Majmoo’ Al-Fataawa (178/5).
 2 Majmoo’ Al-Fataawa (170/19).
 
-Chapter One: An Example To Humanity
 
 25
 
@@ -594,7 +578,6 @@ We gave to him John, and amended for him his wife. Indeed, they used to
 
 26
 
-Interactions Of The Greatest Leader
 
 hasten to good deeds and supplicate Us in hope and fear, and they were
 to Us humbly submissive.» [Qur’aan 21:87-90]
@@ -620,7 +603,6 @@ Allaah told us that Prophet Yoosuf (Joseph), may Allaah exalt his mention, said 
 1 Reported by Muslim (1763).
 2 Tafseer As-Si’di (209/3).
 
-Chapter One: An Example To Humanity
 
 27
 
@@ -655,7 +637,6 @@ him.
 
 28
 
-Interactions Of The Greatest Leader
 
 come to me of knowledge that which has not come to you, so follow me;
 I will guide you to an even path.» [Qur’aan 19:43]
@@ -686,7 +667,6 @@ needs its soul, and more than an eye needs light to be able to see.
 In fact, every decreed obligation is surpassed by the obligation of
 following the example of the Prophets. If we neglect doing so for the
 
-Chapter One: An Example To Humanity
 
 29
 
@@ -715,7 +695,6 @@ And Allaah warned us against disobeying the Prophet of Allaah, sallallaahu ‘al
 
 30
 
-Interactions Of The Greatest Leader
 
 dissent from the Prophet’s order, lest Fitnah (trial) strike them or a painful punishment.» [Qur’aan 24:63]
 Because Allaah made Prophet Muhammad, sallallaahu ‘alayhi wa sallam, faultless:
@@ -742,7 +721,6 @@ Learning the Prophet’s biography is necessary to follow him:
 We must learn how to follow the example of the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam. We must learn various aspects of his life including the way he dealt with different people.
 
-Chapter One: An Example To Humanity
 
 31
 
@@ -774,7 +752,6 @@ book Fat-h Al-Baari (575/6).
 
 32
 
-Interactions Of The Greatest Leader
 
 One day he sent me somewhere on some business, but I said to myself, “I
 won’t go now” although I did [eventually] intend to go to where he commanded me. I came to the market (on my way) and passed by some children playing. Suddenly, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
@@ -808,7 +785,6 @@ Might, the Wise» until morning. I asked him about this, he, sallallaahu
 2 Reported by Al-Bukhaari (3149) and Muslim (1057).
 3 Reported by Al-Bukhaari (6102) and Muslim (2320).
 
-Chapter One: An Example To Humanity
 
 33
 
@@ -847,7 +823,6 @@ pleased with him.
 
 34
 
-Interactions Of The Greatest Leader
 
 humble as he was, a young girl servant would take him by the hand and
 go wherever she pleased (to ask her questions). 1
@@ -880,7 +855,6 @@ pleased with him. Al-Albaani ruled it as authentic in his book At-Ta’leeqaat A
 7 Reported by Ahmad (1045). Shu’ayb Al-Arna’oot ruled it as authentic.
 8 Reported by Muslim (1776).
 
-Chapter One: An Example To Humanity
 
 35
 
@@ -918,7 +892,6 @@ sallallaahu ‘alayhi wa sallam, responded: “What made my hair turn gray
 
 36
 
-Interactions Of The Greatest Leader
 
 were Chapters Hoode, Al-Waaqi’ah, Al-Mursalaat, Al-Naba’ and Al-Takweer.””1
 He, sallallaahu ‘alayhi wa sallam, was an example in being ascetic and
@@ -949,7 +922,6 @@ his white mule and Abu Sufyaan ibn Al-Haarith was holding its reins and
 3 Reported by Ibn Maajah (2890) on the authority of Anas ibn Maalik, may Allaah be pleased with
 him. Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah (2617).
 
-Chapter One: An Example To Humanity
 
 37
 
@@ -987,7 +959,6 @@ wet from his tears. And then he, sallallaahu ‘alayhi wa sallam, turned and
 
 38
 
-Interactions Of The Greatest Leader
 
 lay down and continued crying until Bilaal came to call the dawn prayer.
 When he saw him crying he said: ‘O Messenger of Allaah, do you cry (in
@@ -1018,7 +989,6 @@ sallallaahu ‘alayhi wa sallam, used to seek refuge with Allaah from the devil
 authentic.
 4 Reported by Al-Bukhaari (5046).
 
-Chapter One: An Example To Humanity
 
 39
 
@@ -1053,7 +1023,6 @@ Sa’eed Al-Khudri, may Allaah be pleased with him. Al-Albaani ruled it as authe
 
 40
 
-Interactions Of The Greatest Leader
 
 strength for fasting. He, sallallaahu ‘alayhi wa sallam, would sleep in order to
 gain strength to pray at night. And he would marry to break his lust, gain chastity, and increase his offspring. This Hadeeth (Prophetic narration) directs us
@@ -1086,7 +1055,6 @@ would pray for them before departing. 6 He, sallallaahu ‘alayhi wa sallam,
 5 Reported by Ahmad (16159). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (4768).
 6 Reported by Muslim (2042) on the authority of ‘Abdullaah ibn Busr, may Allaah be pleased with him.
 
-Chapter One: An Example To Humanity
 
 41
 
@@ -1125,7 +1093,6 @@ pleased with him. Al-Albaani ruled it as authentic.
 
 42
 
-Interactions Of The Greatest Leader
 
 generated reward and whenever he disliked something his facial expression would show it.
 Most of his laughter was in the form of smiling. The most that would
@@ -1155,10 +1122,8 @@ his eyes would become red, his voice would become loud, and he would
 2 Reported by Ahmad (21272) on the authority of Umaamah (or Umayyah), may Allaah be pleased
 with her.
 3 Reported by Al-Bukhaari (4582) Muslim (800) on the authority of Ibn Mas’ood, may Allaah be
-pleased with him.
 4 Zaad Al-Ma’aad (1/183).
 
-Chapter One: An Example To Humanity
 
 43
 
@@ -1193,7 +1158,6 @@ asked others to intercede for him. He, sallallaahu ‘alayhi wa sallam, did not 
 
 44
 
-Interactions Of The Greatest Leader
 
 angry when Bareerah (a freed slave) rejected his request for her to return to
 her husband. He, sallallaahu ‘alayhi wa sallam, was indeed the best of examples.
@@ -1225,7 +1189,6 @@ wearing his shoes, combing his hair, performing ablution and giving and
 1 Zaad Al-Ma’aad (165/1).
 2 Zaad Al-Ma’aad (494/1).
 
-Chapter One: An Example To Humanity
 
 45
 
@@ -1260,7 +1223,6 @@ obtaining a reward for performing them). An example for this would be,
 
 46
 
-Interactions Of The Greatest Leader
 
 sleeping on one’s right side. Another way of moving any deed in this
 section into the section of the recommended deeds would be a saying by
@@ -1294,7 +1256,6 @@ time, not giving a dowry when concluding the marriage contract and so on.
 Fourth: Deeds that are acts of worship: These are deeds which the
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, performed as acts of wor-
 
-Chapter One: An Example To Humanity
 
 47
 
@@ -1330,7 +1291,6 @@ narration is for Abu Daawood.
 
 48
 
-Interactions Of The Greatest Leader
 
 Conclusion:
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, taught us sound
@@ -1375,8 +1335,6 @@ wa sallam, dealt with his relatives.
 • Section Seven: How the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, dealt with his close Companions.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 51
 
@@ -1410,7 +1368,6 @@ obtain the satisfaction of their natural desires within the lawful ties of
 
 52
 
-Interactions Of The Greatest Leader
 
 marriage and forbidden all possible sources of temptation and also means
 of gratification of one’s self outside the fortress of marriage. At the same
@@ -1437,8 +1394,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, who was just when ruling; a leader
 cannot afford not to know the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, who was a stellar example in his leadership.
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was a leading example in the manner he dealt with his wives, and beacon of light that guides
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 53
 
@@ -1474,7 +1429,6 @@ Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (3314).
 
 54
 
-Interactions Of The Greatest Leader
 
 ment of his wives, many marital problems which we often hear about
 would be solved.
@@ -1504,8 +1458,6 @@ level of intercourse.”3
 2 Reported by Al-Bukhaari (5216) and Muslim (1474).
 3 ‘Umdat Al-Qaari (92/30).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 55
 
@@ -1544,7 +1496,6 @@ sallallaahu ‘alayhi wa sallam, had nine wives. So when he divided his stay
 
 56
 
-Interactions Of The Greatest Leader
 
 with them, the turn of the first wife did not come until the ninth day. They
 (all his wives) used to gather every night in the house of the one where he,
@@ -1578,8 +1529,6 @@ stay in touch with his wife all the time. He can send her SMS messages or
 2 The explanation of An-Nawawi on the book of Muslim (47/10).
 3 Reported by Al-Bukhaari (5189) and Muslim (2448).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 57
 
@@ -1618,7 +1567,6 @@ would lie down until it was time to pray.”3
 
 58
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, would talk and walk with them even
 during travel:
@@ -1649,8 +1597,6 @@ besides them, which resulted in them enquiring about his new marriage in a court
 1 Reported by Al-Bukhaari (5211) and Muslim (2445).
 2 Reported by Al-Bukhaari (4792) and Muslim (1428).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 59
 
@@ -1685,7 +1631,6 @@ prevails upon your mind.’ Thereupon he, sallallaahu ‘alayhi wa sallam, said:
 
 60
 
-Interactions Of The Greatest Leader
 
 “She was such and such a woman [praising her], and she was the mother
 of my children.””1
@@ -1717,8 +1662,6 @@ reminded him of Khadeejah:
 3 Reported by At-Tabaraani (319/16). Al-Haythami ruled it as sound (Hasan) in his book Majma’
 Az-Zawaa’id (360/9).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 61
 
@@ -1755,7 +1698,6 @@ proves her virtue because of what she did (when he was commissioned). He, sallal
 
 62
 
-Interactions Of The Greatest Leader
 
 lived with her twenty-five years while he lived a total of thirty-eight years after
 marrying her, which makes her period two thirds of the total. He lived with her a
@@ -1792,8 +1734,6 @@ friends:
 7 Reported by Al-Bukhaari (232) in his book Al-Adab Al-Mufrad. Al-Albaani ruled it as sound (Hasan)
 in his book Saheeh Al-Adab Al-Mufrad (172).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 63
 
@@ -1827,7 +1767,6 @@ Check As-Silsilah As-Saheehah (215/1).
 
 64
 
-Interactions Of The Greatest Leader
 
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said about
 Khadeejah, may Allaah be pleased with her: “Her love had been nurtured in my
@@ -1858,8 +1797,6 @@ and then leave for the congregational prayer without performing ablution
 2 The explanation of An-Nawawi on the book of Muslim (201/15).
 3 Reported by Al-Bukhaari (3662) and Muslim (2384).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 65
 
@@ -1883,7 +1820,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, placed his mouth where
 her mouth was after she ate or drank only to show her his love and compassion towards her.
 He, sallallaahu ‘alayhi wa sallam, would use the same Siwaak (tooth
 stick) his wife used:
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 1 Reported by At-Tirmithi (79), Abu Daawood (178), An-Nasaa’i (170) and Ibn Maajah (502). Al-Albaani ruled it as authentic in his book Saheeh Abu Daawood (172).
 2 Reported by Al-Bukhaari (1927) and Muslim (1106).
 3 Reported by Muslim (300).
@@ -1892,7 +1828,6 @@ stick) his wife used:
 
 66
 
-Interactions Of The Greatest Leader
 
 “It was one of the favors of Allaah upon me that the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, died in my house on the day of my turn
 while he was leaning against my chest, and Allaah made my saliva mix
@@ -1925,8 +1860,6 @@ Qur’aan.”s3
 2 Reported by Al-Bukhaari (4607) and Muslim (550).
 3 Reported by Al-Bukhaari (3672) and Muslim (267).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 67
 
@@ -1962,7 +1895,6 @@ He, sallallaahu ‘alayhi wa sallam, died with his head on his wife’s chest:
 
 68
 
-Interactions Of The Greatest Leader
 
 ‘Aa`ishah, may Allaah be pleased with her, narrated: “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, died in my house on the day of my turn
 while he was leaning against my chest.”1
@@ -1994,8 +1926,6 @@ referring to her skin color.
 7 Reported by An-Nasaa’i in his book As-Sunan Al-Kubra (8951). Al-Albaani ruled it as authentic in
 his book As-Silsilah As-Saheehah (3277). Ibn Hajar said: ‘I have not seen the nickname Humayraa’ mentioned in any authentic narration except this.” Fat-h Al-Baari (444/2).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 69
 
@@ -2031,7 +1961,6 @@ there”. He (the host) said: ‘Yes’ for the third time. Then the Messenger o
 
 70
 
-Interactions Of The Greatest Leader
 
 Allaah, sallallaahu ‘alayhi wa sallam, accepted his invitation, and both of
 them (him and ‘Aa’ishah) set out until they came to his house.”1
@@ -2058,8 +1987,6 @@ The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, practically applied th
 2 The explanation of An-Nawawi on the book of Muslim (209/13).
 3 Reported by Al-Bukhaari (2038) and Muslim (2175).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 71
 
@@ -2095,7 +2022,6 @@ book Saheeh Abu Daawood (1863).
 
 72
 
-Interactions Of The Greatest Leader
 
 tolerate whatever bad manners or wrong behavior their wives have and refrain
 from beating them are indeed the best amongst you.” 1
@@ -2131,8 +2057,6 @@ be pleased with him.
 may Allaah be pleased with him. Al-Albaani ruled it as sound (Hasan) in his book Saheeh Al-Jaami’
 (7880).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 73
 
@@ -2167,7 +2091,6 @@ was from them. The term, “responsibility due to relationship of marriage”
 
 74
 
-Interactions Of The Greatest Leader
 
 because the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, married a woman
 from them (Maariyah the mother of his son Ibraaheem).”1
@@ -2201,8 +2124,6 @@ may Allaah be pleased with her, and saddened her by calling her the daughter of
 a Jew (which she was). Safiyyah, may Allaah be pleased with her, cried and com1 The explanation of An-Nawawi on the book of Muslim (97/16).
 2 Reported by Al-Bukhaari (5228) and Muslim (2439).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 75
 
@@ -2240,7 +2161,6 @@ started wiping my tears with his hands.” 3
 
 76
 
-Interactions Of The Greatest Leader
 
 Wiping the wife’s tears with one’s hands is a great way of comforting
 her and expressing one’s emotions and feelings towards her. Though the
@@ -2273,8 +2193,6 @@ they became ill:
 ‘Aa’ishah narrated: “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 used to visit his wives when they fell sick and place his right hand and per1 Reported by Al-Bukhaari (316) and Muslim 1211).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 77
 
@@ -2312,13 +2230,11 @@ with the virtue of perseverance and console her. However, some people
 
 78
 
-Interactions Of The Greatest Leader
 
 lack this quality and you find many a man indifferent towards what his
 wife is suffering from and the hardships she faces, the afflictions that befall her and the problems she goes through.
 Some may even go to the extent of belittling her grief and sorrow,
 mocking her and making fun of what she is suffering from.
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “O Allaah, I make you witness
 that I conveyed the rights [and rulings pertaining to them] of two types of
 people, orphans and women.” 1
@@ -2341,8 +2257,6 @@ laughing with her. Abu Bakr was granted permission to enter, and addressed the P
 2 Reported by Ahmad (17927). Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah
 (2901).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 79
 
@@ -2375,12 +2289,10 @@ Al-Aswad ibn Yazeed, may Allaah have mercy upon him, narrated that
 of Allaah, sallallaahu ‘alayhi wa sallam, do inside his house?” She answered,
 “He, sallallaahu ‘alayhi wa sallam, kept himself busy helping his wife (in her
 1 Reported by Al-Bukhaari (89) and Muslim (1479) on the authority of Ibn ‘Abbaas, may Allaah be
-pleased with him.
 2 Fat-h Al-Baari (291/9).
 
 80
 
-Interactions Of The Greatest Leader
 
 housework), and when it was the time for the prayer, he, sallallaahu ‘alayhi
 wa sallam, would get up for prayer.” 1
@@ -2411,8 +2323,6 @@ Ash-Shamaa’il. Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’
 3 Reported by Ahmad (24382). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (4937).
 4 Reported by Al-Bukhaari (2893) and Muslim (1365).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 81
 
@@ -2450,7 +2360,6 @@ time:
 
 82
 
-Interactions Of The Greatest Leader
 
 ‘Aa’ishah, may Allaah be pleased with her, narrated: “The Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, would be very upset if he had a bad odor
@@ -2471,7 +2380,6 @@ and put on nice perfumes to receive him in the best appearance, he walks
 in on her with this bad odor of cigarettes.
 He, sallallaahu ‘alayhi wa sallam, adorned himself for his wives and
 would command people to do so:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “He who has hair should honor it.”4
 Al-’Atheem Abaadi, may Allaah have mercy upon him, said: “Meaning, let him
 clean it, oil it, comb it and not leave it disheveled, because cleanliness and a nice
@@ -2484,8 +2392,6 @@ for her, as Ibn ‘Abbaas, may Allaah be pleased with him, said: “I like to ad
 him. Al-Albaani ruled it as An-Nasaa’i in his book Saheeh Al-Jaami’ (6493).
 5 ‘Awn Al-Ma’bood (1183/9).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 83
 
@@ -2525,7 +2431,6 @@ to her through the window.
 
 84
 
-Interactions Of The Greatest Leader
 
 Allaah, sallallaahu ‘alayhi wa sallam, was an easy man to deal with and very
 well mannered, and whenever she (his wife) wished to do something, he
@@ -2561,8 +2466,6 @@ it is not a prohibited matter.”6
 his book As-Silsilah As-Saheehah (3277).
 6 The explanation of Ibn Battaal on the book of Al-Bukhaari (298/7).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 85
 
@@ -2598,7 +2501,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, allowed, and that these musical in1 
 
 86
 
-Interactions Of The Greatest Leader
 
 struments were not permitted, because the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, only allowed certain instruments. They move people
 and arouse their desires, invite people to sin and it is the introduction to
@@ -2616,7 +2518,6 @@ call them to join and play with me.”2
 An-Nawawi, may Allaah have mercy upon him, said: “This is a sign of his kindness and good treatment to his wife.”3
 ‘Aa’ishah, may Allaah be pleased with her, used to play with toys that were
 images of living creatures with their full image (including the head).
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “When the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, arrived
 after the expedition to Tabook or Khaybar (the narrator is doubtful), the
 wind raised an end of a curtain which was hung in front of her storeroom,
@@ -2630,8 +2531,6 @@ this that it has on it?” She replied: ‘Two wings.’ He, sallallaahu ‘alay
 2 Reported by Al-Bukhaari (6130) and Muslim (2440).
 3 The explanation of An-Nawawi on the book of Muslim (205/10).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 87
 
@@ -2668,7 +2567,6 @@ not gained weight yet. He, sallallaahu ‘alayhi wa sallam, said to the people:
 
 88
 
-Interactions Of The Greatest Leader
 
 lam, said to me: “Come so that I would race with you.” We did, and I outstripped him on my feet. He, sallallaahu ‘alayhi wa sallam, left me for some
 time, and then when I became fleshy (gained weight) and forgot about
@@ -2685,7 +2583,6 @@ Nowadays, many men feel embarrassed to do things like this with
 their wives, even if they were in an open desert. Some may even feel embarrassed to walk with their wives, let alone racing with her.
 He, sallallaahu ‘alayhi wa sallam, would talk with his wives while on a
 journey at night:
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “Whenever the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
 would set out on a journey, he used to cast lots amongst his wives. Once
 the lot came out in my favor and that of Hafsah’s. We (Hafsah, and myself)
@@ -2701,8 +2598,6 @@ and then rode with her until they came down. I thus missed (the company
 1 Reported by Ahmad (25745), Abu Daawood (2578) and Ibn Maajah (1979). Al-Albaani ruled it as
 authentic in his book As-Silsilah As-Saheehah (131).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 89
 
@@ -2740,7 +2635,6 @@ Prophet’s wife) visited us one day. The Messenger of Allaah, sallallaahu
 
 90
 
-Interactions Of The Greatest Leader
 
 and the other in her lap. I had cooked Hareerah (soup made from a variety of vegetables with lentils, chickpeas, and coriander) for her. I said to
 her, ‘Eat.’ but she refused, so I said: ‘By Allaah, you will eat or I will splash
@@ -2773,8 +2667,6 @@ and other ladies from the Muhaajiroon (the Muslim who migrated to reside
 in his book Al-Fawaa’id. Al-Albaani ruled it as sound (Hasan) in his book As-Silsilah As-Saheehah
 (3131).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 91
 
@@ -2810,7 +2702,6 @@ by Abu Daawood (3080). Al-Albaani ruled it as authentic in his book Saheeh Abu D
 
 92
 
-Interactions Of The Greatest Leader
 
 it be for you if you die while I was still living, for then I would wash you,
 enshroud you, pray [the funeral prayer] over you and then bury you.”
@@ -2844,8 +2735,6 @@ book Saheeh Ibn Maajah (1465). This narration was originally reported by Reporte
 2 Reported by At-Tirmithi (1082) on the authority of Abu Hurayrah, may Allaah be pleased with
 him. Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (1230).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 93
 
@@ -2874,13 +2763,11 @@ them? Until He [Allaah] will call the man to account in respect of his
 household.” 3
 1 Reported by Muslim (2672) on the authority of Abu Hurayrah, may Allaah be pleased with him.
 2 Reported by Al-Bukhaari (3331) and Muslim (1468) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 3 Reported by An-Nasaa’i (9174) on the authority of Anas ibn Maalik, may Allaah be pleased with
 him. Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah (1636).
 
 94
 
-Interactions Of The Greatest Leader
 
 Ibn `Umar, may Allaah be pleased with him, narrated that the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “All of you are guardians and are
 responsible for your wards. The ruler is a guardian and responsible for his
@@ -2911,8 +2798,6 @@ strong winds, hurricanes, tornadoes, eclipse and so on).
 1 Reported by Al-Bukhaari (893) and Muslim (1829).
 2 Reported by Al-Bukhaari (7069) .
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 95
 
@@ -2949,7 +2834,6 @@ for me, and he, sallallaahu ‘alayhi wa sallam, permitted me. Hafsah heard
 
 96
 
-Interactions Of The Greatest Leader
 
 the news and thus a tent was pitched for her, and then Zaynab commanded that a tent should be pitched for her. When the Messenger of Allaah,
 sallallaahu ‘alayhi wa sallam, offered the morning prayer, he looked and
@@ -2981,8 +2865,6 @@ which night is recognized and it only appears during it (night).”4
 3 Reported by At-Tirmithi (3288). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’.
 4 Tafseer Ibn Katheer (536/8).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 97
 
@@ -3016,7 +2898,6 @@ the Ka’bah and pray inside it, and one time the Prophet of Allaah, sallallaahu
 
 98
 
-Interactions Of The Greatest Leader
 
 if you wish to pray inside the Ka’bah because it is part of it.”” 1 So he,
 sallallaahu ‘alayhi wa sallam, guided her to an easier way of praying inside
@@ -3049,8 +2930,6 @@ book Saheeh Al-Jaami’ (3792).
 3 The explanation of An-Nawawi on the book of Muslim (73/6).
 4 Reported by Al-Bukhaari (43) and Muslim (785).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 99
 
@@ -3084,7 +2963,6 @@ Al-Albaani ruled it as authentic in his book Saheeh At-Targheeb Wat-Tarheeb (865
 
 100
 
-Interactions Of The Greatest Leader
 
 was going to give him before she gives it to him (so she knows how much
 would be remaining to her). The Messenger of Allaah, sallallaahu ‘alayhi
@@ -3118,8 +2996,6 @@ his book Saheeh Al-Jaami’ (7932).
 (2544).
 4 Tuhfat Al-Ahwathi (142/7)
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 101
 
@@ -3157,7 +3033,6 @@ Aflah to enter unless I have solicited the opinion of the Messenger of Al1 Repor
 
 102
 
-Interactions Of The Greatest Leader
 
 laah, sallallaahu ‘alayhi wa sallam, for Abu Al-Qu’ays was not the one who
 suckled me, rather it was his wife who did.’”
@@ -3190,8 +3065,6 @@ unanimously agreed that if any Muslim child dies (before reaching puberty) then
 1 Reported by Al-Bukhaari (4796) and Muslim (1445).
 2 Reported by Muslim (2662).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 103
 
@@ -3226,7 +3099,6 @@ summarized version of the narration is also reported by Muslim (2594).
 
 104
 
-Interactions Of The Greatest Leader
 
 and shower His wrath upon you!” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “Be calm, O ‘Aa’ishah! You should be kind and lenient,
 and beware of roughness and bad words.” She, may Allaah be pleased with her,
@@ -3258,8 +3130,6 @@ were next to him) talked about a church which they had seen in Ethiopia
 2 Roughness with others can either be verbal or physical.
 3 Reported by Al-Bukhaari (4829) and Muslim (899).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 105
 
@@ -3297,7 +3167,6 @@ book Saheeh Al-Jaami’ (5515).
 
 106
 
-Interactions Of The Greatest Leader
 
 “even if I should get such and such” means, even if I were to be given a huge
 amount of worldly possessions (or gains).” 1
@@ -3325,8 +3194,6 @@ record in his right hand. He will be judged with an easy account» [Qur’aan
 (3421).
 4 The explanation of As-Sindi on the book of Ibn Maajah (59/8).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 107
 
@@ -3361,7 +3228,6 @@ to weaken the sense of protectiveness within the Muslim community.
 
 108
 
-Interactions Of The Greatest Leader
 
 Such people would have no problem seeing his wife, mother or sister sitting with a stranger or a non-Mahram.
 He, sallallaahu ‘alayhi wa sallam, never thought ill of them and would
@@ -3390,8 +3256,6 @@ at night, then let him not enter upon his wife at night in order to give a
 2 Reported by Al-Bukhaari (1801) and Muslim (715).
 3 Fat-h Al-Baari (341/9).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 109
 
@@ -3429,7 +3293,6 @@ pleased with him. Al-Albaani ruled it as inauthentic in his book Dha’eef Al-Ja
 
 110
 
-Interactions Of The Greatest Leader
 
 “So your devil came to you.” 1 She, may Allaah be pleased with her, inquired, “O
 Messenger of Allaah, do I have a devil with me?” He, sallallaahu ‘alayhi wa
@@ -3444,7 +3307,6 @@ from his evil.” 3
 The following is another example showing the jealousy of ‘Aa’ishah,
 may Allaah be pleased with her, and how it led her to follow the Messenger of
 Allaah, sallallaahu ‘alayhi wa sallam, to see where he went.
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “When it was my turn for the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, to spend the night with me, he turned his side, put on his
 mantle and took off his shoes and placed them near his feet, and spread the
 corner of his shawl on his bed and then lay down till he thought that I had
@@ -3465,8 +3327,6 @@ steps. He, sallallaahu ‘alayhi wa sallam, ran and I too ran. He, sallallaahu �
 or disturb her sleep and then she would wake up after he was gone and become frightened for
 being all alone in the darkness of the night.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 111
 
@@ -3506,7 +3366,6 @@ wives whilst it is the turnoff another.
 
 112
 
-Interactions Of The Greatest Leader
 
 her, used to say, “I was never jealous of anyone as much as I was jealous
 
@@ -3542,8 +3401,6 @@ did not rebuke her for breaking the dish, did not get angry at her, and nor
 2 Some narrations say it was Umm Salamah, while other narrations say it was Zaynab bint Jahsh.
 3 Reported by Al-Bukhaari (5235).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 113
 
@@ -3579,7 +3436,6 @@ book Saheeh Al-Jaami’ (5140).
 
 114
 
-Interactions Of The Greatest Leader
 
 would delay it until he, sallallaahu ‘alayhi wa sallam, was in the house of
 ‘Aa’ishah, and then he would send the gift.
@@ -3614,8 +3470,6 @@ kept quiet.
 Thereupon the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said
 to her (Faatimah): “O daughter, don’t you love whom I love?” She
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 said: ‘Yes (I do)’. Thereupon he, sallallaahu ‘alayhi wa sallam, said: “Then
 love this one [‘Aa’ishah].”
@@ -3652,7 +3506,6 @@ Then I exchanged hot words until I made her quiet. Thereupon the Messen-
 
 116
 
-Interactions Of The Greatest Leader
 
 ger of Allaah, sallallaahu ‘alayhi wa sallam, smiled and said: “She is the
 daughter of Abu Bakr.”” 1
@@ -3684,8 +3537,6 @@ when his wives asked for an increase in their allowances and the story of
 1 Reported by Al-Bukhaari (2581) and Muslim (2442).
 2 Fat-h Al-Baari (208/5).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 117
 
@@ -3696,7 +3547,6 @@ The story of Al-Ifk: This was a harsh and difficult trial which The
 Mother of the Believers, ‘Aa’ishah, may Allaah be pleased with her, went through
 and many things took place until Allah exonerated her and revealed what
 proved her innocence from above the seven heavens.
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “Whenever The Messenger of Allaah, sallallaahu ‘alayhi wa
 sallam, intended to set out on a journey he cast lots amongst
 his wives and he, sallallaahu ‘alayhi wa sallam, took the one
@@ -3723,7 +3573,6 @@ less food; so they did not perceive the weight of my Hawdaj
 
 118
 
-Interactions Of The Greatest Leader
 
 as they placed it upon the camel as I was a young girl at that
 time. So they drove the camel and set out.
@@ -3756,8 +3605,6 @@ sallam, treating me with the kindness with which he treated
 me before I fell ill, and this caused me to feel something was
 not right. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 would come and greet me with ‘Assalaamu ‘Alaykum’ and only
 ask me how I was. This caused doubt in my mind, but I was
@@ -3794,7 +3641,6 @@ sallam, about the innocence of his wife (‘Aa’ishah) and what
 
 120
 
-Interactions Of The Greatest Leader
 
 he knew about his love for her. He said: ‘O Messenger of Allaah, she is your wife and we know nothing else about her but
 goodness.’ And as for ‘Ali ibn Abu Taalib, he said: ‘Allaah has
@@ -3826,8 +3672,6 @@ wa sallam, said: “Who would support me to punish a person who has hurt by fals
 wife? I swear by Allaah, I know nothing about my wife but
 good. He has also accused a person whom I know very well
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 for his virtue, and he never entered my house except in my
 company.”
@@ -3864,7 +3708,6 @@ confession of his fault and turns [to Allaah] remorsefully,
 
 122
 
-Interactions Of The Greatest Leader
 
 Allaah also turns to him [Mercifully] accepting his repentance.”
 When the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
@@ -3898,8 +3741,6 @@ did not think myself so important that Allaah, The Exalted
 and Glorious, would speak in this matter in words to be recited. I only hoped that Allaah would, in a vision, give an indication of my innocence to the Messenger of Allaah, sallallaahu
 ‘alayhi wa sallam, during his sleep.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 123
 
@@ -3932,7 +3773,6 @@ against his wife before judging her. The Prophet of Allaah, sallallaa1 Reported 
 
 124
 
-Interactions Of The Greatest Leader
 
 hu ‘alayhi wa sallam, did not rush to conclusions so that his judgment
 would be a fair one. A full month had passed without him, sallallaahu ‘alayhi wa sallam, addressing the issue with ‘Aa’ishah, may Allaah be
@@ -3967,8 +3807,6 @@ about the manners of ‘Aa’ishah, may Allaah be pleased with her, in secrecy
 1 Fat-h Al-Baari (479/2).
 2 The explanation of An-Nawawi on the book of Muslim (117/17).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 125
 
@@ -4005,7 +3843,6 @@ dealt with an issue that touches the honor of individuals.
 
 126
 
-Interactions Of The Greatest Leader
 
 After the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did this secretive investigation which was an indicator to the resulting ruling
 on the matter, he, sallallaahu ‘alayhi wa sallam, ascended the pulpit
@@ -4032,8 +3869,6 @@ according the consensus of all Muslim scholars.” 1
 The incident when his wives asked for more material maintenance:
 1 The explanation of An-Nawawi on the book of Muslim (117/17).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 127
 
@@ -4070,7 +3905,6 @@ reward.» [Qur’aan 33:28-29]
 
 128
 
-Interactions Of The Greatest Leader
 
 So the Prophet of Allah, sallallaahu ‘alayhi wa sallam, began with
 `Aa’ishah, may Allaah be pleased with him, saying to her: “O `Aa’ishah, I wish to
@@ -4101,8 +3935,6 @@ Sharee`ah teaches: a husband can give his wife a choice between staying
 with him or leaving him if she asks him for things he cannot accomplish.
 1 Reported by Muslim (1478).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 129
 
@@ -4142,7 +3974,6 @@ something new everyday, does not mean that she should exhaust her hus-
 
 130
 
-Interactions Of The Greatest Leader
 
 band by going overboard [in asking for new things] when she moves into
 her husband’s house.
@@ -4177,8 +4008,6 @@ this.” Then, the following verses were revealed (which mean): «O Prophet! Why
 you, seeking to please your wives? And Allaah is Oft-Forgiving, Most
 Merciful. Allaah has already ordained for you [O men], the dissolution
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 131
 
@@ -4212,7 +4041,6 @@ asked `Umar ibn Al-Khattaab, may Allaah be pleased with him, saying: “O Com1 R
 
 132
 
-Interactions Of The Greatest Leader
 
 mander of the Believers, who are the two wives of the Prophet who were
 addressed by Allaah when He said (what means): «If you two [wives of
@@ -4245,8 +4073,6 @@ you are.’
 `Umar continued, ‘I had a neighbor from the Ansaar, and he and I had
 an agreement that we would alternate work days, whereby he would
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 133
 
@@ -4286,7 +4112,6 @@ to be people who dominated women, but when we got to Madeenah, we
 
 134
 
-Interactions Of The Greatest Leader
 
 found people that are dominated by their women; and our women began
 learning from their women to the point that I became angry with my wife
@@ -4321,8 +4146,6 @@ Anas ibn Maalik, may Allaah be pleased with him, said: “Allaah’s Messenger
 took an oath (Ilaa’) with regards to his wives and remained in a separate
 1 Reported by Al-Bukhaari (2468) and Muslim (1479).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 135
 
@@ -4357,7 +4180,6 @@ and ask about their situations, especially about their marital life.
 
 136
 
-Interactions Of The Greatest Leader
 
 • An individual should have patience with his wives, disregard the
 harshness of their speech, and should pardon their mistakes when
@@ -4386,16 +4208,12 @@ adopt the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, as their role-mode
 
 1 Fat-h Al-Baari (9/291).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 137
 
 patience, respect, love and tolerance they show their wives – defines their
 character and speaks volumes about their standard of faith.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 139
 
@@ -4425,7 +4243,6 @@ sallallaahu ‘alayhi wa sallam, was always patient and considerate with childre
 
 140
 
-Interactions Of The Greatest Leader
 
 fresh from the pre-Islamic era of ignorance, wondered why the Prophet
 of Allaah, sallallaahu ‘alayhi wa sallam, played and joked with children and
@@ -4458,8 +4275,6 @@ He, sallallaahu ‘alayhi wa sallam, was also blessed with four daughters:
 Zaynab, Ruqayyah, Faatimah and Umm Kulthoom, and all were born to
 Khadeejah, may Allaah be pleased with them.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 141
 
@@ -4495,7 +4310,6 @@ because Prophet Muhammad, sallallaahu ‘alayhi wa sallam, is a descendant of Pr
 
 142
 
-Interactions Of The Greatest Leader
 
 Prophetic guidance in dealing with his sons and daughters:
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, loved and honored
@@ -4528,8 +4342,6 @@ son of Prophet Abraham.
 1 Reported by Al-Bukhaari (5995) and Muslim (2629) on the authority of ‘Aa’ishah, may Allaah be
 pleased with her.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 143
 
@@ -4563,7 +4375,6 @@ Daawood (3211).
 
 144
 
-Interactions Of The Greatest Leader
 
 people to believe in the Prophet of Allaah, sallallaahu ‘alayhi wa sallam. ‘Ali,
 may Allaah be pleased with him, was raised in his home before Islaam and remained with him, sallallaahu ‘alayhi wa sallam, until his Prophethood. The
@@ -4590,12 +4401,9 @@ I said: ‘I have nothing.’ So the Prophet of Allaah, sallallaahu ‘alayhi wa
 told me to give it to her.”3
 1 Reported by Ibn Sa’d (20/8) in his book At-Tabaqaat, as an authentic narration.
 2 Reported by Al-Bukhaari (5136) and Muslim (1419) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 3 Reported by Abu Daawood (2125) and An-Nasaa’i (3375); Al-Albaani ruled it as sound (Hasan) in
 his book Saheeh Abu Daawood (1849).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 145
 
@@ -4631,7 +4439,6 @@ groom is usually a young man who has recently graduated or just started
 
 146
 
-Interactions Of The Greatest Leader
 
 work, and his salary may be low and he would naturally need help with
 the expenses. On the other hand, the father will have worked for a longer
@@ -4665,8 +4472,6 @@ called for some water and made Wudhoo’ in it. Then he poured this water
 (73/1). Ibn Hajar ruled it as good.
 2 Lisaan Al-’Arab (643/12).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 147
 
@@ -4704,7 +4509,6 @@ between his daughters and their husbands:
 
 148
 
-Interactions Of The Greatest Leader
 
 Sahl ibn Sa’d, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, came to the house of Faatimah, and
@@ -4735,8 +4539,6 @@ this is from his wisdom.
 2 Reported by Al-Bukhaari (441) and Muslim (2409).
 3 Fat-h Al-Baari (536/1).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 149
 
@@ -4771,7 +4573,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, he would stand up to receive
 
 150
 
-Interactions Of The Greatest Leader
 
 Allaah, sallallaahu ‘alayhi wa sallam, visited Faatimah, may Allaah be pleased with
 her, she would stand up to him, kiss him and seat him in her place. 1
@@ -4804,8 +4605,6 @@ she said: “Tell him to order me to dispense with it as he wishes.” So he
 1 Reported by Abu Daawood (5217) and At-Tirmithi (3872). Al-Albaani ruled it as authentic.
 2 Reported by Al-Bukhaari (3624) and Muslim (2450).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 151
 
@@ -4842,7 +4641,6 @@ for his family because it is greater in reward.
 
 152
 
-Interactions Of The Greatest Leader
 
 It also shows the gentleness used in dealing with one’s daughter and
 her husband, as he did not ask them to get up when he came to them and
@@ -4873,10 +4671,7 @@ The wording of this Hadeeth as reported by Al-Bukhaari is: “O Faatimah, daught
 1 Fat-h Al-Baari (124/11).
 2 Reported by Muslim (2713).
 3 Reported by Al-Bukhaari (2753) and Muslim (204) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 153
 
@@ -4913,7 +4708,6 @@ have left without them performing it. And Allaah knows best.”4
 
 154
 
-Interactions Of The Greatest Leader
 
 His sensitivity towards the feelings of his daughters and his anger
 when they were angry:
@@ -4946,8 +4740,6 @@ her high status, for she is the leader of all women. This is especially because 
 have no one to comfort and console her if she became jealous.
 1 Reported by Al-Bukhaari (3110) and Muslim (2449). The wording is by Muslim.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 155
 
@@ -4983,7 +4775,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, died, I asked her again. She
 
 156
 
-Interactions Of The Greatest Leader
 
 said: ‘He first told me: “Jibreel used to read the Qur’aan with me once
 every year, and he read it with me twice this year. I think that means my
@@ -5014,8 +4805,6 @@ teach them patience:
 3 Reported by Al-Bukhaari (2614), Muslim (2071) and Ahmad (712).
 4 The explanation of An-Nawawi on the book of Muslim (51/14).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 157
 
@@ -5050,7 +4839,6 @@ The words: ‘The Prophet’s eyes filled with tears. Sa’d said: “O Messenge
 
 158
 
-Interactions Of The Greatest Leader
 
 cause he thought that any kind of crying was not lawful, and he thought
 that the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, had forgotten this,
@@ -5086,8 +4874,6 @@ Messenger of Allaah!” So he, sallallaahu ‘alayhi wa sallam, replied: “O Ib
 2 Reported by Al-Bukhaari (1285).
 3 Reported by Al-Bukhaari (1285).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 159
 
@@ -5124,7 +4910,6 @@ with water and Sidr, and put in it Kaafoor [camphor] the last time, or
 
 160
 
-Interactions Of The Greatest Leader
 
 some Kaafoor and after you have finished, inform me.” When we finished
 we informed him, sallallaahu ‘alayhi wa sallam, so he gave us his Izaar (the
@@ -5138,8 +4923,6 @@ with his children, reflecting the exemplary manner he raised and nurtured them.
 
 1 Reported by Al-Bukhaari (1175) and Muslim (939).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 161
 
@@ -5170,7 +4953,6 @@ migrated from Makkah to Madinah (known as the Hijrah). Each numbered year is des
 
 162
 
-Interactions Of The Greatest Leader
 
 He was seven years old at the time of the death of the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam.
@@ -5205,8 +4987,6 @@ Therefore, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, has no
 descendants except from his daughter Faatimah, may Allaah be pleased with her,
 and his descendants all return to his two grandsons, Al-Hasan and Husayn, may Allaah be pleased with them, only. The descendants of Al-Hasan are
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 163
 
@@ -5246,7 +5026,6 @@ Adh-Dha’eefah (6121).
 
 164
 
-Interactions Of The Greatest Leader
 
 Then he, sallallaahu ‘alayhi wa sallam, used to do Tahneek for them:
 ‘Aa’ishah, may Allaah be pleased with her, the wife of the Prophet of Allaah,
@@ -5282,8 +5061,6 @@ http://www.islamweb.net/media/index.php?page=article, may Allaah be pleased with
 lang=A, may Allaah be pleased with him, id=143055.
 4 Reported by At-Tirmithi (2066) and Ibn Maajah (3455). Al-Albaani ruled it as authentic in his book
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 165
 
@@ -5323,7 +5100,6 @@ may Allaah be pleased with him. Al-Albaani ruled it as authentic.
 
 166
 
-Interactions Of The Greatest Leader
 
 their birth, as in the Hadeeth: “A boy was born to me tonight, so I named
 him after my father Ibraaheem.” 1
@@ -5356,8 +5132,6 @@ He, sallallaahu ‘alayhi wa sallam, chose beautiful names for them:
 4 Reported by Ibn Hibbaan (5308). Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah
 (463).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 167
 
@@ -5397,7 +5171,6 @@ authentic in his book Saheeh Al-Jaami’ (8117).
 
 168
 
-Interactions Of The Greatest Leader
 
 urinating." Then he followed it with washing with water 1 and I saw his
 urine gushing out fast uninterrupted.”
@@ -5428,8 +5201,6 @@ He, sallallaahu 'alayhi wa sallam, taught them supplications:
 3 Tuhfat Al-Ahwathi (184/6).
 4 Fat-h Al-Baari (410/6).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 169
 
@@ -5464,7 +5235,6 @@ the truth [which means]: «Your wealth and children are only a trial.» I
 
 170
 
-Interactions Of The Greatest Leader
 
 saw these two so I was not able to have patience.” Then he returned to his
 khutbah. 1
@@ -5497,8 +5267,6 @@ Al-Albaani ruled it as authentic in his book Saheeh Abu Daawood (1016).
 3 Reported by Al-Bukhaari (516) and Muslim (543). The wording is by Muslim.
 4 If a person is praying and he thinks that something untoward has happened to the Imaam leading
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 171
 
@@ -5536,7 +5304,6 @@ and went back to his position, then his prayer is also sound.
 
 172
 
-Interactions Of The Greatest Leader
 
 of Allaah, sallallaahu 'alayhi wa sallam, replied: "He is my Rayhaan [a
 good smelling plant] in this life, and indeed this son of mine is a leader, and Allaah will reconcile between two factions of Muslims because of
@@ -5571,8 +5338,6 @@ be pleased with him, came out to the Prophet of Allaah, sallallaahu 'alayhi wa
 (757/1).
 2 Reported by Al-Bukhaari (5884) and Muslim (2421).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 173
 
@@ -5607,7 +5372,6 @@ the people, a man remarked to him, "O Messenger of Allaah, you love
 
 174
 
-Interactions Of The Greatest Leader
 
 them!" The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, replied: "Whoever loves them, then he loves me, and whoever hates them hates me." 1
 If we were to compare the state of the Prophet of Allaah, sallallaahu
@@ -5637,8 +5401,6 @@ As-Silsilah As-Saheehah (2895).
 3 Reported by Ahmad (16406). Shu’ayb Al-Arna’oot ruled it as authentic.
 4 Reported by Muslim (2428).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 175
 
@@ -5674,7 +5436,6 @@ As-Silsilah As-Saheehah (1227).
 
 176
 
-Interactions Of The Greatest Leader
 
 would hold them close to him and say: "O Allaah, have mercy upon them,
 for I have mercy upon them."1
@@ -5708,8 +5469,6 @@ book Saheeh Ibn Maajah (2939)
 3 Reported by Al-Bukhaari (1419) and Muslim (1069).
 4 The explanation of An-Nawawi on the book of Muslim (175/7) and Fat-h Al-Baari (355/3).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 177
 
@@ -5745,7 +5504,6 @@ Despite the fact that the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, 
 
 178
 
-Interactions Of The Greatest Leader
 
 hi wa sallam, never let his love for them stand in the way of safeguarding
 them from going astray. He, sallallaahu ‘alayhi wa sallam, taught them to be
@@ -5756,8 +5514,6 @@ This was the relationship the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, shared with his children and grandchildren, where he loved and
 cherished them and was loved and cherished by them in turn.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 179
 
@@ -5785,11 +5541,9 @@ ethnic rivalry, discrimination and social injustice. The Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, decried anyone who claimed superiority on
 the basis of the color of skin and tribal pride. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, established a society based on One Creator and
 One Religion, which superseded all narrow considerations of clan or col1 Reported by Muslim (1072) on the authority of ‘Abd Al-Muttalib ibn Rabee’ah, may Allaah be
-pleased with him.
 
 180
 
-Interactions Of The Greatest Leader
 
 or. The Quraysh leader Abu Sufyaan, the rich trader Abu Bakr, the Persian immigrant Salmaan Al-Faarisi and the African slave Bilaal, may Allaah
 be pleased with them, became brothers in a family of the Ummah, the Muslim
@@ -5818,8 +5572,6 @@ Some biographers have mentioned Nawfal and Al-Haarith as his uncles. It was also
 The oldest of his uncles are Al-Haarith, and the youngest was Al-’Abbaas.
 1 Zaad Al-Ma’aad (104/1).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 181
 
@@ -5851,7 +5603,6 @@ became Muslim and stayed steadfast upon Islaam, except for ‘Ubaydullaah ibn Ja
 
 182
 
-Interactions Of The Greatest Leader
 
 The Prophet's brothers and sisters from breastfeeding:
 The prophet of Allaah, sallallaahu alayhi wa sallam, had three of brothers
@@ -5885,8 +5636,6 @@ Abu Bakr, may Allaah be pleased with him, used to say, "Take care of Muhammad, s
 1 Reported by Muslim (2408).
 2 Reported by Al-Bukhaari (3713).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 183
 
@@ -5899,7 +5648,6 @@ Hand is my soul, I would rather fulfill the ties of kinship towards the relative
 my own relatives." 2
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, visited the grave of
 his mother and cried there:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu 'alayhi wa sallam, visited his mother's grave, then he
 cried, and caused those around him to cry. He, sallallaahu 'alayhi wa sallam, said: "I asked permission from my Lord to seek forgiveness for her,
 but He did not allow me. Then I asked Him permission to visit her grave,
@@ -5925,7 +5673,6 @@ in his book Saheeh As-Seerah (page 23).
 
 184
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, was eager to call his relatives to Islaam:
 Abu Hurayrah, may Allaah be pleased with him, said that the Prophet of Allaah,
@@ -5956,8 +5703,6 @@ knowledge said that the first man to become Muslim was Abu Bakr, and
 3 Reported by Muslim (204).
 4 Fat-h Al-Baari (503/8).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 185
 
@@ -5994,7 +5739,6 @@ mercy upon him, Abu Taalib said to the Prophet of Allaah, sallallaahu 'alayhi wa
 
 186
 
-Interactions Of The Greatest Leader
 
 sallam, "If it were not for the fact that Quraysh would criticize me and say that I
 only said it out of fear of death, then I would have made you happy by saying it." 1
@@ -6026,8 +5770,6 @@ virtuous lineage." 4
 3 Reported by Muslim (209).
 4 Reported by At-Tirmithi (3455). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (1472).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 187
 
@@ -6064,7 +5806,6 @@ Daawood (3021).
 
 188
 
-Interactions Of The Greatest Leader
 
 If one of them committed a sin the Prophet of Allaah, sallallaahu
 'alayhi wa sallam, would stop him:
@@ -6097,8 +5838,6 @@ he comes to you, then leave him right now, for he is well protected
 from his people." The Ansaar said: "We have heard what you said:
 1 Reported by Al-Bukhaari (1513) and Muslim (1334).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 189
 
@@ -6136,7 +5875,6 @@ said: "Tell me what is in your hearts." That day he was at the
 
 190
 
-Interactions Of The Greatest Leader
 
 home of Zaynab bint Jahsh, so we entered his home with him. Each
 one of us wanted the other to speak, until one of us said: ‘O Messenger of Allaah, you are the most righteous of people, and the best at
@@ -6169,8 +5907,6 @@ sallallaahu ‘alayhi wa sallam.” 2
 1 Reported by Muslim (1072).
 2 The explanation of An-Nawawi on the book of Muslim (180/7).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 191
 
@@ -6205,7 +5941,6 @@ him. He said: “O Messenger of Allaah, order someone to help me lift
 
 192
 
-Interactions Of The Greatest Leader
 
 this.” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, replied:
 “No.” He then said: “Then help me yourself.” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, replied: “No.”
@@ -6237,8 +5972,6 @@ Dhubaa’ah (the cousin of the Prophet of Allaah, sallallaahu ‘alayhi wa salla
 1 Reported by Al-Bukhaari (3165) and Fat-h Al-Baari (516/1).
 2 Fat-h Al-Baari (178/3).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 193
 
@@ -6273,7 +6006,6 @@ authentic in his book As-Silsilah As-Saheehah (59).
 
 194
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, ordered ‘Ali, may Allaah be pleased with him,
 to sleep in his place on the night of the Hijrah (migration to Madeenah).
@@ -6305,8 +6037,6 @@ When Ja’far, may Allaah be pleased with him, was martyred in Mu’tah, he cons
 3 Reported by Al-Haakim (4249). Al-Albaani ruled it as sound (Hasan) in his book Fiqh As-Seerah
 (347/1).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 195
 
@@ -6343,7 +6073,6 @@ this life and the next?”1
 
 196
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, used to hold small children and wipe
 their heads and make Du’aa’ for them:
@@ -6374,8 +6103,6 @@ But if you are patient, it is better for those who are patient.»
 1 Reported by Ahmad (1763). Al-Albaani ruled it as sound (Hasan) in his book Ahkaam Al-Janaa’z
 (page 168).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 197
 
@@ -6412,7 +6139,6 @@ be pleased with them:
 
 198
 
-Interactions Of The Greatest Leader
 
 Ibn ‘Abbaas, may Allaah be pleased with him, narrated: “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, pulled me to his chest, and said: “O Allaah, teach him the wisdom.” 1
 In another narration, “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, relieved himself so I placed some water for Wudhoo’ for him. He, sallallaahu
@@ -6440,8 +6166,6 @@ things a person can ask Allaah for and a way to be protected in all affairs.” 
 4 Reported by At-Tirmithi (3514). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (7938).
 5 Tuhfat Al-Ahwathi (348/9).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 199
 
@@ -6478,7 +6202,6 @@ Wat-Tarheeb (3368).
 
 200
 
-Interactions Of The Greatest Leader
 
 the well out of desire of imitating him, and that people would have overcrowded them and pushed them away.
 An-Nawawi, may Allaah have mercy upon him, said: “The meaning is that he, sallallaahu ‘alayhi wa sallam, would have helped them, but he feared that the people may believe
@@ -6510,8 +6233,6 @@ sleep. When the Ansaar heard about that, they released him from the
 2 Reported by Al-Bukhaari (2537).
 3 Fat-h Al-Baari (168/5).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 201
 
@@ -6542,8 +6263,6 @@ family, for that makes his statements more likely to be accepted.”4
 3 Reported by Muslim (1218).
 4 The explanation of An-Nawawi on the book of Muslim (182/8).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 203
 
@@ -6575,7 +6294,6 @@ person (the neighbor who is near of kin) has two rights over you: the
 
 204
 
-Interactions Of The Greatest Leader
 
 right of a neighbor and the right of a relative. One must treat this
 person well according to what is customary in that society.
@@ -6609,8 +6327,6 @@ wa sallam, said: “Allaah knows that I love you.”3
 2 Reported by Ibn Sa’d in his book Tabaqaat (163/8) and Fat-h Al-Baari (206/5).
 3 Reported by Ibn Maajah (1899). Al-Albaani ruled it as authentic in his book Saheeh Ibn Maajah
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 205
 
@@ -6647,7 +6363,6 @@ from the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.
 
 206
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, continued standing until I felt sorry for him. When the man left, I told the Prophet of Allaah, sallallaahu
 ‘alayhi wa sallam, “O Messenger of Allaah, that man caused you to stand until I
@@ -6680,8 +6395,6 @@ in his book Saheeh Al-Jaami’ (2548).
 3 Reported by Al-Bukhaari (6019) and Muslim (48). The narration in Muslim reads: “Should be kind
 to his neighbor.”
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 207
 
@@ -6720,11 +6433,9 @@ major sins.” 5
 
 208
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, even said that he would be forbidden
 from Paradise:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “He will not enter Paradise, a
 person whose neighbor is not safe from his harm.” 1
 He, sallallaahu ‘alayhi wa sallam, showed that harming the neighbor is
@@ -6755,8 +6466,6 @@ time, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, told him: “Go an
 (65).
 3 Faydh Al-Qadeer (3229/5).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 209
 
@@ -6795,7 +6504,6 @@ him. Al-Albaani ruled it as authentic in his book Saheeh At-Targheeb Wat-Tarheeb
 
 210
 
-Interactions Of The Greatest Leader
 
 Mujaahid, may Allaah have mercy upon him, narrated that ‘Abdullaah ibn ‘Amr,
 may Allaah be pleased with him, came home and found a sheep was slaughtered
@@ -6803,7 +6511,6 @@ by his family. He asked them, “Did you give any to our Jewish neighbor?
 Did you give any to our Jewish neighbor? For I heard the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, say: “Jibreel continued to advise me to
 take good care of neighbors, until I thought he would make them to be
 one of the inheritors.”” 1
-Ibn Hajar, may Allaah have mercy upon him, said:
 “The word ‘neighbor’ includes both a Muslim and a disbeliever, a
 righteous or sinful person, a friend or enemy, a stranger or resident,
 a beneficial or harmful person, a relative or not, and those who are
@@ -6825,8 +6532,6 @@ the happiness of a man: a righteous wife, a spacious house, a righteous
 2 Fat-h Al-Baari (442/10).
 3 Reported by Ahmad (14947). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (3029).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 211
 
@@ -6861,7 +6566,6 @@ As-Saheehah (1443).
 
 212
 
-Interactions Of The Greatest Leader
 
 of them should I give gifts to?” He, sallallaahu ‘alayhi wa sallam, said: “To
 the one whose door is closer to yours.” 1
@@ -6898,8 +6602,6 @@ and this is determined by custom.” 4
 Al-Albaani ruled it as inauthentic in his book Irwaa’ Al-Ghaleel (1659).
 4 Al-Mughni (578/6), Fat-h Al-Baari (447/10), and Mawsoo’at Al-Fiqh Al-Kuwaitiyyah (217/16).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 213
 
@@ -6937,7 +6639,6 @@ Al-Baari (445/10).
 
 214
 
-Interactions Of The Greatest Leader
 
 and will throw the leftovers away. At the same time, some of his neighbors
 may go to sleep hungry because of their lack of food. This goes against the
@@ -6970,8 +6671,6 @@ Allaah, sallallaahu ‘alayhi wa sallam, asked: “And her also?” (Meaning is
 1 Reported by At-Tabaraani (751). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (5505).
 2 Reported by Ahmad (13135). Shu’ayb Al-Arna’oot ruled it as authentic.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 215
 
@@ -7008,7 +6707,6 @@ Al-Albaani ruled it as inauthentic in his book Dha’eef Al-Jaami’ (2077).
 
 216
 
-Interactions Of The Greatest Leader
 
 Al-Hasan, may Allaah have mercy upon him, said: “Being a good neighbor is not
 just to refrain from harming them, rather it is to endure if they harm you.” 1
@@ -7021,7 +6719,6 @@ can I know if I am doing good or evil?” The Prophet of Allaah, sallallaahu
 well, then you have done well. If you hear them say you have acted badly,
 then you have acted badly.” 2
 A man should not prevent his neighbor from something that benefits him:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “If one of you is asked by his
 neighbor to place a piece of wood in his wall, then do not prevent him.”
 When Abu Hurayrah, may Allaah be pleased with him, narrated this Hadeeth,
@@ -7042,8 +6739,6 @@ except with his permission.
 2 Reported by Ibn Maajah (4223). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (610).
 3 Reported by Al-Bukhaari (2463), Muslim (1609) and At-Tirmithi (1273). The wording is for AtTirmithi.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 217
 
@@ -7055,14 +6750,11 @@ has more right to what is next to him.” 1
 
 1 Reported by Al-Bukhaari (2258) on the authority of Abu Raafi’, may Allaah be pleased with him.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 219
 
 Section six
 
-The conduct of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with guests and hosts
 Introduction:
 The true concept of hospitality is not something that is widely practiced by many people nowadays. For many people, the entertainment of
@@ -7088,7 +6780,6 @@ him every year in Ramadhaan until it was over, and he would review the
 
 220
 
-Interactions Of The Greatest Leader
 
 Qur’aan with the Prophet of Allaah, sallallaahu ‘alayhi wa sallam. So when
 Jibreel met him he would be more generous than a wind (that continuously and strongly blows, indicating his speed and generosity in spending).”
@@ -7122,8 +6813,6 @@ of his generosity.” 6
 5 Reported by Al-Bukhaari (6034) and Muslim (2311).
 6 The explanation of An-Nawawi on the book of Muslim (71/5).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 221
 
@@ -7158,13 +6847,11 @@ Saheeh Al-Jaami’ (1801).
 3 Reported by Al-Bukhaari (2916) and Muslim (1603) on the authority of ‘Aa’ishah, may Allaah be
 pleased with her.
 4 Reported by Al-Bukhaari (6018) and Muslim (47) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 5 Reported by Ahmad (1988). Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah
 (2259).
 
 222
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, explained that hosting the guest is a
 right upon every Muslim. He, sallallaahu ‘alayhi wa sallam, said: “The one
@@ -7201,8 +6888,6 @@ Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (7946).
 4 Reported by Al-Bukhaari (2461) and Muslim (1727).
 5 The explanation of An-Nawawi on the book of Muslim (32/12).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 223
 
@@ -7240,7 +6925,6 @@ Al-Miqdaad ibn ‘Amr, may Allaah be pleased with him, said:
 
 224
 
-Interactions Of The Greatest Leader
 
 “A friend and I were almost going to go deaf and blind from sheer
 hunger, so we began to approach people but no one hosted us (since
@@ -7275,8 +6959,6 @@ whoever gave me drink.”
 So I covered myself in the garment and took a knife, then I went
 to the goats to see which one was fattest so I could slaughter it for
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 225
 
@@ -7315,7 +6997,6 @@ with them:
 
 226
 
-Interactions Of The Greatest Leader
 
 Thawbaan, may Allaah be pleased with him, the freed slave of the Prophet of
 Allaah, said that a guest from the Bedouins came to us, so the Prophet of
@@ -7350,8 +7031,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, told him: “Drink again,”
 until he became full. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 then milked it again and said: “In the name of Allaah” and filled it up,
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 227
 
@@ -7392,7 +7071,6 @@ As-Silsilah As-Saheehah (1977), but other scholars disagreed with him regarding 
 
 228
 
-Interactions Of The Greatest Leader
 
 She then went to the lamp as if she was fixing it, and turned it off. Then
 they pretended that they were eating and went to sleep hungry. In the
@@ -7414,7 +7092,6 @@ and make it seem as if we are eating.” For if the guest saw how little the foo
 and that his host was not eating with him, he would not have eaten.” 2
 He, sallallaahu ‘alayhi wa sallam, would honor his guest even if he was
 a disbeliever:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, hosted a non-Muslim, so the Prophet
 of Allaah, sallallaahu ‘alayhi wa sallam, ordered for a sheep to be milked
 and the man drank the milk. He, sallallaahu ‘alayhi wa sallam, then milked
@@ -7427,8 +7104,6 @@ could not finish it. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, sai
 2 The explanation of An-Nawawi on the book of Muslim (12/14).
 3 Reported by Al-Bukhaari (5397) and Muslim (2063).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 229
 
@@ -7466,7 +7141,6 @@ was some left over. He, sallallaahu ‘alayhi wa sallam, said: “Eat from this,
 
 230
 
-Interactions Of The Greatest Leader
 
 and give it as a gift to others, for the people have been afflicted with
 hunger.” 1
@@ -7498,8 +7172,6 @@ eaten, disperse without seeking to remain for conversation.»
 (Meaning before the food is served and after it.)
 1 Reported by Al-Bukhaari (4101) and Muslim (2039).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 231
 
@@ -7534,7 +7206,6 @@ saw the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, choosing to eat the
 
 232
 
-Interactions Of The Greatest Leader
 
 pumpkin in it, so I would gather the pumpkin pieces and place it in front
 of him. From that time on I loved pumpkin.” 1
@@ -7569,8 +7240,6 @@ people, for I want to invite the Messenger of Allaah in a party of five.’ He
 2 Fat-h Al-Baari (529/9) and the explanation of An-Nawawi on the book of Muslim (224/13).
 3 Reported by Ahmad (13789). Shu’ayb Al-Arna’oot ruled it as authentic.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 233
 
@@ -7609,11 +7278,9 @@ of Allaah, sallallaahu ‘alayhi wa sallam, said to Abu Bakr and ‘Umar: “By
 
 234
 
-Interactions Of The Greatest Leader
 
 The One Who has my soul in His Hand, you will be asked about this pleasure on the Day of Rising. Hunger brought you out of your houses and
 you did not return until you had received this pleasure.””1
-An-Nawawi, may Allaah have mercy upon him, said:
 “From the benefits of the Hadeeth: the way the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, and his Companions did not have
 much in this life, and that they were sometimes tested with hunger
@@ -7643,8 +7310,6 @@ that he is in need of food and it would be difficult for him to wait for
 the main meal. Many of the early scholars did not like exaggerating
 1 Reported by Muslim (2038).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 235
 
@@ -7681,7 +7346,6 @@ is available.”3
 
 236
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, used to follow the
 example of his forefather Ibraaheem, may Allaah exalt his mention, in
@@ -7714,8 +7378,6 @@ welcomed guests that he knew, and even those that he did not know. It is
 evidence of his extraordinary generosity that he served strangers he had
 never seen before a delicious roasted calf.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 237
 
@@ -7746,8 +7408,6 @@ wider community and on the qualities of respect, tolerance and forgiveness. Demo
 guests from the members of the Muslim community is a demonstration of
 the moral values and virtues fostered by the worship of the One True God.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 239
 
@@ -7778,7 +7438,6 @@ around him. The most famous of them are Abu Bakr, ‘Umar, ‘Uthmaan,
 
 240
 
-Interactions Of The Greatest Leader
 
 ‘Abdur-Rahmaan ibn ‘Awf, may Allaah be pleased with them. The closest of all of
 them to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, were Abu Bakr
@@ -7811,8 +7470,6 @@ was an altercation between Khaalid ibn Al-Waleed, may Allaah be pleased with
 2 Reported by Al-Bukhaari (3662) and Muslim (2384).
 3 Al-Mufhim (71/9) Faydh Al-Qadeer (218/1).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 241
 
@@ -7822,7 +7479,6 @@ reviled him. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “Do
 not curse my Companions, for if one of you spent [as much as] Mount
 Uhud in gold, it would not be equal to the two handfuls of one of them,
 or even half of that [of food he spends in charity].” 1
-An-Nawawi, may Allaah have mercy upon him, said:
 “Meaning the reward of a person who spent like Mount Uhud in
 gold would not be equal to the reward of this small amount of charity
 from one of the Companions.
@@ -7850,7 +7506,6 @@ The intent of the Prophet’s statement: “My Companions,” is his closest Com
 
 242
 
-Interactions Of The Greatest Leader
 
 Makkah, and accompanied him for a long time, and fought, gave charity,
 migrated, and helped the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.
@@ -7883,8 +7538,6 @@ who hates or curses all of them, or even some of them. This especially
 1 Fat-h Al-Baari (34/7).
 2 The explanation of An-Nawawi on the book of Muslim (93/16).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 243
 
@@ -7919,7 +7572,6 @@ him).” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “Allaah
 
 244
 
-Interactions Of The Greatest Leader
 
 sent me to you, but you said: ‘You are telling a lie,’ while Abu Bakr said:
 ‘He has said the truth,’ and he consoled me with himself and his money.”
@@ -7952,8 +7604,6 @@ said something to me he disliked, and then he regretted that.
 1 Reported by Al-Bukhaari (3661).
 2 Fat-h Al-Baari (26/7).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 245
 
@@ -7987,7 +7637,6 @@ Allaah forgive you, O Abu Bakr!’” So I said: ‘May Allaah forgive you, O Ab
 
 246
 
-Interactions Of The Greatest Leader
 
 So, Abu Bakr, may Allaah be pleased with him, went away crying.”1
 He, sallallaahu ‘alayhi wa sallam, used to favor some of them with certain things over the rest of the Companions:
@@ -8020,8 +7669,6 @@ may Allaah be pleased with her, the wife of the Prophet of Allaah, sallallaahu �
 2 Reported by Al-Bukhaari (3904) and Muslim (2382).
 3 Fat-h Al-Baari (12/7).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 247
 
@@ -8061,7 +7708,6 @@ this hypocrite while Allaah forbade you from asking forgiveness for them (hypocr
 
 248
 
-Interactions Of The Greatest Leader
 
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, prayed
 over him and then left. It was not long before the two verses of
@@ -8074,7 +7720,6 @@ my audacity towards the Messenger of Allaah, sallallaahu ‘alayhi
 wa sallam, that day, and Allaah and His Messenger know best.”1
 Ibn Hajar, may Allaah have mercy upon him, said: “So the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, endured the way ‘Umar, may Allaah be pleased with him,
 spoke to him in that situation, and he only turned to him and smiled.”2
-Ibn Hajar, may Allaah have mercy upon him, said:
 “Al-Khattaabi, may Allaah have mercy upon him, said: “The Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, only treated ‘Abdullaah ibn
 Ubayy the way he did because of his extreme mercy for someone
@@ -8094,8 +7739,6 @@ and prayed over him, and asked forgiveness for him. Allaah Says (what means):
 2 Fat-h Al-Baari (335/1).
 3 Fat-h Al-Baari (336/8) .
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 249
 
@@ -8132,7 +7775,6 @@ Messenger of Allah, sallallaahu ‘alayhi wa sallam, returned to his
 
 250
 
-Interactions Of The Greatest Leader
 
 home. I asked permission to enter upon him, sallallaahu ‘alayhi wa
 sallam, and he gave me permission. I said: ‘O Messenger of Allah,
@@ -8166,8 +7808,6 @@ of the day had passed. I found the Prophet of Allaah, sallallaahu
 He, sallallaahu ‘alayhi wa sallam, said to me: “What happened
 to what you had (i.e. was it sufficient to repay the debts)?”
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 251
 
@@ -8206,7 +7846,6 @@ sallam.
 
 252
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, asked Sa’d ibn
 Mu’aath, may Allaah be pleased with him: “O Abu ‘Amr, what is the matter with
@@ -8241,8 +7880,6 @@ I said to him, ‘O Sa’d, the Messenger of Allaah, sallallaahu ‘alayhi wa sa
 1 Reported by Al-Bukhaari (3613) and Muslim (119).
 2 Reported by An-Nasaa’i (1870) and Ahmad (19825).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 253
 
@@ -8281,7 +7918,6 @@ arrowhead and struck him in the side, so he fell down and was exposed
 
 254
 
-Interactions Of The Greatest Leader
 
 when his clothes were lifted up. The Prophet of Allaah, sallallaahu ‘alayhi
 wa sallam, laughed until his molars showed.”
@@ -8314,8 +7950,6 @@ cry over them:
 2 Reported by Al-Bukhaari (3720) and Muslim (2416).
 3 The explanation of An-Nawawi on the book of Muslim (184/15).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 255
 
@@ -8354,7 +7988,6 @@ authentic in his book Mukhtasar Ash-Shmaa’il (280).
 
 256
 
-Interactions Of The Greatest Leader
 
 ‘Uthmaan ibn Math’oon, may Allaah be pleased with him, was the brother of
 the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, from breastfeeding. He
@@ -8384,8 +8017,6 @@ no one shares this right with him, due to Allaah’s saying (which means): «Whe
 1 Al-Mughni (191/2).
 2 Mirqaat Al-Mafaateeh (457/5).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 257
 
@@ -8422,7 +8053,6 @@ give him the glad tidings of Paradise.” The first person I met
 
 258
 
-Interactions Of The Greatest Leader
 
 was ‘Umar, and he asked me, “What are these two sandals, Abu
 Hurayrah?” I said: “These are the sandals of the Prophet of Allaah,
@@ -8443,7 +8073,6 @@ said: “Do not do that, for I fear that people may depend upon it. Leave
 them to do (good) deeds.” The Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, said: “Leave them.” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, approved the statement of ‘Umar, may Allaah be pleased with him, and accepted his suggestion.
-An-Nawawi, may Allaah have mercy upon him, said:
 “What ‘Umar, may Allaah be pleased with him, did was not objecting to the
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, or refusing his order, for
 Abu Hurayrah was only sent to give glad tiding to the Muslims. ‘Umar
@@ -8452,8 +8081,6 @@ and more likely that they would not depend on it, and would be a cause
 of more good than if they heard this news from the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam. So when ‘Umar, may Allaah be pleased with him, men1 Reported by Muslim (31).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 259
 
@@ -8488,7 +8115,6 @@ sees fit.
 
 260
 
-Interactions Of The Greatest Leader
 
 In the Battle of Badr, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, accepted the suggestion of one of his Companions:
 Ibn Hishaam, may Allaah have mercy upon him, said: “The Prophet of Allaah,
@@ -8518,8 +8144,6 @@ he put on his armor. When he wore it, they started regretting their decision, an
 is up to you.” He, sallallaahu ‘alayhi wa sallam, replied: “It is not acceptable
 1 As-Seerah An-Nabawiyyah )167/3).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 261
 
@@ -8557,7 +8181,6 @@ was getting water from his well. I looked at him through an opening
 
 262
 
-Interactions Of The Greatest Leader
 
 in the wall. He said to me, ‘What is the matter with you, O Bedouin?
 Would you want to draw water and for every bucket you will get
@@ -8589,8 +8212,6 @@ the gifts to Quraysh and the tribes of the Arabs, he did not give anything to th
 to speak, until one of them said: ‘The Prophet of Allaah, sallallaahu
 1 Reported by At-Tirmithi (2473) and (2476). Al-Albaani ruled it as inauthentic.
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 ‘alayhi wa sallam, has given to his people.’ So Sa’d ibn ‘Ubaadah entered upon the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and
 said: ‘O Messenger of Allaah, these people (the Ansaar) felt badly
@@ -8629,7 +8250,6 @@ I have entrusted you to your Islaam? Are you not pleased,
 
 264
 
-Interactions Of The Greatest Leader
 
 O Ansaar, that the people will go with a sheep and a camel,
 and you will go back to your homes with the Messenger of
@@ -8659,8 +8279,6 @@ known for his gentleness and mercy, and he would use a soft approach with everyo
 1 Reported by Ahmad (11322). Shu’ayb Al-Arna’oot ruled it as sound (Hasan).
 2 Reported by At-Tirmithi (3790) and Ibn Maajah. Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah (1224).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 265
 
@@ -8690,13 +8308,11 @@ He, sallallaahu ‘alayhi wa sallam, said regarding Abu Tharr, may Allaah be
 pleased with him: “There is no one under the sky or on the Earth who speaks
 that is more truthful than Abu Tharr.” ‘Umar, may Allaah be pleased with him,
 asked, as if he was jealous, “Do you know that regarding him?” He, sallal1 Reported by Al-Bukhaari (6085) and Muslim (2397) on the authority of Sa’d ibn Abu Waqqaas, may
-Allaah be pleased with him.
 2 Faydh Al-Qadeer (588-589/2).
 3 Fat-h Al-Baari (44/11).
 
 266
 
-Interactions Of The Greatest Leader
 
 laahu ‘alayhi wa sallam, said: “Yes, so you should all know that regarding
 him.”1
@@ -8730,8 +8346,6 @@ Al-Albaani ruled it as sound (Hasan).
 with him. Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (6292).
 3 Reported by Al-Bukhaari ( 3242) and Muslim (2395).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 267
 
@@ -8770,7 +8384,6 @@ the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.”
 
 268
 
-Interactions Of The Greatest Leader
 
 Abu Bakr, may Allaah be pleased with him, came and pushed the door and I said:
 ‘Who is it?’ He said: ‘Abu Bakr.’ I said: ‘Wait till I get you permission.’ Abu
@@ -8804,8 +8417,6 @@ An-Nawawi, may Allaah have mercy upon him, said: “From the benefits of this
 Hadeeth:
 1 Reported by Al-Bukhaari (3674) and Muslim (2403).
 
-Chapter Two: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with his family, relatives and those around him
 
 269
 
@@ -8840,11 +8451,9 @@ Saheeh Al-Jaami’ (4010).
 3 Reported by At-Tirmithi (3768) on the authority of Abu Sa’eed Al-Khudri, may Allaah be pleased
 with him. Al-Albaani ruled it as authentic.
 4 Reported by Al-Bukhaari (3679) and Muslim (2457) on the authority of Jaabir ibn ‘Abdullaah, may
-Allaah be pleased with him.
 
 270
 
-Interactions Of The Greatest Leader
 
 Conclusion:
 Prophet Muhammad, sallallaahu ‘alayhi wa sallam, managed to win the
@@ -8861,8 +8470,6 @@ love us, and we will be among those closest to him in the Hereafter.
 
 Chapter Three
 How the Prophet of Allaah,
-sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 • Section One: The dealings of the Prophet of Allaah,
 sallallaahu `alayhi wa sallam, with servants and slave girls.
 • Section Tow: The Dealings of the Prophet of Allaah,
@@ -8882,8 +8489,6 @@ by certain qualities.
 • Section Eight: The dealings of the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, with those who were disputing.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 273
 
@@ -8915,7 +8520,6 @@ up for sale, and was purchased by Hakeem ibn Hizaam for four hundred
 
 274
 
-Interactions Of The Greatest Leader
 
 Dirhams (silver coins). He purchased Zayd, may Allaah be pleased with him, for
 his aunt Khadeejah, may Allaah be pleased with her.
@@ -8949,8 +8553,6 @@ you the choice, if you wish, you can go with them, and if you wish, you
 can remain with me.” He, may Allaah be pleased with him, said: “Rather, I will
 stay with you.” His father said to him, “O Zayd, do you choose servitude
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 275
 
@@ -8988,7 +8590,6 @@ Mukhtasar ash-Shamaa’il (285)
 
 276
 
-Interactions Of The Greatest Leader
 
 need. This shows his humbleness and that he, sallallaahu ‘alayhi wa sallam, was
 free from any arrogance.” 1
@@ -9021,8 +8622,6 @@ when cooking it, then allow that servant to sit and eat with him, and if
 3 This is what `Abd Al-`Azeez ar-Raajihi said (Islamweb)
 4 Reported by Al-Bukhaari (5460) and Muslim (1663)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 277
 
@@ -9060,7 +8659,6 @@ was said that the individual that he abused was Bilaal, may Allaah be pleased wi
 
 278
 
-Interactions Of The Greatest Leader
 
 Ibn Hajar, may Allaah have mercy upon him, said: “The meaning of the term: “Let
 him feed him from the same food that he eats,” is that he should feed him
@@ -9094,8 +8692,6 @@ ignorance.
 2 The explanation of An-Nawawi on the book of Muslim (11/133)
 3 Fat-h Al-Baari (5/175)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 279
 
@@ -9109,7 +8705,6 @@ an employee or otherwise is also included in this encouragement.
 • A slave is called one’s brother. 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, forbade asking
 them to do work that was beyond their capacity:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “It is essential to feed the slave,
 clothe the slave, and not burden him with work that he cannot handle.” 2
 An-Nawawi, may Allaah have mercy upon him, said: “The scholars have reached a
@@ -9133,7 +8728,6 @@ Who saved him from the Hellfire.’” 4
 
 280
 
-Interactions Of The Greatest Leader
 
 Thus, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was very keen
 on visiting his servant, calling him to Islaam, and taking him by his hand
@@ -9168,8 +8762,6 @@ Hereafter.
 2 Reported by Ibn Maajah (1533) on the authority of Abu Sa`eed Al-Khudri, may Allaah be pleased
 with him. Al-Albaani ruled it as authentic in his book Saheeh Sunan Ibn Maajah (1244)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 281
 
@@ -9206,7 +8798,6 @@ his servants was: ‘Do you have any needs [so that I would fulfill them]?’”
 
 282
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, ordered his servants to ask him for anything they wished, and would fulfill their wish,
 no matter how great or hard the request was:
@@ -9237,8 +8828,6 @@ sallallaahu ‘alayhi wa sallam, for my Hereafter, because he has a
 very high status with Allaah.’
 1 Reported by Muslim (489)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 283
 
@@ -9272,9 +8861,7 @@ being unjust to the worker and not giving the worker their right:
 
 284
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Allaah Says: ‘I will be the opponent of three people on the Day of Resurrection: a man who makes a
 pact by swearing by My Name, then breaks the pact, a man who sells a
 free person to slavery, then consumes the price, and a man who employs
@@ -9304,8 +8891,6 @@ excess punishment from you and give it to them.”
 1 Reported by Al-Bukhaari (2227)
 2 Fat-h Al-Baari (6/349)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 285
 
@@ -9340,7 +8925,6 @@ authentic in his book As-Silsilah As-Saheehah (488)
 
 286
 
-Interactions Of The Greatest Leader
 
 and it is not necessary to specify any number of times that it should be
 done.
@@ -9374,8 +8958,6 @@ Anas ibn Maalik, may Allaah be pleased with him, said:
 1 Tuhfat Al-Ahwathi (6/69)
 2 Reported by Al-Bukhaari (2552) and Muslim (2249) and the wording is for Muslim
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 287
 
@@ -9410,7 +8992,6 @@ fraction of the months and other rounded it up to ten. Fat-h Al-Baari (10/460)
 
 288
 
-Interactions Of The Greatest Leader
 
 Ten years are not just mere days or months, but a long period of time.
 During that time, an individual’s disposition would change and perhaps
@@ -9439,8 +9020,6 @@ sallallaahu ‘alayhi wa sallam, said: ‘If any of you has a servant that suits
 2 Reported by Ahmad (13005). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami`
 (5275)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 289
 
@@ -9476,7 +9055,6 @@ for Allaah’s Sake.’ And he, sallallaahu ‘alayhi wa sallam, responded: ‘H
 
 290
 
-Interactions Of The Greatest Leader
 
 not done that, the Fire would have burnt you, or would have touched
 you.’” 1
@@ -9509,8 +9087,6 @@ However, I heard the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
 2 ‘Awn Al-Ma’bood (47/14)
 3 The explanation of An-Nawawi on the book of Muslim (11/130)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 291
 
@@ -9534,7 +9110,6 @@ They (a member of the family) said: ‘She is our only servant.’ So
 the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Then
 employ her, and when you are no longer in need of her, then
 set her free.’” 3
-An-Nawawi, may Allaah have mercy upon him, said:
 “When he said: “Do to him as he has done to you,” it is held to
 mean that he tried to comfort the heart of the servant who had been
 slapped, otherwise, it is not obligatory to carry out the system of
@@ -9547,7 +9122,6 @@ he gave the servant the ability to avenge what was done to him. The
 
 292
 
-Interactions Of The Greatest Leader
 
 narration contains injunctions for being good to servants, and acting in accordance to humbleness.” 1
 Also, notice how the son knew beforehand that his father would punish him if he hit the servant or treated him badly, that is why he ran away
@@ -9579,8 +9153,6 @@ of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, were: ‘Guard your
 (2183)
 4 The explanation of As-Sindi on the book of Ibn Maajah (3/397)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 293
 
@@ -9600,8 +9172,6 @@ abandon this obligation.”2
 Al-Mufrad (118)
 2 `Awn Al-Ma`bood (14/44)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 295
 
@@ -9634,7 +9204,6 @@ in the form of other things. For example, you would find that a blind indi-
 
 296
 
-Interactions Of The Greatest Leader
 
 vidual has most likely been given blessings such as superior intelligence,
 precise memory, and sharp hearing.
@@ -9664,12 +9233,9 @@ that Allaah gives (i.e. Paradise) is better than the blessing of having eyes in 
 worldly life. That is because the time period that an individual would enjoy their
 eyesight will come to the end in the worldly life, and because the time period that
 one will enjoy it in Paradise is everlasting and never-ending.” 2
-Ibn Hajar, may Allaah have mercy upon him, said:
 1 Reported by Al-Bukhaari (5221).
 2 The explanation of Ibn Battaal on the book of Al-Bukhaari (9/377).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 297
 
@@ -9706,7 +9272,6 @@ Al-Adab Al-Mufrad (379).
 
 298
 
-Interactions Of The Greatest Leader
 
 been afflicted with the loss of eyesight, as long as the mentioned (i.e.
 persevering patiently) is met.” 1
@@ -9740,8 +9305,6 @@ evil away. In any case, it is all from the favor of Allaah.”4
 3 Reported by Al-Bukhaari (5675) and Muslim (2191).
 4 Fat-h Al-Baari (10/132).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 299
 
@@ -9778,7 +9341,6 @@ in her hands; what a great woman she was!
 
 300
 
-Interactions Of The Greatest Leader
 
 2) Or that she remains patient and earns Paradise.
 Thus, the woman chose what is lasting over that which will perish; she
@@ -9787,7 +9349,6 @@ second thoughts. This shows the level of intensity of her faith, as well as
 her yearning for what is with Allaah The Almighty.
 This is contrary to what some people do; if the bliss of Paradise is mentioned to some people it is as if it does not concern them or that it does not
 have anything to do with the issue at hand.
-Ibn Hajar, may Allaah have mercy upon him, said:
 “This narration contains the virtue of someone who is stricken
 with epilepsy, and that having patience in the wake of trials leads, as
 a consequence, to Paradise. It also tells us that for someone who is
@@ -9811,8 +9372,6 @@ otherwise, being patient is better for you.” The man said: “Supplicate to
 Him.” `Uthmaan, may Allaah be pleased with him, continues, “So the Prophet of
 1 Fat-h Al-Baari (10/115).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 301
 
@@ -9848,7 +9407,6 @@ his book, As-Silsilah As-Saheehah (521).
 
 302
 
-Interactions Of The Greatest Leader
 
 “We have pondered on this narration in order to come to a conclusion as to what was the purpose that the Messenger of Allaah,
 sallallaahu ‘alayhi wa sallam, called the man, ‘A man with vision’
@@ -9881,8 +9439,6 @@ have salvation after a trip in the desert. 3
 2 Reported by ibn Durayd in his book Al-Ishtiqaaq (1/36).
 3 Reported by ibn Al-Anbaari in his book Az-Zaahir Fi Ma’aani Kalimaat An-Naas (331/1).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 303
 
@@ -9919,7 +9475,6 @@ book An-Nihaayah (2/315).
 
 304
 
-Interactions Of The Greatest Leader
 
 or action, know that among them, ibn Umm `Abd (Ibn Mas`ood) is one of
 the nearest to Allaah.” 1
@@ -9953,8 +9508,6 @@ whoever willed among the Companions] came early the next day, and
 authentic in his book, At-Ta`leeqaat Al-Hisaan (7023).
 2 Siyar A`laam An-Nubalaa’ (1/436).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 305
 
@@ -9991,7 +9544,6 @@ rain and darkness.
 
 306
 
-Interactions Of The Greatest Leader
 
 • Someone who is virtuous should respond to the invite, even if it
 comes from someone less virtuous than him or herself.
@@ -10021,8 +9573,6 @@ belief in the heart.
 and has what he deems as viable evidence or an acceptable inference with regards to that accusation, and even if the accused shows
 apparent signs of Islaam, that individual is not to be declared a sin-
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 307
 
@@ -10059,7 +9609,6 @@ As-Saheehah (1168).
 
 308
 
-Interactions Of The Greatest Leader
 
 This narration contains evidence that praying in congregation is obligatory, for if it was voluntary, the people having the most right to nonattendance would have been those with disabilities, and those who are weak,
 and generally, those who are in the condition that Ibn Umm Maktoom,
@@ -10091,8 +9640,6 @@ needs:
 1 `Awn Al-Ma`bood (2/257).
 2 Fat-h Al-Baari (2/392) by Ibn Rajab.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 309
 
@@ -10130,7 +9677,6 @@ any blame] if he will not be purified. But as for he who came to you striv1 Repo
 
 310
 
-Interactions Of The Greatest Leader
 
 ing [for knowledge] while he fears [Allaah], from him you are distracted.»
 [Qur’aan: 80-1:10]
@@ -10161,8 +9707,6 @@ to fight,’ and he was a blind man.”
 1 Tafseer Ibn Katheer (4/568).
 2 Reported by At-Tirmithi (3331). Al-Albaani ruled it as authentic in his book Saheeh Sunan AtTirmithi (2651).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 311
 
@@ -10198,7 +9742,6 @@ The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, responded, saying: “
 
 312
 
-Interactions Of The Greatest Leader
 
 on you.” Then he, sallallaahu ‘alayhi wa sallam, said to his sons: “Do not
 prevent him, perhaps Allaah will bless him with martyrdom.”
@@ -10232,8 +9775,6 @@ Ahmad reported some of it with an authentic chain of narration.” Fiqh As-Seera
 2 Reported by Ahmad (22606), and the chain of narration is acceptable, as Ibn Hajar mentioned in his
 book, Fat-h Al-Baari (3/173)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 313
 
@@ -10269,7 +9810,6 @@ in Madeenah.3
 
 314
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, appointed him as
 the authority over Madeenah more than once, and he appointed him as a
@@ -10301,8 +9841,6 @@ Irwaa’ Al-Ghaleel (530).
 2 Reported by Al-Bukhaari (617) and Muslim (1092).
 3 Reported by Muslim (381).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 315
 
@@ -10344,7 +9882,6 @@ At-Tarheeb (6).
 
 316
 
-Interactions Of The Greatest Leader
 
 you will be granted sustenance and victory through the weak among
 you [by virtue of their supplication and sincerity].”1
@@ -10375,8 +9912,6 @@ book As-Silsilah As-Saheehah (779).
 2 As-Seerah An-Nabawiyyah (2/244) by Ibn Katheer, As-Seerah an-Nabawiyyah (3/57) by Ibn Hishaam
 and Zaad Al-Ma`aad (3/172) by Ibn Al-Qayyim.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 317
 
@@ -10413,7 +9948,6 @@ sinfulness, injustice, innovation, disbelief, and other such examples.
 
 318
 
-Interactions Of The Greatest Leader
 
 The term “All praise is to Allaah who saved me from what
 He has tested you with,” was said because being healthy is better
@@ -10446,8 +9980,6 @@ Further, blindness, in reality, is not just losing the ability to see with
 the eyes, but it is the loss of insight and faith. Allaah The Almighty Says
 1 Tuhfat Al-Ahwathi (275/9).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 319
 
@@ -10474,14 +10006,11 @@ soul.
 
 1 Tafseer As-Si`di (1/540).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 321
 
 Section Three
 
-The Dealings of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with those undergoing disasters and afflictions
 The wisdom of Allaah The Almighty dictates that this life will not be
 void of grief and distress. Whoever wishes to remain healthy and safe
@@ -10507,7 +10036,6 @@ affects their riches, being sad which affects their happiness, and having distre
 
 322
 
-Interactions Of The Greatest Leader
 
 which affects the overall wellbeing of their state (of mind, health and so on), and
 if that person is patient hoping for the reward with Allaah in return (for his patience), then that would be a means that ends with reaching the good that Allaah
@@ -10537,8 +10065,6 @@ Saheeh Al-Jaami` (2110).
 4 Tasliyatu Ahl Al-Masaa’ib (pg. 17) by Muhammad ibn Muhammad Al-Manbaji.
 5 Ibid. (pg. 29)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 323
 
@@ -10560,7 +10086,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘It
 is mercy that Allaah The Almighty puts in the hearts of
 His slaves; Allaah The Almighty has mercy on his merciful
 slaves.’”2
-An-Nawawi, may Allaah have mercy upon him, said:
 “The term “To Allaah belongs what He has taken,” the
 meaning behind this is to urge the person to be patient and submit to
 Allaah’s, for the dead person that has been taken from you belonged
@@ -10576,7 +10101,6 @@ is wailing, lamenting, and crying that is joined with one of those two things.
 
 324
 
-Interactions Of The Greatest Leader
 
 The term “And to Him belongs what He has given,” means
 that anything that He gives you is part of His ownership; He does
@@ -10609,8 +10133,6 @@ clarification with his statement, “O Messenger of Allaah.”
 • Urging people to be compassionate and merciful towards Allaah’s creation.
 1 The explanation of An-Nawawi on the book of Muslim (6/226).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 325
 
@@ -10649,7 +10171,6 @@ complete opposite of what she had initially pictured. Fat-h Al-Baari (3/149).
 
 326
 
-Interactions Of The Greatest Leader
 
 of the exact moment that the calamity befalls, and not after that, because an individual forgets with the passing of days.” 1
 That is why it is said that everything begins small and then grows except a calamity, for it starts out large, then gets smaller with the progression of time.
@@ -10678,8 +10199,6 @@ wa sallam, order, which commended patience.
 2 Ibid.
 3 Ibid.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 327
 
@@ -10713,11 +10232,9 @@ us?’
 
 328
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘No,
 rather for all of you.’” 1
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Allaah Says: ‘If My slave is
 stricken with the death of a very close loved one and then (perseveres)
 hoping for the reward, there is no reward with Me (for him) except Paradise.’” 2
@@ -10746,8 +10263,6 @@ Ahkaam Al-Janaa’iz (pg. 162).
 (pg.23).
 5 Reported by ibn Maajah (1609) and Al-Albaani ruled it as sound (Hasan) in his book Saheeh Al-Jaami` (7064).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 329
 
@@ -10784,7 +10299,6 @@ found him suffering pains of a fever, and I said: ‘O Messenger of Allaah,
 
 330
 
-Interactions Of The Greatest Leader
 
 you are suffering severe pains of your fever,’ and he, sallallaahu ‘alayhi wa
 sallam, said: ‘Yes, I am suffering as much as two men among you would
@@ -10815,8 +10329,6 @@ life makes one deserving of Paradise.4
 3 Reported by Al-Bukhaari (5652) and Muslim (2576)
 4 Fat-h Al-Baari (10/115).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 331
 
@@ -10851,7 +10363,6 @@ he said by his hand) just as I am holding to the edge of your garment,
 
 332
 
-Interactions Of The Greatest Leader
 
 and would not let go of it (or he said will not stop) until Allaah The
 Almighty enters that child and his father into Paradise.’” 1
@@ -10885,8 +10396,6 @@ Al-Jaami` (795)
 3 Reported by ibn Maajah (1599) and Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami`
 (7879)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 333
 
@@ -10919,7 +10428,6 @@ for, and your supplication is answered.’”2
 
 334
 
-Interactions Of The Greatest Leader
 
 It is specifically prohibited at the time of calamity: Umm Salamah, may
 Allaah be pleased with her, said: “The Messenger of Allaah, sallallaahu ‘alayhi
@@ -10931,7 +10439,6 @@ sallallaahu ‘alayhi wa sallam, said: ‘Do not supplicate for yourself for any
 [O Allaah accept] to your supplications [regardless if they good or bad].’
 Then he said: ‘O Allaah, forgive Abu Salamah, raise his rank among those
 who are rightly guided, grant him a successor in his offspring who remains, forgive us and him, O Lord of all that exists, make his grave spacious and give him light in it.’” 1
-An-Nawawi, may Allaah have mercy upon him, said:
 “Among the benefits of this narration:
 • It is recommended to close the eyes of the deceased and the Muslim [scholars] unanimously agreed on that. They said that the wisdom is so that the
 dead body does not begin to look ugly or repulsive if the eyes are not closed.
@@ -10950,8 +10457,6 @@ said: “We are helpless in your situation, O Abu Ar-Rabee`.”3
 3 Al-`Atheem Aabaadi says, “Meaning, the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, wanted him to
 live, but the decree of Allaah overpowers everything.” Refer to his book `Awn Al-Ma`bood, explanation
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 335
 
@@ -10989,7 +10494,6 @@ may Allaah be pleased with him.
 
 336
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, also said: “If the
 wailing woman does not repent before she dies, she is resurrected on
@@ -11012,7 +10516,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Then yes, so it
 be.’” 3 In another narration the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, said: “The man did not live until the next evening.”
 Ma`mar narrated from Zayd ibn Aslam that the man died after that.4
-Among the benefits of this narration:
 • It does diminish the status of the leader to visit one of his sick subjects, even if it is a Bedouin. Likewise, it does not diminish the status
 of the scholar to visit an ignorant person in order to teach him, remind him of what benefits him, and order him to be patient. In this
 1 Reported by Muslim (934).
@@ -11020,8 +10523,6 @@ of the scholar to visit an ignorant person in order to teach him, remind him of 
 3 Reported by Al-Bukhaari (3616).
 4 Sharh Al-Bukhaari by ibn Battaal (17/473).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 337
 
@@ -11056,7 +10557,6 @@ teetering on a ledge.” 2
 
 338
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, prohibited the one
 afflicted with a calamity to wish death on themselves due to the harm
@@ -11091,8 +10591,6 @@ to my chest and said: ‘O Allaah, cure Abu Hurayrah.’
 3 The explanation of An-Nawawi on the book of Muslim (8/17).
 4 Reported by Maalik in his book Al-Muwatta’ (1560).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 339
 
@@ -11130,7 +10628,6 @@ set by the Al-Bukhaari and Muslim; Ath-Thahabi agreed with his conclusion.
 
 340
 
-Interactions Of The Greatest Leader
 
 is someone who does evil, so perhaps they will be able to seek Allaah’s
 Pleasure through giving up that evil and seeking forgiveness.”1
@@ -11163,8 +10660,6 @@ that it was my mother, Safiyyah, so I hurried over to her and reached her
 disliked that she see him in that state, for the polytheists had mutilated his body. So Allaah’s Messenger,
 sallallaahu ‘alayhi wa sallam, sent Az-Zubayr to her to stop her [from seeing him].”
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 341
 
@@ -11203,7 +10698,6 @@ Al-Janaa’iz (pg. 60).
 
 342
 
-Interactions Of The Greatest Leader
 
 Al-Mubaarakpoori, may Allaah have mercy upon him, said: “By that, the Prophet
 of Allaah, sallallaahu ‘alayhi wa sallam, wanted to complete his reward for him,
@@ -11237,8 +10731,6 @@ reported by Ahmad, and there are two women in the chain of narration whom I did 
 (as being trustworthy) or criticism against. Otherwise, the rest of those in the chain of narration are trustworthy.”
 3 Reported by Abu Daawood (3132), At-Tirmithi (998), and ibn Maajah (1610). Al-Albaani ruled it as
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 343
 
@@ -11275,7 +10767,6 @@ authentic in his book Saheeh Al-Jaami` (1015).
 
 344
 
-Interactions Of The Greatest Leader
 
 So a barber came and shaved our heads. Then he, sallallaahu
 ‘alayhi wa sallam, said: ‘As for Muhammad, he looks like our
@@ -11299,7 +10790,6 @@ orphan will be like this in Paradise.” Then he pointed with his index and
 middle fingers (made them right next to each other indicating how close
 a person would be to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, in
 Paradise as a result of sponsoring them)2
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Someone who cares for widows
 and orphans is like a Mujaahid in Allaah’s Path [one fighting in the Path
 of Allaah].” and said: ‘Like someone who stands in prayer and never gets
@@ -11309,8 +10799,6 @@ tired or ceases; like someone who fasts and never breaks their fast.’”3
 2 Reported by Al-Bukhaari (5546).
 3 Reported by Al-Bukhaari (5353) and Muslim (2982).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 345
 
@@ -11342,7 +10830,6 @@ Then I went to Messenger of Allaah, sallallaahu ‘alayhi wa sallam, while he wa
 
 346
 
-Interactions Of The Greatest Leader
 
 sallallaahu ‘alayhi wa sallam, said: ‘Your trade is [accepted and
 is] profitable, O Abu Yahya.’
@@ -11374,8 +10861,6 @@ him in authenticating that narration.
 2 Reported by Muslim (1556).
 3 The explanation of An-Nawawi on the book of Muslim (10/217).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 347
 
@@ -11410,7 +10895,6 @@ resurrected your father and spoke to him without a veil, and without it
 
 348
 
-Interactions Of The Greatest Leader
 
 being through a messenger, and He said to your father, ‘My slave, request
 something of me, and I shall grant it.’ Your father said: ‘O Lord, give me
@@ -11447,8 +10931,6 @@ Saheeh Al-Jaami` (7905).
 5 Al-I`jaaz Al-`Ilmi fee As-Sunnah An-Nabawiyyah (2/9), quoted from the website to be mentioned in
 the next footnote.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 349
 
@@ -11484,7 +10966,6 @@ summarized.
 
 350
 
-Interactions Of The Greatest Leader
 
 This narration benefits us in that we should preserve and remember
 the good standing of our brothers and friends, and that we should care for
@@ -11513,8 +10994,6 @@ consoles his brother during a calamity except that, because of that, Allaah
 1 Fat-h Al-Baari (6/51).
 2 The explanation of An-Nawawi on the book of Muslim (16/10).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 351
 
@@ -11554,7 +11033,6 @@ Ar-Rahbah, and I remember that he said: ‘Do away with the sickness, O
 
 352
 
-Interactions Of The Greatest Leader
 
 Lord of the people,’ and as far as I remember, he said: ‘You are the Curer,
 and there is no Curer besides You.’”1
@@ -11588,14 +11066,11 @@ of his deeds that he committed during a short span of time called Life.
 1 Reported by Ibn Hibbaan (2976). Al-Albaani ruled it as authentic in his book Tahqeeq Mawaarid
 Ath-Tham’aan (1186).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 353
 
 Section Four
 
-The Dealings of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with the Destitute
 Introduction:
 Poverty, in Islamic legislation, refers to lacking or falling short of basic
@@ -11621,7 +11096,6 @@ whatever he could, although he, himself, was poor. He, sallallaahu ‘alayhi
 
 354
 
-Interactions Of The Greatest Leader
 
 wa sallam, also taught his Companions to have mercy upon the poor as
 well. He, sallallaahu ‘alayhi wa sallam, sometimes used to feed them from
@@ -11652,8 +11126,6 @@ Daawood (2967).
 3 Reported by Al-Bukhaari (2904) Muslim (1757) and Abu Daawood (2975), and the wording is for
 Abu Daawood.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 355
 
@@ -11691,7 +11163,6 @@ Allaah, sallallaahu ‘alayhi wa sallam, was happy was because he saw the Mus1 R
 
 356
 
-Interactions Of The Greatest Leader
 
 lims hastening towards obeying Allaah The Almighty, spending their money for
 Allaah’s Sake, obeying the order of the Messenger of Allaah, sallallaahu ‘alayhi
@@ -11722,8 +11193,6 @@ up straight, or preventing too much gases that occur during digestion of the foo
 because the stone is tied around the stomach and is close to it, lessens the feeling of weakness (out
 of hunger). Another benefit is that the coldness of the rock lessens the heat of the hunger. Fat-h
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 357
 
@@ -11761,7 +11230,6 @@ among them got married, died, or traveled. Fat-h Al-Baari (6/595).
 
 358
 
-Interactions Of The Greatest Leader
 
 received a gift, he, sallallaahu ‘alayhi wa sallam, would take some of it, and share
 the rest with them, and that that bothered me, so I said: ‘This will not be sufficient
@@ -11793,8 +11261,6 @@ gave that to someone who was more deserving than you, O `Umar. And by Allaah, I 
 1 Red camels are the best and most expensive type of camels.
 2 Reported by Al-Bukhaari (5375), (6452) and At-Tirmithi (2477).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 359
 
@@ -11825,12 +11291,10 @@ it, as well as the fact that he gave precedence to obeying the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, over his share, even though he was
 severely in need of that share.
 • If someone is invited to another person’s home, they should not enter without permission.” 1
-Abu Hurayrah, may Allaah be pleased with him, said:
 1 Fat-h Al-Baari (11/289).
 
 360
 
-Interactions Of The Greatest Leader
 
 “Three days passed over me wherein I ate no food. So I went to as-Suffah and
 began falling, which caused the young children to say, ‘Abu Hurayrah has gone
@@ -11862,8 +11326,6 @@ I put it close to him, and he, sallallaahu ‘alayhi wa sallam, said to his Comp
 So I said to myself: ‘This is one (sign of his truthfulness).’
 1 Reported by ibn Hibbaan (6533). Al-Albaani ruled it as inauthentic in his book At-Ta`leeqaat AlHisaan (6499).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 361
 
@@ -11899,7 +11361,6 @@ sallam, said: ‘O `Aa’ishah, feed us.’
 
 362
 
-Interactions Of The Greatest Leader
 
 `Aa’ishah brought some Hasheeshah (a type of food that is made from slightly
 ground wheat that is then cooked and then meat or dates are added to it) and we
@@ -11932,8 +11393,6 @@ sallallaahu ‘alayhi wa sallam, was about the same number of his guests that ni
 half of his food, or something close to that. the explanation of An-Nawawi on the book of Muslim
 (14/8).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 363
 
@@ -11968,7 +11427,6 @@ threefold than what it was like before.’
 
 364
 
-Interactions Of The Greatest Leader
 
 Then he carried it to Messenger of Allaah, sallallaahu ‘alayhi wa sallam, and
 in the morning, it was in the same state, so he said: ‘O Messenger of Allaah,
@@ -11983,7 +11441,6 @@ group had many men with them, and Allaah knows best how many men. The
 plate was sent with them, and they all ate from it.”1
 Thus, what happened is that the entire army ate from the plate that
 Abu Bakr, may Allaah be pleased with him, sent to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.
-Among the benefits of this narration:
 • It is recommended to prefer giving the poor a part of a meal to comfort them. That is why the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, ordered that an individual who has the food enough for two
 to take a third, and for the one who has enough food for four to take
@@ -12001,8 +11458,6 @@ there for prayer.
 1 This story has been collected from reports in Al-Bukhaari (602), (3581), (6141), Muslim (2075) and
 Ahmad (1714).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 365
 
@@ -12036,7 +11491,6 @@ An-Nawawi on the book of Muslim (14/18).
 
 366
 
-Interactions Of The Greatest Leader
 
 “I came with a friend of mine, and we almost could not hear or see due to our
 intense hunger, so we began presenting ourselves to people, but no one invited
@@ -12068,8 +11522,6 @@ uncovered it, but found nothing in it. Then he raised his head to the heavens, a
 I said to myself, ‘Now he will supplicate against me, and I will be destroyed.’ Instead, he, sallallaahu ‘alayhi wa sallam, said: ‘O Allaah, feed whomever fed
 me, and give drink to whomever gave me drink.’
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 367
 
@@ -12104,7 +11556,6 @@ Companions:
 
 368
 
-Interactions Of The Greatest Leader
 
 Abu Hurayrah, may Allaah be pleased with him, said: that a man came to the
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and said: “O Messenger of
@@ -12139,8 +11590,6 @@ that his breath smelled as if he had not eaten. The Prophet of Allaah, sallallaa
 man said: ‘I do, however, I have not eaten in three days.’ So the Prophet of
 1 Reported by Al-Bukhaari (3798) and Muslim (2054).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 369
 
@@ -12175,7 +11624,6 @@ book of Ahmad (4/131).
 
 370
 
-Interactions Of The Greatest Leader
 
 Allaah, sallallaahu ‘alayhi wa sallam, some of its milk, and he would give it
 to us to drink.” 1
@@ -12205,8 +11653,6 @@ being arrogant towards them:
 4 Reported by Al-Bukhaari (4101) and Muslim (2039).
 5 Reported by At-Tirmithi (2371). Al-Albaani ruled it as inauthentic in his book Dha`eef Sunan AtTirmithi (2490).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 371
 
@@ -12243,7 +11689,6 @@ that, one’s heart becomes detached from the remembrance of Allaah. Instead, su
 
 372
 
-Interactions Of The Greatest Leader
 
 an individual would proceed towards delights and desires, and through that, they
 would waste their time and become neglectful. If this happens, such an individual
@@ -12274,8 +11719,6 @@ Such people are not deserving of being turned away or ignored, but rather,
 they deserve loyalty and love, and to be brought closer, because they are the elite
 1 Tafseer As-Si`di (1/475).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 373
 
@@ -12311,7 +11754,6 @@ they become Muslim, was on the verge of accepting their offer, but Allaah’s Or
 
 374
 
-Interactions Of The Greatest Leader
 
 upon their Lord morning and afternoon, seeking His countenance. Not
 upon you is anything of their account and not upon them is anything of
@@ -12346,8 +11788,6 @@ and said: “The rich have taken all the highest stations and lasting bliss.”
 1 Tafseer At-Tabari (11/374).
 2 Reported by Muslim (2413).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 375
 
@@ -12383,7 +11823,6 @@ Al-Albaani ruled it as authentic in his book Irwaa’ Al-Ghaleel (684).
 
 376
 
-Interactions Of The Greatest Leader
 
 those who are above me, to keep the ties of the womb no matter how far
 they are, to not ask anyone for anything, to say the truth, even if it is bitter,
@@ -12415,8 +11854,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, cared for the destitute 
 authentic in his book Saheeh Sunan An-Nasaa’i (1907). Al-Bukhaari (458) and Muslim (956) also
 reported similar narrations on the authority of Abu Hurayrah, may Allaah be pleased with him.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 377
 
@@ -12454,7 +11891,6 @@ in the narration).”
 
 378
 
-Interactions Of The Greatest Leader
 
 Then the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, got some captives, and gave her a slave girl. She said: “It rid me of the responsibility of
 caring for the horse, and she took care of it for me.” 1
@@ -12486,8 +11922,6 @@ Allaah, Subhaan Allaah, Subhaan Allaah wa bi-Hamdihi [Glorified is
 3 Fat-h Al-Baari (9/324).
 4 Reported by Ahmad (15646). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami` (4836).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 379
 
@@ -12525,7 +11959,6 @@ the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘What do you say
 
 380
 
-Interactions Of The Greatest Leader
 
 about this man?’ They said: ‘He is one of the nobles of the people; if he were to
 propose (for marriage), he would be accepted; if he were to intercede, he would be
@@ -12560,8 +11993,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘How do you view him?’ I s
 1 Reported by Al-Bukhaari (5091).
 2 Fat-h Al-Baari (11/278), and this is a summary what he said.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 381
 
@@ -12600,7 +12031,6 @@ At-Tarheeb (3203).
 
 382
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, gave them glad
 tidings that they will enter Paradise long before the rich:
@@ -12632,8 +12062,6 @@ you are rich.’ The man said: ‘I have a servant as well.’ `Abdullaah said:
 ‘Then you are among the kings.’
 1 Reported by Muslim (315).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 383
 
@@ -12667,7 +12095,6 @@ five-hundred years. ibn Hibbaan, may Allaah have mercy upon him, has made a
 
 384
 
-Interactions Of The Greatest Leader
 
 chapter heading for the Hadeeth of `Abdullaah ibn `Amr ibn Al-`Aas, may
 Allaah be pleased with him, and said: “A mention of the favoritism of Allaah The
@@ -12702,8 +12129,6 @@ light on their faces as bright as the sun.’
 4 Haadi Al-Arwaah (81).
 5 An-Nihaayah Fi Al-Fitan wa Al-Malaahim (1/273).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 385
 
@@ -12738,7 +12163,6 @@ and that, no doubt, lowers their levels of faith. That shows that their faith in
 
 386
 
-Interactions Of The Greatest Leader
 
 It has been established that actions are a part of faith, and that faith is statement
 and action, since through good actions, faith increases, and through evil actions,
@@ -12771,8 +12195,6 @@ among you for me, because you will be granted sustenance and victory
 4 Meaning that a poor person will have a less burden when he is facing his account, because he does
 not possess any wealth to be questioned about; Sifat As-Safwah (3/277).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 387
 
@@ -12808,7 +12230,6 @@ Al-Ma`bood (7/256).
 
 388
 
-Interactions Of The Greatest Leader
 
 That is a direct application of the saying of Allaah (which means): «O
 you who believed, spend from the good things which you have earned
@@ -12840,8 +12261,6 @@ have mercy upon him, responded, “However, Allaah knows!”2
 Saheeh Sunan Ibn Maajah (1822).
 2 Siyar A`laam An-Nubalaa’ (7/290).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 389
 
@@ -12878,7 +12297,6 @@ explicitly mentioned that the Prophet of Allaah, sallallaahu ‘alayhi wa sallam
 
 390
 
-Interactions Of The Greatest Leader
 
 Allaah The Almighty Says (what means): «[Charity is] for the poor
 who have been restricted for the cause of Allaah, unable to move about in
@@ -12911,8 +12329,6 @@ eats without becoming full. The hand that is higher [giving the poor] is
 better than the one that is lower [receiving from others].’
 1 Tafseer At-Tabari (5/593-600); this was a summary, and with some slight adaptations.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 391
 
@@ -12947,7 +12363,6 @@ away with his need; whoever suffices with Allaah, Allaah will suffice
 
 392
 
-Interactions Of The Greatest Leader
 
 him; whoever tries to be patient, Allaah will grant him patience, and no
 one has ever been given anything better or more wide than patience.” 1
@@ -12980,8 +12395,6 @@ the needy over his family:
 1 Reported by Al-Bukhaari (1469) and Muslim (1053).
 2 Reported by Al-Bukhaari (3133) and Muslim (1649).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 393
 
@@ -13018,9 +12431,7 @@ for money:
 
 394
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Whoever asks people for money in order to increase his own money is asking for a piece of Hellfire, so
 let them ask a lot if they want, or let them ask for a little bit if they want
 [either way, they will incur punishment].” 1
@@ -13050,8 +12461,6 @@ that a person eats better than that which his own hand earned; and Al1 Reported 
 4 The explanation of An-Nawawi on the book of Muslim (10/213).
 5 Reported by Ahmad (12569). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami` (1424).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 395
 
@@ -13089,7 +12498,6 @@ the narration that At-Tirmithi reported.
 
 396
 
-Interactions Of The Greatest Leader
 
 The Prophets worked various jobs and crafts, such as:
 Shepherding: Abu Hurayrah, may Allaah be pleased with him, reported the
@@ -13119,8 +12527,6 @@ palm leaves), Al-Jazzaar (butcher), Az-Zajjaaj (glassmaker), Al-Haddaad
 2 Reported by Muslim (2379).
 3 The explanation of An-Nawawi on the book of Muslim (15/135).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 397
 
@@ -13158,11 +12564,9 @@ may Allaah be pleased with him. Al-Albaani ruled it as authentic in his book Irw
 2 Reported by Ibn Abu Shaybah (34561).
 3 Hilyat Al-Awliyaa’ (6/381).
 4 Reported by Al-Bukhaari (1476) and Muslim (1039) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 
 398
 
-Interactions Of The Greatest Leader
 
 from the one who goes around asking, but rather, the completeness of being poor.”
 1
@@ -13198,8 +12602,6 @@ him dates.” They said: “We do not have any.” She said: “Give him Saweeq
 authentic in his book Saheeh Al-Jaami` (1440).
 4 Tuhfat Al-Ahwathi (3/268).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 399
 
@@ -13238,7 +12640,6 @@ to Julaybeeb.
 
 400
 
-Interactions Of The Greatest Leader
 
 Then the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, went out to battle,
 and Julaybeeb was with him, and when Allaah gave him war booty, he said to the
@@ -13272,8 +12673,6 @@ as the people take.’ When they were in this condition, `Ali ibn Abu Taalib cam
 to the conditions set by Muslim.”. The beginning of the story of the battle was reported by Muslim
 (2472).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 401
 
@@ -13310,7 +12709,6 @@ your daughter to this boy,’ for me, and so he married his daughter to me.
 
 402
 
-Interactions Of The Greatest Leader
 
 Then he, sallallaahu ‘alayhi wa sallam, said to Mahmiyah: ‘Give them suchand-such amount of the fifth to them.’” 1
 He, sallallaahu ‘alayhi wa sallam, married a poor man to a woman who
@@ -13341,14 +12739,11 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “Can you read
 them from your memory?” The man said: “Yes, I can.” So the Prophet
 1 Reported by Muslim (1072).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 403
 
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Go, for I have married this
 woman to you for that which you know from the Qur’aan.”1
-Among the benefits of this narration:
 • It is evidence that it was permissible for a woman to give herself to
 the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and that is one
 of his special qualities, and it is not permissible for anyone else, as
@@ -13380,7 +12775,6 @@ amount, depending on the financial capability, as well as if the two
 
 404
 
-Interactions Of The Greatest Leader
 
 spouses agree. The proof is that a metal or iron ring is very inexpensive.
 • It is permissible to wear a metal ring.
@@ -13410,8 +12804,6 @@ some tribes and families, where each member would give some help according to th
 2 Reported by Al-Bukhaari (2486) and Muslim (2500).
 3 The explanation of An-Nawawi on the book of Muslim (16/62).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 405
 
@@ -13447,7 +12839,6 @@ without working, such as inheriting from someone who died.
 
 406
 
-Interactions Of The Greatest Leader
 
 Labor and working is of two types:
 1) A type of labor that was made specifically and tangibly for earning sustenance, such as manufacturing, farming, and business.
@@ -13477,8 +12868,6 @@ hands [their wealth], and as long as their leaders do not rule by Messen1 Majmoo
 it as authentic in his book Al-Mustadrak (1814), Al-Munthiri in his book At-Targheeb wa At-Tarheeb
 (3733). However, Al-Albaani ruled it as inauthentic in his book Dha`eef Al-Jaami` (1452).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 407
 
@@ -13518,7 +12907,6 @@ Saheeh Al-Jaami` (5254).
 
 408
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did not fear poverty for his Ummah as much as he feared that they would compete for
 the worldly life:
@@ -13551,8 +12939,6 @@ will be given to you in abundance, to the point that one of you will not be
 1 Reported by Al-Bukhaari (4015) and Muslim (2961).
 2 The explanation of Ibn Battaal on the book of Al-Bukhaari (10/155).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 409
 
@@ -13588,19 +12974,15 @@ spirits, and broaden their minds. He, sallallaahu ‘alayhi wa sallam, wanted
 
 410
 
-Interactions Of The Greatest Leader
 
 their welfare in this worldly life and in the Hereafter as his approach was
 truly balanced and comprehensive.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 411
 
 Section Five
 
-The Dealings of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with the rich
 Introduction:
 The rich are an important social class within society and have a very
@@ -13627,7 +13009,6 @@ be pleased with him, `Uthmaan ibn `Affaan, may Allaah be pleased with him, Sa`ee
 
 412
 
-Interactions Of The Greatest Leader
 
 Ar-Rabi`, may Allaah be pleased with him, Abu Talhah, may Allaah be pleased with him,
 and many others.
@@ -13658,8 +13039,6 @@ sent me to you, but you said: ‘You are telling a lie,’ while Abu Bakr said:
 ‘He has said the truth,’ and he consoled me with himself and his money.”
 He, sallallaahu ‘alayhi wa sallam, then said twice, “Won’t you then give up
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 413
 
@@ -13679,7 +13058,6 @@ he consoled the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, through his
 own self. So the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, recognized
 that for him, and said: in order to build his stature and to remind the Ummah of his virtues: “No one’s wealth helped me as much as the wealth of
 Abu Bakr helped me.”
-Among the benefits of this narration:
 • It is important to keep good manners and humbleness in the presence of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.
 • Thanking someone who has bestowed some favor on you, as well as
 supplicating for them is part of having good manners. 3
@@ -13694,7 +13072,6 @@ As-Sagheer (2/57).
 
 414
 
-Interactions Of The Greatest Leader
 
 (Jaysh Al-`Usrah), and poured that money in the home of the Prophet
 of Allaah, sallallaahu ‘alayhi wa sallam, The Prophet of Allaah, sallallaahu
@@ -13729,8 +13106,6 @@ that is not my possession.’ So Abu Bakr said: ‘Then it is yours,’ and the
 book Tahqeeq Mishkaah Al-Masaabeeh (6064).
 2 Reported by Al-Bukhaari (2138).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 415
 
@@ -13769,7 +13144,6 @@ until you spend [in the way of Allaah] from that which you love.» [Qur’aan:
 
 416
 
-Interactions Of The Greatest Leader
 
 [in the way of Allaah] from that which you love.» and the most beloved part
 of my wealth is Bayruhaa’. Therefore, it is a charity for the sake of Allaah, and I
@@ -13784,7 +13158,6 @@ of Allaah.’ So Abu Talhah divided it between his relatives and cousins,
 and among them were Hassaan and Ubaiy ibn Ka`b.” 1
 That is how the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, used to
 advise them about which places are more suitable for charity.
-Among the benefits of this narration:
 • It is recommended for one to spend from their most beloved possessions.
 • One should seek the counsel of the people of knowledge and good
 virtue regarding how one should distribute charity, do good actions, and so forth.
@@ -13800,8 +13173,6 @@ of good virtue and knowledge go in to it, take shade in its trees, eat
 its fruits, and just generally relax in them. Sometimes that is recommended and brings about reward if the individual has the intention
 1 Reported by Al-Bukhaari (1461) and Muslim (998).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 417
 
@@ -13836,7 +13207,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, said: “Charity given to a poor per
 
 418
 
-Interactions Of The Greatest Leader
 
 son is just charity, but charity to those related by the womb is twofold:
 charity, and keeping the ties of the womb.” 1
@@ -13873,13 +13243,10 @@ by you, meaning that they will be killed.
 so that he can go to the place that he migrated to (Madeenah) and so that he does not stay and
 reside in Makkah due to his sickness. Fat-h Al-Baari (11/180).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 419
 
 Az-Zuhri, may Allaah have mercy upon him, said: “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was deploring his death in Makkah.” 2 1
-Among the benefits of this narration:
 • It is recommended to visit the sick; it is recommended for the leader as it is
 for individuals.
 • It is permissible for the sick person to speak of what he is feeling, for a good
@@ -13912,7 +13279,6 @@ and further, dying there. the explanation of An-Nawawi on the book of Muslim (11
 
 420
 
-Interactions Of The Greatest Leader
 
 actions, as well as to satisfy her rights, and have righteous children [all
 carry the same ruling, if done with the correct intention, the individual is
@@ -13944,8 +13310,6 @@ given all of them the same as you have given this son of yours?” He said:
 1 The explanation of An-Nawawi on the book of Muslim (11/76).
 2 Reported b Al-Bukhaari (2587) and Muslim (1623).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 421
 
@@ -13983,7 +13347,6 @@ benefit from that, if it is from the wealth that they wanted to collect and save
 
 422
 
-Interactions Of The Greatest Leader
 
 if the inheritor uses it in the disobedience of Allaah, it will farther in the reach of
 the original owner, if they are saved from the evil consequence, that is.
@@ -14019,8 +13382,6 @@ to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, while he was reading
 ‘My wealth, my wealth,’ but O son of Aadam, is any of your wealth yours,
 1 The explanation of Ibn Battaal on the book of Al-Bukhaari (19/216).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 423
 
@@ -14059,7 +13420,6 @@ ruled it as inauthentic in his book Irwaa’ Al-Ghaleel (898).
 
 424
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, accepted that from
 some of them due to their intense reliance on Allaah, patience in the
@@ -14092,8 +13452,6 @@ Lord, announce [it].» [Qur’aan: 93:11]
 2 The explanation of Al-`Ayni on the book of Abu Daawood (6/432).
 3 Fat-h Al-Baari (3/259).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 425
 
@@ -14133,9 +13491,7 @@ his book Ghaayat Al-Maraam (75).
 
 426
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, reported that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Whoever gives a pair of any
 type of wealth for Allaah’s sake will be called at the doors of Paradise,
 and the caller will say, ‘O slave of Allaah, this is something good.’ If the
@@ -14165,8 +13521,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, The Prophet of Allaah, sallallaahu
 1 Reported by Al-Bukhaari (1897) and Muslim (1027).
 2 Reported by Muslim (1028).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 427
 
@@ -14202,7 +13556,6 @@ profit] that will never perish. That He may give them in full their rewards
 
 428
 
-Interactions Of The Greatest Leader
 
 and increase for them of His bounty. Indeed, He is Forgiving and Appreciative.» [Qur’aan: 35:29-30]
 As-Si`di, may Allaah have mercy on him, said: «A transaction [i.e. profit] that
@@ -14233,8 +13586,6 @@ filled with plenty of words that the seller does not mean, and with plenty
 1 Tafseer As-Si`di (1/689).
 2 Reported by Ahmad (12073). Al-Albaani ruled it as authentic in As-Silsilah As-Saheehah (2964).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 429
 
@@ -14271,7 +13622,6 @@ authentic in his book Saheeh Al-Jaami` (7973).
 
 430
 
-Interactions Of The Greatest Leader
 
 Al-Qaadhi, may Allaah have mercy on him, said: “This Hadeeth occurred because usually, the practice of merchants in dealing with others involves
 hiding facts when dealing. They also strive to put their merchandise in
@@ -14282,7 +13632,6 @@ exception to those who keep away from forbidden practices, fulfill their
 oaths, and are honest when speaking.” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, prohibited them
 from cheating when buying and selling:
-Abu Hurayrah, may Allaah be pleased with him, reported that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, passed by a heap of grains and put
 his hand in it, and found some wetness, so he said: “What is this, O owner
 of this merchandise?” The man said: “It has been affected by rain, O Messenger of Allaah” So the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
@@ -14293,7 +13642,6 @@ sallallaahu ‘alayhi wa sallam, follows his actions and knowledge, and good
 conduct. Sufyaan ibn `Uyainah used to dislike interpreting these types of
 ahaadeeth, so that they have more of an effect on the hearts and souls of
 those who hear it, as well as, so that it is more telling of the censure.” 3
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Do not do Tasriyah4 with regards to camels and goats. Whoever purchases such a camel or goat has
 the choice to milk it, and afterwards, can either keep it, or return it alone
 with a measurement of dates.” 5
@@ -14305,8 +13653,6 @@ purchaser, as that would give the wrong impression to the one buying the goat or
 animal always produces large quantities of milk. An-Nihaayah (3/27).
 5 Reported by Al-Bukhaari (2148) and Muslim (1515).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 431
 
@@ -14316,7 +13662,6 @@ deceitfulness. However, the transaction is valid despite its prohibition,
 but the buyer has the choice of upholding the transaction or rejecting it.” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, rewarded those
 that did something good for him:
-Abu Hurayrah, may Allaah be pleased with him, said:
 “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, went out of his home
 at an hour that usually no one is out, and no one can be found at that hour. Abu
 Bakr approached him and he, sallallaahu ‘alayhi wa sallam, said: ‘What has
@@ -14342,7 +13687,6 @@ choose between the ripe and unripe dates.’ Then they ate and drank from the wa
 
 432
 
-Interactions Of The Greatest Leader
 
 will be asked about on the Day of Resurrection; cool shade, good dates,
 and cold water.’ Then Abu Al-Haytham wanted to go make food for them, but
@@ -14375,8 +13719,6 @@ a woman for the dowry of a stone’s weight of gold.” The Messenger of
 (1641). It was also reported by Muslim (2038) without the story of the servant and without naming
 Abu Al-Haytham, may Allaah be pleased with him.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 433
 
@@ -14413,7 +13755,6 @@ short period) became wealthy.
 
 434
 
-Interactions Of The Greatest Leader
 
 on a man who is easygoing when selling, buying, and when asking for
 money he lent.” 1
@@ -14444,8 +13785,6 @@ family of so-and-so.’ When my father took his charity to him, he, sallallaahu 
 4 Reported by Ibn Maajah (2201) and Ahmad (412). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami` (243).
 5 Reported by Al-Bukhaari (1498) and Muslim (1078).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 435
 
@@ -14479,7 +13818,6 @@ Subhaan Allaah wa bi-Hamdihi [glorified and praised is Allaah], be1 The explanat
 
 436
 
-Interactions Of The Greatest Leader
 
 cause it is the prayer of everything, and with it, everything is given as
 sustenance.’” 1
@@ -14497,7 +13835,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Then seek forgiveness and
 supplicate for your brother.’” 2
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, became angry at
 those among them who withheld their obligatory charity:
-Abu Hurayrah, may Allaah be pleased with him, said:
 “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, sent `Umar to collect charity, and it was said that ibn Jameel, Khaalid ibn Al-Waleed, and Al-`Abbaas, the uncle of Messenger of Allaah, sallallaahu ‘alayhi wa sallam, withheld
 their charity.
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Why does ibn
@@ -14510,8 +13847,6 @@ Sake [in Jihaad]; as for Al-`Abbaas, I have already taken two years’
 2 Reported by Ahmad in his book Az-Zuhd (pg. 38) and the narrators are credible and trustworthy,
 despite the fact the narration itself is Mursal (meaning, the companion’s name is not mentioned).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 437
 
@@ -14544,7 +13879,6 @@ with the small amount of wealth.’
 
 438
 
-Interactions Of The Greatest Leader
 
 As for his, sallallaahu ‘alayhi wa sallam, seeking refuge from debt, then he,
 sallallaahu ‘alayhi wa sallam, has described and explained it as being that if one
@@ -14556,7 +13890,6 @@ one in debt would constantly be thinking of that debt, and if the one in debt di
 before paying off the debt, their soul remains subject to that debt.” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, clarified that true
 richness is that of the heart:
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Richness is not to have much
 possessions of this worldly life, but richness is that of the soul.” 2
 An-Nawawi, may Allaah have mercy on him, said: “The meaning of the narration is that the richness that is praiseworthy is that of the soul, meaning,
@@ -14578,8 +13911,6 @@ insist on increasing their wealth, so it is as if they are rich.” 4
 3 The explanation of An-Nawawi on the book of Muslim (7/140).
 4 The explanation of Ibn Battaal on the book of Al-Bukhaari (10/156).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 439
 
@@ -14614,7 +13945,6 @@ At-Tarheeb (3203).
 
 440
 
-Interactions Of The Greatest Leader
 
 The term “Having a pleasant attitude is a blessing,” means, to have
 high spirits and being in a pleasant mood, a prerequisite for thanking Allaah and
@@ -14643,14 +13973,11 @@ people cannot perform.
 
 1 Murqaat Al-Mafaateeh (15/201).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 441
 
 Section Six
 
-The Dealings of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with those of high social status
 Introduction:
 The Prophet’s superb manners manifested themselves in many different forms, and with all societal groups without exception, that includes
@@ -14677,7 +14004,6 @@ regardless, the meaning of the narration is authentic.
 
 442
 
-Interactions Of The Greatest Leader
 
 Abu Sufyaan, may Allaah be pleased with him, was one of the elders of
 Quraysh, and then became their leader after the death of the rest of its
@@ -14708,8 +14034,6 @@ Daawood (3021).
 2 Reported by Muslim (1780).
 3 The explanation of An-Nawawi on the book of Muslim (12/127).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 443
 
@@ -14748,7 +14072,6 @@ virtue, through knowledge, religion or wealth, would enter, and
 
 444
 
-Interactions Of The Greatest Leader
 
 you stand for him; this is from the Sunnah, and an example of that
 is when the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said:
@@ -14777,8 +14100,6 @@ him.
 2 This is summarized from Liqaa’ Al-Baab Al-Maftooh by Ibn `Uthaimeen, may Allaah have mercy
 upon him (59/25) with some adaptations.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 445
 
@@ -14815,7 +14136,6 @@ As-Saheehah (3225).
 
 446
 
-Interactions Of The Greatest Leader
 
 that Allaah answered his call and granted Islaam glory through him, as
 is well-known from his biography, may Allaah be pleased with him, and this is
@@ -14846,8 +14166,6 @@ his wife. We fear that what has befallen us may also befall you and
 1 Reported by Al-Bukhaari (3863) and As-Silsilah As-Saheehah (13/28).
 2 Zaad Al-Ma`aad (3/28).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 your people. So do not speak with him, and do not listen to anything
 he says.
@@ -14885,7 +14203,6 @@ some luminescence appeared between my eyes, and was like a lamp.
 
 448
 
-Interactions Of The Greatest Leader
 
 I said: ‘O Allaah, in any place other than my face; I fear that they
 might think it is a punishment that was placed on my face because
@@ -14918,8 +14235,6 @@ I was in the land of Daws calling them to Islaam when the Prophet of Allaah, sal
 and then the Battles of Badr, Uhud, and Khandaq all passed. Then I
 went to the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, with
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 449
 
@@ -14958,7 +14273,6 @@ Muslims).’” Reported by Al-Bukhaari (2937) and Muslim (2524).
 
 450
 
-Interactions Of The Greatest Leader
 
 “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, sent
 messengers from his Companions, and sent letters with them that
@@ -14990,10 +14304,7 @@ Ibn Shihaab az-Zuhri, may Allaah have mercy on him, said: “Umm Hakeem
 bint Al-Haarith ibn Hishaam was married to `Ikrimah ibn Abu Jahl. She
 1 As-Seerah An-Nabawiyyah (2/607) by Ibn Hishaam.
 2 Reported by Al-Bukhaari (7) and Muslim (1773) on the authority of Ibn `Abbaas, may Allaah be
-pleased with him.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 451
 
@@ -15029,7 +14340,6 @@ similar to it which support it.” At-Tarkhees Bi Al-Qiyaam (pg. 44).
 
 452
 
-Interactions Of The Greatest Leader
 
 army reaching this area, let me know.’ He did what I asked him
 to do. Early one day, he came and said: ‘O `Adiyy! Whatever you
@@ -15063,8 +14373,6 @@ He, sallallaahu ‘alayhi wa sallam, said: ‘I will do that, but do not leave i
 haste until you find a group of your people whom you trust who would
 accompany you to your land; let me know when that happens.’ When I
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 453
 
@@ -15100,11 +14408,9 @@ her, and he, sallallaahu ‘alayhi wa sallam, stood with her for a long
 
 454
 
-Interactions Of The Greatest Leader
 
 time while she was explaining her need to him. I said to myself, ‘I
 swear by Allaah, this is not (a behavior of) a king.’
-The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, then
 took me to his house, picked a cushion made of wool and stuffed with
 leaves, and gave it to me saying: ‘Sit on this.’ I said: ‘Rather, you
 sit on it.’ He, sallallaahu ‘alayhi wa sallam, said: ‘No, you sit on
@@ -15132,8 +14438,6 @@ prevents you from embracing it is that their enemies are
 numerous and their numbers are lacking. By Allaah, soon
 a woman would leave Qaadisiyyah [a place in Iraq] while
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 455
 
@@ -15171,7 +14475,6 @@ is amazing.” Ar-Rawdh Al-Anif (7/477).
 
 456
 
-Interactions Of The Greatest Leader
 
 wa sallam, came out of his home, and he came out wearing a cloak made
 of silk and embroidered with gold, and said: “O Makhramah, we hid this
@@ -15204,8 +14507,6 @@ the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, was sitting
 4 The explanation of Ibn Battaal on the book of Al-Bukhaari (9/305).
 5 Fat-h Al-Baari (10/315).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 457
 
@@ -15240,7 +14541,6 @@ from the Entirely Merciful, the Especially Merciful, A Book
 
 458
 
-Interactions Of The Greatest Leader
 
 whose verses have been detailed, an Arabic Qur’aan for a people who know. As a giver of good tidings and a warner; but
 most of them turn away, so they do not hear. And they say,
@@ -15271,8 +14571,6 @@ honor would also be yours, and in that case, you would be the happiest of people
 1 When one recites certain verses of the Qur’aan, it is recommended that one prostrates. One such
 example is verse 38 of Chapter Fussilat.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 They said: ‘By Allaah, he has cast a spell on you with his tongue,
 O Abu Al-Waleed.’ He replied: ‘This is my opinion of him, so do
@@ -15311,7 +14609,6 @@ Tha`labah, the relative of the children of Sa`b ibn Bakr.’” 2
 
 460
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, found excuses for
 their behavior and was forbearing with regards to their manners, and
@@ -15344,8 +14641,6 @@ that person.” 3
 2 Badaa’i` Al-Fawaa’id (3/661) with slight adaptation.
 3 Fataawaa Al-Lajnah Ad-Daa’imah (22/56).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 461
 
@@ -15382,7 +14677,6 @@ Then Abu Bakr went to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam.
 
 462
 
-Interactions Of The Greatest Leader
 
 While I was sitting with the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 Abu Bakr, may Allaah be pleased with him, came, lifting up one corner of his garment until his knee showed.
@@ -15413,8 +14707,6 @@ saying: ‘Sit on this.’ Jareer put it on his chest and face, then kissed it a
 rubbed it on his eyes, saying: ‘May Allaah honor you as you have honored
 1 Reported by Al-Bukhaari (3661).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 463
 
@@ -15428,7 +14720,6 @@ then honor them.’” 2
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, acted in a good
 manner towards them, even if they were captives, just to preserve their
 status and out of hope that they would accept Islaam:
-Abu Hurayrah, may Allaah be pleased with him, said:
 “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, sent
 some horsemen in the direction of Najd, and they brought back a
 man from Banu Haneefah. They did not know who he was until they
@@ -15441,7 +14732,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, went back to his family and
 said: ‘Gather whatever food you have, then send it to me.’ He
 also ordered that a she-camel be brought close to him by day and by
 night so that he could milk it).
-The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, then
 went to Thumaamah and said: ‘What is your situation O Thumaamah?’ He replied: ‘I have only what is righteous (to say), O
 Muhammad. If you were to kill me, you would kill someone worthy
 of being killed (because he killed someone, so killing him would be
@@ -15452,14 +14742,12 @@ book that he wrote verifying the reports of Ihyaa `Uloom ad-Deen, “The chain o
 
 464
 
-Interactions Of The Greatest Leader
 
 fair judgment), if you are kind, you would be kind to someone grateful, also, if you want money, then ask and you will be given whatever it is you want.’ Allaah’s Messenger, sallallaahu ‘alayhi wa sallam, left him for two days and then went to him and said: ‘What is
 your situation, O Thumaamah.’ Thumaamah repeated the same
 thing again to him. The Messenger of Allaah, sallallaahu ‘alayhi wa
 sallam, then left him alone until the next day and repeated whatever
 he said in the first day, and Thumaamah responded the same way.
-The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, then
 said: ‘Free Thumaamah.’ When they freed him, he went to a datepalm tree close to the mosque and bathed, then entered the mosque
 and said: ‘I bear witness that there is none worthy of worship besides
 Allaah and that Muhammad, sallallaahu ‘alayhi wa sallam, is His
@@ -15482,8 +14770,6 @@ narration:
 1 Reported by Al-Bukhaari (4372) and Muslim (1764). The text between brackets is an addition from
 the book As-Seerah An-Nabawiyyah (2/638) by Ibn Hishaam.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 465
 
@@ -15517,7 +14803,6 @@ Jareer, may Allaah be pleased with him, said: “Since I became Muslim, the Mess
 
 466
 
-Interactions Of The Greatest Leader
 
 laahu ‘alayhi wa sallam, saw me, he smiled in my face. I complained to him
 once that I cannot remain firm and upright on a horse, so he, sallallaahu
@@ -15549,8 +14834,6 @@ has the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, mentioned me?’
 1 Reported by Al-Bukhaari (3036) and Muslim (2475).
 2 The explanation of Ibn Battaal on the book of Al-Bukhaari (5/194).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 467
 
@@ -15586,7 +14869,6 @@ chains of narration.” Al-Kaafi ash-Shaaf (241).
 
 468
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said to Ashaj `Abd
 Qays, and he was the delegate, general, and leader of the tribe of `Abd
@@ -15619,8 +14901,6 @@ sons went with the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, carryin
 said to the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, “Circumam1 Reported by Muslim (17) on the authority of Ibn `Abbaas, may Allaah be pleased with him.
 2 The explanation of An-Nawawi on the book of Muslim (1/189).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 469
 
@@ -15656,7 +14936,6 @@ goodness and blessing (for the person who offered fasting persons a meal). There
 
 470
 
-Interactions Of The Greatest Leader
 
 are numerous righteous aspects associated with fasting and abundant goodness.
 Further, those who cannot bring good to themselves are unable to bring good to
@@ -15676,7 +14955,6 @@ Allaah.’ Sa`d responded silently. I said: ‘Will you not give the
 Messenger of Allaah permission to enter?’ He said: ‘Leave him, and
 allow him to send abundant supplications of peace on us.’ The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘As-Salaamu
 `Alaykum wa Rahmatu Allaah.’ Sa`d again responded silently.
-The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, then
 said again: ‘As-Salaamu `Alaykum wa Rahmatu Allaah.’ After that, the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
 turned back, and Sa`d followed behind him, saying: ‘O Messenger
 of Allaah, I heard you, but was responding silently, so that you can
@@ -15688,8 +14966,6 @@ and yellow, which he, sallallaahu ‘alayhi wa sallam, covered himself
 with, then raised his hands and said: ‘O Allaah, send your blessings and mercy on the family of Sa`d ibn `Ubaadah.’
 1 Faydh Al-Qadeer (2/54).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 471
 
@@ -15728,7 +15004,6 @@ Abu Daawood (5185).
 
 472
 
-Interactions Of The Greatest Leader
 
 him, when he pitched a tent for him in the mosque, to care for him at close
 
@@ -15764,8 +15039,6 @@ Irwaa’ Al-Ghaleel (1213).
 time with his visitors, and so that the tiredness one gets from being with someone for too long goes
 away. Daleel Al-Faaliheen li-Turuq Riyaadh As-Saaliheen (4/464).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 473
 
@@ -15775,7 +15048,6 @@ they, too, began to weep. He, sallallaahu ‘alayhi wa sallam, then
 said: ‘Do you not hear, Allaah does not punish for tears in
 the eyes, or sadness in the heart, but punishes or has mercy
 based on this’ and he pointed to his tongue.” 1
-Among the benefits of this narration:
 • One should ask about the sick.
 • It is recommended to visit those who are sick.
 • The one who is noble and virtuous should visit those who are less
@@ -15800,7 +15072,6 @@ may Allaah be pleased with him, spoke, but the Messenger of Allaah, sallallaahu
 
 474
 
-Interactions Of The Greatest Leader
 
 him. Then, Sa`d ibn `Ubaadah, may Allaah be pleased with him, said: “Do you want
 
@@ -15831,8 +15102,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, wanted to give
 2 Reported by Muslim (1779).
 3 The explanation of An-Nawawi on the book of Muslim (12/124).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 475
 
@@ -15870,7 +15139,6 @@ ibn Al-Khattaab, may Allaah be pleased with him, departed towards the Levant.
 
 476
 
-Interactions Of The Greatest Leader
 
 When he reached an area called Sargh, the commanders of the armies,
 Abu Ubaydah ibn Al-Jarraah, may Allaah be pleased with him, and his companions met him and told him that an epidemic has broken out in the Levant.
@@ -15903,8 +15171,6 @@ Then `Abdur-Rahmaan ibn `Awf approached, and he had previously been absent while
 of Allaah, sallallaahu ‘alayhi wa sallam, say: ‘If you hear about
 the plague in any land, then do not go there, and if you are
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 477
 
@@ -15938,7 +15204,6 @@ him.” 3
 
 478
 
-Interactions Of The Greatest Leader
 
 This was to repay his good conduct towards the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, when he accepted him into his protection after
@@ -15970,8 +15235,6 @@ to me.” 2
 ruled it as authentic in his book Irwaa’ Al-Ghaleel (1513).
 2 Reported by Muslim (2313).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 479
 
@@ -16005,7 +15268,6 @@ and burnt it, then sent a messenger who said to the Messenger of Allaah,
 
 480
 
-Interactions Of The Greatest Leader
 
 sallallaahu ‘alayhi wa sallam, “By Him Who has sent you with the truth, I
 have not left it except that it was like a mangy camel.” 1
@@ -16039,8 +15301,6 @@ burnt. The explanation of An-Nawawi on the book of Muslim (16/36).
 4 Zaad Al-Ma`aad (3/523).
 5 Reported by Muslim (1757).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 481
 
@@ -16074,7 +15334,6 @@ from the Ansaar said to the Messenger of Allaah, sallallaahu ‘alayhi wa sallam
 
 482
 
-Interactions Of The Greatest Leader
 
 booty from the wealth of Hawaazin, and he gave some men from Quraysh
 one-hundred camels, “May Allaah forgive the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, he gives Quraysh and disregards us while our
@@ -16096,7 +15355,6 @@ sallam, said to them: ‘After me, you will see much selfishness and greed,
 so be patient until you meet Allaah and His Messenger.’ (In the narration
 of Muslim, They said: ‘We will be patient.’) Anas, may Allaah be pleased with him,
 continued, “But, we have not been patient.” 1
-Among the benefits of this narration:
 • The leader has the discretion to distribute the fifth of the booty any
 way he wishes, and can give some precedence over others, based
 on what he sees fit. He may also give one of them a larger portion
@@ -16105,8 +15363,6 @@ rich person, to gain some benefit or advantage.
 • It is prescribed for the Imaam to give to those whose hearts are inclined to Islaam, in order to make them firm on Islaam.
 1 Reported by Al-Bukhaari (3147) and Muslim (1059).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 483
 
@@ -16140,7 +15396,6 @@ life by telling them the reward they have in the Hereafter.
 
 484
 
-Interactions Of The Greatest Leader
 
 • One should give precedence to the Hereafter over the worldly life,
 and should be patient if they do not acquire some part of the worldly life. That way, it is saved for them as a reward in the Hereafter;
@@ -16173,8 +15428,6 @@ and she hurriedly came, but the Messenger of Allaah, sallallaahu
 2 He said this because he had no family in Makkah, because he was a Huthali ally of Quraysh, and
 those who he had alliance with, at that time, were not Muslim. Fat-h Al-Baari (6/415).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 485
 
@@ -16211,7 +15464,6 @@ book of Muslim (12/135) and Fat-h Al-Baari (1/352).
 
 486
 
-Interactions Of The Greatest Leader
 
 • The strength of Faatimah’s soul from a young age; she was respected among
 her people and had great self-respect. She shouted at them and cursed them,
@@ -16242,8 +15494,6 @@ speech with them sometimes:
 1 Fat-h Al-Baari (1/352).
 2 The explanation of Ibn Battaal on the book of Al-Bukhaari (9/149).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 “I said to `Abdullaah ibn `Amr ibn Al-`Aas, ‘What is the most
 severe thing Quraysh did to the Messenger of Allaah?’ He replied: ‘I
@@ -16281,7 +15531,6 @@ they were one man. They surrounded him and were saying: ‘Are you
 
 488
 
-Interactions Of The Greatest Leader
 
 the one that says such-and-such?’ They were narrating what they
 had heard that he said: such as the fact that he censured their idols
@@ -16295,7 +15544,6 @@ That was the harshest situation I have ever seen Quraysh put
 Messenger of Allaah, sallallaahu ‘alayhi wa sallam, through.” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, taught the harsh
 among them what was befitting:
-Abu Hurayrah, may Allaah be pleased with him, reported that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, kissed Al-Hasan ibn `Ali, may Allaah be
 pleased with him, while Al-Aqra` ibn Haabis At-Tameemi was present, sitting.
 Al-Aqra` said: “I have ten children and have never kissed any of them.”
@@ -16316,8 +15564,6 @@ merit and the other those of need and equality.
 2 Reported by Al-Bukhaari (5997) and Muslim (2318).
 3 The explanation of An-Nawawi on the book of Muslim (15/77).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 489
 
@@ -16333,14 +15579,11 @@ the principles of social justice were brought to life by Islaam, as seen in
 the guidance and teachings of Prophet Muhammad, sallallaahu ‘alayhi wa
 sallam.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 491
 
 Section Seven
 
-The Dealings of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with those distinguished by certain qualities
 Introduction:
 Among the Companions of the Prophet of Allaah, sallallaahu ‘alayhi wa
@@ -16354,7 +15597,6 @@ with him, and Mu`aath ibn Jabal, may Allaah be pleased with him.
 Others were excellent at studying and learning new skills, such as
 Zayd ibn Thaabit, may Allaah be pleased with him.
 Others were excellent in their memory, such as Abu Hurayrah, may
-Allaah be pleased with him.
 Others were excellent in their sophistication when it came to military
 strategies, such as Khaalid ibn Al-Waleed, may Allaah be pleased with him.
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, took these skills
@@ -16365,7 +15607,6 @@ them with whatever they excelled at:
 
 492
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, tasked Hassaan, may Allaah be pleased with
 him, with responding to the enemies of Islaam through his poetry:
@@ -16396,8 +15637,6 @@ its own sides, and that is what Hassaan did, when he stuck his tongue out and wa
 likened himself to a lion, and his tongue to the lion’s tail. The explanation of An-Nawawi on the
 book of Muslim (16/49).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 493
 
@@ -16433,7 +15672,6 @@ Sanctuary?” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said:
 
 494
 
-Interactions Of The Greatest Leader
 
 “Leave him alone, O `Umar, because it is faster to harm them than being
 shot with arrows.”1
@@ -16467,8 +15705,6 @@ of narration in the chapter of Ahkaam, and he did so in Al-Jazm format (meaning,
 At-Tamreedh (doubtful and not confirmed). Al-Albaani ruled it as authentic in his book Tahqeeq
 Al-Mishkaah (4659).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 495
 
@@ -16505,7 +15741,6 @@ came to me and said: ‘Killing has intensified in the Battle of Yamaamah, and I
 
 496
 
-Interactions Of The Greatest Leader
 
 Qur’aan to be killed in the various areas, and by that, much of the
 Qur’aan be lost, unless you gather it into one scripture, and I view
@@ -16541,8 +15776,6 @@ Bakr’s leadership, contrary to what the lying Raafidhah Shee`ah allege.
 2 Reported by Abu Bakr ibn Abu Daawood in his book Al-Masaahif (1/49). Ibn Hajar ruled it as
 sound (Hasan) in his book Fat-h Al-Baari (9/12).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 497
 
@@ -16577,7 +15810,6 @@ Al-Jaami` li Ahkaam Sunnati Nabiyyinaa Al-Mukhtaar (4/2057) and As-Silsilah Adh-
 
 498
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, chose Mus`ab ibn `Umayr, may Allaah be
 pleased with him, and sent him to be a teacher in Madeenah, and to be his first
@@ -16610,13 +15842,10 @@ Abu Taalib, may Allaah be pleased with him, to take up that hard task, and taske
 2 Reported by Al-Bukhaari (3925).
 3 As-Seerah An-Nabawiyyah (1/482) by Ibn Hishaam.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 499
 
 him with that adventure, being fully aware of his skills and abilities, may
-Allaah be pleased with him.
 Likewise, the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, chose
 `Ali, may Allaah be pleased with him, to carry the flag during the Battle of Khaybar.
 During the Battle of the Confederates, he, sallallaahu ‘alayhi wa sallam,
@@ -16649,7 +15878,6 @@ the enemy.’ When he, sallallaahu ‘alayhi wa sallam, called me by
 
 500
 
-Interactions Of The Greatest Leader
 
 my name, I found no other alternative to standing and doing as he
 said. He, sallallaahu ‘alayhi wa sallam, said: ‘O Huthayfah, go
@@ -16682,8 +15910,6 @@ praying in, and I slept until Fajr time. At Fajr time, he, sallallaahu
 1 Reported by Muslim (1788) and Ahmad (22823); this narration is a combination from both their
 narrations.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 501
 
@@ -16716,7 +15942,6 @@ withheld, but Simaak ibn Kharashah Abu Dujaanah, may Allaah be pleased with
 
 502
 
-Interactions Of The Greatest Leader
 
 him, said: “I will take it and will fulfill its right.” Then he took the sword
 
@@ -16750,8 +15975,6 @@ confirming that he was a brave and skilled fighter who would take the sword and 
 2 Reported by At-Tirmithi (3791) and Ibn Maajah (155). Al-Albaani ruled it as authentic in his book
 Saheeh Al-Jaami` (895).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 503
 
@@ -16787,7 +16010,6 @@ as he had characteristics.’” Fat-h Al-Baari (6/119).
 
 504
 
-Interactions Of The Greatest Leader
 
 two eyes (head or face).’ Then I took them to the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
 My uncle `Aamir then approached with some man named Mikraz
@@ -16818,8 +16040,6 @@ Then I went and stood on a mountain, faced Madeenah, and
 shouted at the top of my lungs, ‘Come to help! Come to help!’ I
 chased the enemy and shot arrows at them, while saying a line of po-
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 etry. I would catch one of them, shoot him, and it would go through
 his saddle and reach his shoulder, then would say that line of poetry
@@ -16857,7 +16077,6 @@ was Al-Miqdaad ibn Al-Aswad Al-Kindi.
 
 506
 
-Interactions Of The Greatest Leader
 
 I took the reins of Al-Akhram, and when they saw that, they ran
 and fled. I said: ‘O Akhram, be careful to not let them cut you off
@@ -16889,8 +16108,6 @@ Then I went to the Messenger of Allaah, sallallaahu ‘alayhi wa
 sallam, while he was at that spring that I forced those men away
 from. I found that the Messenger of Allaah, sallallaahu ‘alayhi wa
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 507
 
@@ -16902,7 +16119,6 @@ I said: ‘O Messenger of Allaah, the enemy is thirsty, and I did
 not allow them to drink, so allow me to select one-hundred men and
 follow them, and annihilate every one of them that is able to convey
 the news.’
-The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, then
 laughed until his molars showed in the light of the fire. He, sallallaahu ‘alayhi wa sallam, said: ‘O Salamah, do you think you
 are able to do that?’ I said: ‘Yes, by Him Who has honored you.’
 He, sallallaahu ‘alayhi wa sallam, said: ‘O son of Al-Akwa`, you
@@ -16927,7 +16143,6 @@ of Muslim (12/183).
 
 508
 
-Interactions Of The Greatest Leader
 
 way there, one man from the Ansaar who would not be beaten in a
 footrace began saying: ‘Will anyone race me to Madeenah? Is there
@@ -16961,8 +16176,6 @@ two blows. The sword of Marhab struck the shield of `Aamir, and
 when `Aamir wanted to attack him from below, his sword recoiled
 and cut the artery in his arm, and that caused his death.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 509
 
@@ -16988,7 +16201,6 @@ he said the first time, then `Ali exited from between the ranks, and
 said some poetry about how mighty he was, then struck the head of
 Marhab and killed him. Therefore, the victory was on his account
 and due to him.” 1
-An-Nawawi, may Allaah have mercy upon him, said:
 “This narration contains four miracles of the Messenger of Allaah, sallallaahu
 ‘alayhi wa sallam:
 1) He made the water at Hudaibiyah plentiful.
@@ -16998,7 +16210,6 @@ He cured the eye of `Ali, may Allaah be pleased with him.
 
 510
 
-Interactions Of The Greatest Leader
 
 3) He told that those people were receiving hospitality in Ghatafaan, and
 indeed they were.” 1
@@ -17030,8 +16241,6 @@ them said: “Ali judged between us,” and they told him the story. The Messeng
 2 Reported by Ahmad (574). Al-Albaani ruled it as sound (Hasan) in his book As-Silsilah As-Saheehah
 (2/478).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 511
 
@@ -17066,7 +16275,6 @@ as ablution at night, and Maymoonah, may Allaah be pleased with her, said: “O
 
 512
 
-Interactions Of The Greatest Leader
 
 Messenger of Allaah, `Abdullah ibn `Abbaas has placed this for you here.”
 He, sallallaahu ‘alayhi wa sallam, said: “O Allaah, give him understanding
@@ -17096,8 +16304,6 @@ The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, died when Ibn
 2 The explanation of An-Nawawi on the book of Muslim (16/37).
 3 Fat-h Al-Baari (1/232).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 513
 
@@ -17133,7 +16339,6 @@ religion and aiding the Prophet), however, he would sometimes admit those who we
 
 514
 
-Interactions Of The Greatest Leader
 
 that and said: ‘Why did you bring this one here, when we have sons
 his age?’ He would reply, ‘You know who he is.’1
@@ -17164,8 +16369,6 @@ intelligence and knowledge. Fat-h Al-Baari (8/735).
 2 Reported by Al-Bukhaari (4294).
 3 Fat-h Al-Baari (8/736).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 515
 
@@ -17203,7 +16406,6 @@ may Allaah be pleased with him, addressed us in a sermon and said: ‘By Allaah,
 
 516
 
-Interactions Of The Greatest Leader
 
 have learned more than seventy chapters from the mouth of the Messenger of Allaah, sallallaahu ‘alayhi wa sallam. My companions know that I am
 one of the most knowledgeable with regards to Allaah’s Book, yet not the
@@ -17223,7 +16425,6 @@ him, I found that his eyes were shedding tears.”2
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, told people to learn
 the Qur’aan from him saying: “Learn the Qur’aan from four people: ibn
 Umm `Abd [Ibn Mas`ood], Mu`aath ibn Jabal, Ubayy ibn Ka`b and Saalim [Ibn Ma`qil] the servant of Abu Huthayfah.”3
-An-Nawawi, may Allaah have mercy upon him, said:
 “Out of the four mentioned, two are among the Muhaajireen,
 and the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, started by
 mentioned those two. The scholars mentioned that the reason the
@@ -17235,8 +16436,6 @@ knowledge regarding their meanings than they did.
 2 Reported by Al-Bukhaari (5050) and Muslim (800).
 3 Reported by Al-Bukhaari (3806) and Muslim (2464).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 517
 
@@ -17255,7 +16454,6 @@ him glad tidings that the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
 said: “Anyone who wants to read the Qur’aan fresh as it was revealed
 should read it as Ibn Umm `Abd reads it.”2
 Another individual who was excellent in his memory was Abu Hurayrah, may Allaah be pleased with him:
-Abu Hurayrah, may Allaah be pleased with him, said:
 “You all say that Abu Hurayrah reports many narrations from
 the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, and you say,
 why do the Muhaajireen and Ansaar not report as much as Abu
@@ -17274,7 +16472,6 @@ have to say, then pulls it back to him, will understand what
 
 518
 
-Interactions Of The Greatest Leader
 
 I say.’ After that, I spread a colored garment that I was wearing.
 When the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, finished speaking, I pulled it to my chest, and I never forgot anything
@@ -17305,8 +16502,6 @@ Another of them was Ubayy ibn Ka`b, may Allaah be pleased with him:
 4 Fat-h Al-Baari (1/215).
 5 Reported by Al-Bukhaari (99).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 519
 
@@ -17345,7 +16540,6 @@ his book Al-Majmoo` (4/421) as well as Al-Albaani in his book Sifat As-Salaah (2
 
 520
 
-Interactions Of The Greatest Leader
 
 is a good innovation, but the prayer that they are sleeping during rather
 than praying is better than this one.’ He meant the last portion of the
@@ -17377,8 +16571,6 @@ of narration is authentic.
 3 Reported by Ibn `Asaakir (16/241). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’
 (3208).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 521
 
@@ -17410,7 +16602,6 @@ ibn Al-Waleed took the flag, and he was not one of the commanders, but he put hi
 
 522
 
-Interactions Of The Greatest Leader
 
 Then he, sallallaahu ‘alayhi wa sallam, raised his two fingers and
 said: ‘O Allaah, he is one of Your swords, so grant him victory, or grant victory through him.’
@@ -17442,14 +16633,11 @@ spoils go to Mu`aath ibn `Amr ibn Al-Jamooh.’ And the booty
 1 Reported by Ahmad (22045). Al-Albaani ruled it as sound (Hasan) in his book Ahkaam Al-Janaa’iz
 (1/33).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 523
 
 was given to Mu`aath ibn `Amr ibn Al-Jamooh. The two men were
 Mu`aath ibn `Amr ibn Al-Jamooh and Mu`aath ibn `Afraa’.” 1
-Ibn Hajar, may Allaah have mercy upon him, said:
 “The two men both killed him, but Mu`aath wounded him first,
 which is why he deserved the war booty and spoils. The Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Both of you killed
@@ -17469,7 +16657,6 @@ swords, he would not have been able to find that information out.
 It has been narrated that ibn Mas`ood, may Allaah be pleased with him, was the
 one who finished him off and took his head, and his story with regards to
 Abu Jahl is well-known.”2
-An-Nawawi, may Allaah have mercy upon him, said:
 “All three participated in his killing. The one that delivered the injuring blow was Mu`aath ibn `Amr ibn Al-Jamooh, and then ibn Mas`ood,
 may Allaah be pleased with him, came afterwards, while Abu Jahl was almost at
 the point of dying, and decapitated him.
@@ -17480,7 +16667,6 @@ should be belittled, because sometimes, perhaps someone who is belittled with re
 
 524
 
-Interactions Of The Greatest Leader
 
 seem, and more worthy of doing that great thing, just as what happened with these two young boys.”1
 
@@ -17502,8 +16688,6 @@ fill volumes. Their whole lives were spent for the sake of Allaah The Almighty, 
 
 1 The explanation of An-Nawawi on the book of Muslim (12/63).
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 525
 
@@ -17530,7 +16714,6 @@ cut it off.
 
 526
 
-Interactions Of The Greatest Leader
 
 (How did he judge between them?)
 Reconciliation:
@@ -17549,7 +16732,6 @@ Ibn Al-Jawzi, may Allaah have mercy upon him, said: “The Prophet’s, sallalla
 the right to persuade the two disputing parties on agreeing on a reconciliation,
 if he views that there is some sort of benefit in that, just as he divides the ruling
 between both parties (as in, both have something to carry out).”2
-Among the benefits of this narration:
 • Relying on hand signals if they are understood.
 • Interceding with the person who is owed the right (on behalf of the
 other party).
@@ -17560,8 +16742,6 @@ should be a good mediator between them.
 1 Reported by Al-Bukhaari (457) and Muslim (1558)
 2 Kashf Al-Mushkil Min Hadeeth As-Saheehain (1/387)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 527
 
@@ -17575,7 +16755,6 @@ door, and their voices were very loud. One of them was asking the other to reduc
 ‘alayhi wa sallam, went to both of them and said: ‘Where is the one who
 is swearing by Allaah that he will not do something good?’ The man replied: ‘I am him, O Messenger of Allaah, but now I will give him anything
 he wishes.’”2
-Among the benefits of this narration:
 • It is encouraged to be lenient and kind with the debtor by lowering
 their debt for them.
 • Swearing to not do something good is something censured, and it
@@ -17597,7 +16776,6 @@ laws:
 
 528
 
-Interactions Of The Greatest Leader
 
 `Abdullaah ibn Az-Zubayr, may Allaah be pleased with him, reported that a
 man from the Ansaar disputed with Az-Zubayr, may Allaah be pleased with him,
@@ -17634,8 +16812,6 @@ but Az-Zubayr refused. Fat-h Al-Baari (5/36)
 2 Reported by Al-Bukhaari (2360) and Muslim (2357)
 3 At-Tamheed (17/409)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 529
 
@@ -17672,7 +16848,6 @@ unjustly will meet Allaah while Allaah is angry at him.’”3
 
 530
 
-Interactions Of The Greatest Leader
 
 Rajaa’ ibn Haywah and Al-`Urs ibn `Ameerah reported from his father
 `Adayy, who said:
@@ -17703,8 +16878,6 @@ back to the truth after being exhorted.” 2
 1 Reported by Ahmad (17263) Shu’ayb Al-Arna’oot ruled it as authentic
 2 Fat-h Al-Baari (11/563)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 531
 
@@ -17718,7 +16891,6 @@ some of you are more eloquent in arguing their case than others, and I
 would believe that he is truthful and rule in his favor. So, if I pass rulings
 for anyone at the expense of the right of another Muslim, then know that
 it is a piece of Hellfire that one of you can either take or leave.”1
-An-Nawawi, may Allaah have mercy upon him, said:
 “His statement, sallallaahu ‘alayhi wa sallam, ‘I am a man,’ is
 meant to notify that he is a human, and that humans do not know
 the unseen or hidden affairs at all, unless Allaah decides to give them
@@ -17740,7 +16912,6 @@ Umm Salamah, may Allaah be pleased with her, said:
 
 532
 
-Interactions Of The Greatest Leader
 
 “I was sitting with the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, when two men approached who had a dispute regarding the
@@ -17774,8 +16945,6 @@ from their claims.”
 Irwaa’ Al-Ghaleel (1423)
 3 `Awn Al-Ma`bood (9/364)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 533
 
@@ -17786,7 +16955,6 @@ does it make something lawful unlawful, and when the judge is erroneous in his
 judgment, that is also apparent, as for the hidden affairs, and the judgment in the
 hereafter, then the judge’s ruling in this life does not overrule the judgment in
 the hereafter.”1
-An-Nawawi, may Allaah have mercy upon him, said:
 “The narration contains evidence for the schools of jurisprudence
 of Maalik, ash-Shaafi`i, and Ahmad, as well as the vast majority of
 the scholars of Islaam and jurists of various areas, including the
@@ -17811,7 +16979,6 @@ sallam, when a man came pulling a man with a braided rein, saying: ‘O Messenge
 
 534
 
-Interactions Of The Greatest Leader
 
 Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Did you
 kill him?’The man said: ‘If he does not admit it, I will prove that
@@ -17845,8 +17012,6 @@ them said: “Rule between us with Allaah’s Book.”
 he were to forgive him, and would achieve virtue over him, reward in the hereafter, and is praiseworthy in this life. The explanation of An-Nawawi on the book of Muslim (11/173)
 2 Reported by Muslim (1680)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 535
 
@@ -17884,7 +17049,6 @@ whoever says something untrue about a believer reside in Radghat Al1 Reported by
 
 536
 
-Interactions Of The Greatest Leader
 
 Khabaal until he recants.” It was then said: “O Messenger of Allaah, what
 is Radghat Al-Khabaal?” He, sallallaahu ‘alayhi wa sallam, replied: “The
@@ -17918,8 +17082,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, wrote to them regarding that issue,
 book Irwaa’ Al-Ghaleel (2318)
 2 Jaami` Al-`Uloom wa Al-Hikam (2/486)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 537
 
@@ -17958,7 +17120,6 @@ the blood money himself. This narration teaches us that the Imaam must keep in
 
 538
 
-Interactions Of The Greatest Leader
 
 mind the general interests and must give keen care to keeping peace in differing
 terms.”1
@@ -17995,8 +17156,6 @@ Ibn Jibreen.
 4 In the narration of Ibn Sa`d in At-Tabaqaat (4/26), it says, “`Ali, Ja`far and Zayd ibn Haarithah disputed with regard to her, until they raised their voices and woke the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam,, and he said: ‘Come forth, so that I can judge between you with regards to her.’”
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 539
 
@@ -18008,7 +17167,6 @@ Then he, sallallaahu ‘alayhi wa sallam, said: “As for you, O Ja`far, you
 are the most similar to me in appearance and manners; as for you O
 `Ali, you are from me, and I am from you, and as for you O Zayd, you
 are our [my] brother and freed slave.”3
-Among the benefits of this narration:
 • The importance of keeping the ties of the womb, due to the fact that
 the elders all disputed in trying to accomplish that.
 • The judge must clarify his reasoning behind giving the ruling, and
@@ -18036,7 +17194,6 @@ Al-Bukhaari (2700)
 
 540
 
-Interactions Of The Greatest Leader
 
 one of them was keen on being one of the foremost, and to be one of those
 who are privileged with the reward of sponsoring an orphan.1
@@ -18068,8 +17225,6 @@ with her, said: “She came wearing a green Khimaar (head covering) and
 2 Fat-h Al-Baari (7/507)
 3 Ihkaam Al-Ahkaam (1/216)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 541
 
@@ -18108,7 +17263,6 @@ husband]. The explanation of An-Nawawi on the book of Muslim (10/3)
 
 542
 
-Interactions Of The Greatest Leader
 
 back to Rifaa`ah.” The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said:
 “Are these your sons?” He replied: “Yes.” He, sallallaahu ‘alayhi wa sallam,
@@ -18116,7 +17270,6 @@ replied: “You make whatever claim you make, however, they [his sons]
 resemble him more than a crow resembles a crow [its parent].” 1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, heard both sides of
 the disputing parties, even if one of them was not Muslim:
-Abu Hurayrah, may Allaah be pleased with him, said:
 “A Jew was selling some goods, and was given something for
 one of his goods that he disliked or did not approve of. He said: ‘No,
 by He who has chosen Moses, may Allaah exalt his mention, over
@@ -18142,8 +17295,6 @@ those whom Allaah has given an exception to [by not causing them to faint].’�
 1 Reported by Al-Bukhaari (5825) and Muslim (1433)
 2 Reported by Al-Bukhaari (2411) and Muslim (2373)
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 543
 
@@ -18182,7 +17333,6 @@ be pleased with him
 
 544
 
-Interactions Of The Greatest Leader
 
 Likewise, he, sallallaahu ‘alayhi wa sallam, ruled that a woman may not
 give anything from her husband’s home without his permission.1
@@ -18215,8 +17365,6 @@ then someone else comes after him and plants, and takes the land. The Prophet of
 the one who came later and planted; rather, the latter is considered unjust, and has no right to
 the land.
 
-Chapter Three: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with specific social groups
 
 545
 
@@ -18234,7 +17382,6 @@ completely.
 
 Chapter Four
 How the Prophet dealt,
-sallallaahu ‘alayhi wa sallam,
 with groups requiring specific
 styles of religious invocation
 • Section One: The conduct of the Prophet of Allaah,
@@ -18257,7 +17404,6 @@ dealt with groups requiring specific styles of religious invocation
 
 Section One
 
-The conduct of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with new Muslims
 Introduction:
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was extremely eager for people to be guided to Islaam, to the point that Allaah Said to him
@@ -18283,7 +17429,6 @@ difficult upon you is difficult upon him. The words: “He is anxious over you�
 
 550
 
-Interactions Of The Greatest Leader
 
 mean that he, sallallaahu ‘alayhi wa sallam, loves all goodness for you, and strives
 his hardest to make all good reach you. He is very eager to guide you to Eemaan
@@ -18311,11 +17456,8 @@ means): «If You punish them, they are Your slaves. If you forgive them, You are
 ‘alayhi wa sallam, then raised his hands and said: “O Allaah! My
 1 Tafseer As-Sa’di (356/1).
 2 Reported by Al-Bukhaari (6483) and Muslim (2284) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 3 Fat-h Al-Baari (318/11).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 551
 
@@ -18353,7 +17495,6 @@ guidance became Muslims.”3
 
 552
 
-Interactions Of The Greatest Leader
 
 ‘Abdullaah ibn ‘Abbaas, may Allaah be pleased with him, narrated that the
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “O Allaah, strengthen
@@ -18390,8 +17531,6 @@ of Abu Hurayrah.” The Messenger of Allaah, sallallaahu ‘alayhi wa
 his book Fat-h Al-Baari (48/7) and Al-Albaani in his book As-Silsilah As-Saheehah (6882).
 3 Ibn Hishaam in his book As-Seerah An-Nabawiyyah (295/1).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 553
 
@@ -18426,7 +17565,6 @@ as: “Chapter: Making Du’aa’ for guidance for the polytheists to bring them
 
 554
 
-Interactions Of The Greatest Leader
 
 difference between the two different kinds (of Du’aa’), as the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, would sometimes make Du’aa’ against them and
@@ -18460,8 +17598,6 @@ will enter my house and kill me. Even my children are scattered in
 1 Fat-h Al-Baari (108/6).
 2 Reported by Al-Bukhaari (1356) and Abu Daawood (3095).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 555
 
@@ -18499,7 +17635,6 @@ Irwaa’ Al-Ghaleel (128).
 
 556
 
-Interactions Of The Greatest Leader
 
 Abu Hurayrah, may Allaah be pleased with him, narrated that Thumaamah ibn
 Uthaal, may Allaah be pleased with him, became Muslim, so the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: “Take him to the garden of so and
@@ -18532,8 +17667,6 @@ iron armor, and he said: ‘O Messenger of Allaah, should I fight, or become Mus
 3 Reported by Muslim (2697).
 4 Reported by Abu Daawood (356). Al-Albaani ruled it as sound (Hasan) in his book Irwaa’ Al-Ghaleel (79).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 557
 
@@ -18570,7 +17703,6 @@ Muslims to teach them:
 
 558
 
-Interactions Of The Greatest Leader
 
 Anas, may Allaah be pleased with him, reported that the tribes of Ri’l, Thakwaan, ‘Usayyah, and Banu Lahyaan came to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam. They claimed they had entered Islaam, and they
 asked him to send some support against their people, so the Prophet of
@@ -18601,8 +17733,6 @@ era of ignorance], and I feared that their hearts would reject it.”
 2 The explanation of Ibn Battaal on the book of Al-Bukhaari (290/9).
 3 Reported by Al-Bukhaari (1583) and Muslim (1333).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 559
 
@@ -18633,7 +17763,6 @@ Ibn Katheer, may Allaah have mercy upon him, mentioned,
 
 560
 
-Interactions Of The Greatest Leader
 
 “Ibn Az-Zubayr, may Allaah be pleased with him, rebuilt the Ka’bah in the way
 that his aunt ‘Aa’ishah, may Allaah be pleased with her, described to him, may
@@ -18665,8 +17794,6 @@ said: ‘O Messenger of Allaah, leave me to kill this hypocrite!’ The Prophet
 1 Al-Bidaayah Wan-Nihaayah (275/8).
 2 Reported by Al-Bukhaari (4905) and Muslim (2584).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 561
 
@@ -18675,7 +17802,6 @@ that the people say that I kill my Companions.’”1
 In another narration the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 said: “I was not ordered to open the hearts of people or to rip open their
 stomachs.”2
-An-Nawawi, may Allaah have mercy upon him, said:
 “This Hadeeth shows the forbearance of the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam. It also shows that one may have patience with some lesser evil, out of fear that correcting this mistake
 will lead to an evil that is greater than it.
@@ -18701,7 +17827,6 @@ revealed (what means): «O Prophet, strive against the disbelievers and the hypo
 
 562
 
-Interactions Of The Greatest Leader
 
 66:9] ‘It is said that the order to not fight them is as long as they hide
 
@@ -18736,8 +17861,6 @@ him, for he has companions such that one of you would think lightly of
 2 Ahkaam Al-Qur’aan (299-300/1).
 3 Tafseer Ibn Katheer (150/8).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 563
 
@@ -18776,7 +17899,6 @@ him.
 
 564
 
-Interactions Of The Greatest Leader
 
 He, may Allaah be pleased with him, also said: “Sometimes a man would become Muslim, but he would only want worldly things by that. But once
 he became Muslim, Islaam would become more beloved to him than the
@@ -18810,8 +17932,6 @@ he did not ask me about anything nor did I tell him.
 2 The explanation of An-Nawawi on the book of Muslim (21/8).
 3 Reported by Al-Bukhaari (3146) and Muslim (1059).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 When I woke up I went to the mosque to ask about him, but no
 one told me anything about him. ‘Ali passed by me again and said:
@@ -18851,7 +17971,6 @@ saved me and said the same thing he had said.”1
 
 566
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, also ordered ‘Amr ibn ‘Abasah to hide
 his Islaam and return to his people:
@@ -18884,8 +18003,6 @@ of Allaah, do you remember me?’ He said: ‘Yes, you are the one who
 came to me in Makkah.’ I said: ‘Yes.’ I said: ‘O Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, inform me of what Allaah has taught
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 567
 
@@ -18918,7 +18035,6 @@ what they did before Islaam:
 
 568
 
-Interactions Of The Greatest Leader
 
 “When we came back from the Battle of Khandaq (trench), I gathered some men from the Quraysh who knew my status and listened
 to me. I said to them, ‘You know, by Allaah, that I see the affair of
@@ -18952,8 +18068,6 @@ this, I would never have asked.’ He said: ‘Do you dare ask me to give you
 the messenger of a man to kill him, a man who receives the same spirit
 that came to Moosa!’ I said: ‘Is he truly as you say, O king?’ He said: ‘Woe
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 569
 
@@ -18991,7 +18105,6 @@ he donated one hundred camels and freed one hundred slaves. He said: “I
 
 570
 
-Interactions Of The Greatest Leader
 
 asked Prophet, sallallaahu ‘alayhi wa sallam, ‘O Messenger of Allaah, what
 do you think about some good deeds I had done before Islaam, regarding
@@ -19025,8 +18138,6 @@ sallallaahu ‘alayhi wa sallam, replied: “It is forbidden upon the Muslims,
 2 Jaami’ Al-’Uloom Wal-Hikam (13/14).
 3 The explanation of An-Nawawi on the book of Muslim (142/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 571
 
@@ -19062,7 +18173,6 @@ worships it and who does not.” Ibn ‘Abd Yaalayl said to him, “We did not
 
 572
 
-Interactions Of The Greatest Leader
 
 come to you, O ‘Umar.” Then they became Muslims and completed the
 treaty. After that, they asked the Prophet of Allaah, sallallaahu ‘alayhi wa
@@ -19094,8 +18204,6 @@ even the virgin girls from their rooms. Most of them thought that the idol
 could not be destroyed and that it would defend itself. Al-Mugheerah
 ibn Shu’bah, may Allaah be pleased with him, took his axe and said to his companions, “By Allaah, I will make you laugh at Thaqeef.” He took the
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 573
 
@@ -19129,7 +18237,6 @@ Zaad Al-Ma’aad by Ibn Al-Qayyim (521/3).
 
 574
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, say: ‘They will give the charity and fight Jihaad when
 they become Muslim.’”1
@@ -19163,8 +18270,6 @@ Hadeeth and others in his book (Al-Muntaqa) as: “Chapter: The correctness of
 4 Reported by Ahmad (19776). Al-Albaani ruled it as authentic in his book Ath-Thamar Al-Musta-taab (3).
 5 Al-Muntaqa (4164/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 575
 
@@ -19201,7 +18306,6 @@ and we ride them. The Prophet of Allaah, sallallaahu ‘alayhi wa sal1 Nayl Al-A
 
 576
 
-Interactions Of The Greatest Leader
 
 lam, then took his hand and moved it, and said: “No Jihaad and no
 charity? Why would you enter Paradise, in that case?” I said:
@@ -19235,8 +18339,6 @@ secret for a few nights.’ He then left until he reached Madeenah. He tied
 2 An-Nihaayah Fi Ghareeb Al-Athar (476/3).
 3 His son Wahb ibn ‘Umayr was amongst the war captives from the battle of Badr.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 577
 
@@ -19276,7 +18378,6 @@ and your debt. But Allaah will stop you from that.’ ‘Umayr
 
 578
 
-Interactions Of The Greatest Leader
 
 said: ‘I bear witness that you are the Messenger of Allaah, and there
 is no one worthy of worship but Allaah. We used to deny your revelations, O Messenger of Allaah, and what comes to you from the
@@ -19308,8 +18409,6 @@ then returned to them and called them to Islaam, and many became Muslim at his h
 1 Reported by Al-Tabaraani in his book Al-Mu’jam Al-Kabeer (13586) and Al-Bayhaqi in his book
 Ad-Dalaa’il (1009). Al-Haythami ruled its chain of narrators to be good in his book Majma’ Az-Zawaa’id (286/8).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 579
 
@@ -19347,7 +18446,6 @@ Al-Albaani ruled it as authentic in his book Irwaa’ Al-Ghaleel (1883).
 
 580
 
-Interactions Of The Greatest Leader
 
 Haram (the sanctuary of the Ka’bah) and was protected, but when he came out
 of it he was afflicted with the same punishment as the people of Thamood, and he
@@ -19380,8 +18478,6 @@ sound (Hasan) in his book At-Ta’leeqaat Al-Hisaan (4143).
 4 Reported by Al-Bukhaari (2035) and Muslim (1656).
 5 Fat-h Al-Baari (582/11).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 581
 
@@ -19418,7 +18514,6 @@ message to those who had sent them.
 
 582
 
-Interactions Of The Greatest Leader
 
 At-Teebi, may Allaah have mercy upon him, said: “The meaning of the agreement
 here is the custom that is known amongst the people, which is that messengers are
@@ -19450,14 +18545,11 @@ they get up to speed, of course without compromising the basics and essentials o
 1 Faydh Al-Qadeer (25/3).
 2 Zaad Al-Ma’aad (126/3).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 583
 
 Section Two
 
-The conduct of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with those asking for Fatawa (religious verdicts)
 Introduction:
 The act of giving verdicts is undoubtedly a great undertaking, which
@@ -19483,7 +18575,6 @@ the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, such as (what means):
 
 584
 
-Interactions Of The Greatest Leader
 
 • «They ask you about wine and gambling.»
 • «They ask you about the orphans.»
@@ -19512,8 +18603,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, about the best deed, so he,
 1 Reported by Al-Bukhaari (2787) and Muslim (85)
 2 Reported by Al-Bukhaari (26) and Muslim (83)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 585
 
@@ -19548,7 +18637,6 @@ Allaah be pleased with him
 
 586
 
-Interactions Of The Greatest Leader
 
 Abdullaah ibn Hubshi Al-Khath’ami, may Allaah be pleased with him, reported
 that the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was asked, “What
@@ -19581,8 +18669,6 @@ Al-Ghaleel (981)
 4 Reported by An-Nasaa’i (4209). Al-Albaani ruled it as authentic in his book Saheeh An-Nasaa’i (4209)
 5 Reported by Al-Bukhaari (1396) and Muslim (13)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 587
 
@@ -19620,7 +18706,6 @@ Saheeh Al-Jaami’ (5136)
 
 588
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, said: ‘[Then] help a poor person or a person that cannot work.’ I said, ‘O Messenger of Allaah, what if I cannot do
 some deeds?’ He, sallallaahu ‘alayhi wa sallam, said: ‘Keep your harm away
@@ -19651,8 +18736,6 @@ ruled it as authentic in his book Al-Saheeh Adab Al-Mufrad (168)
 4 Reported by Al-Bukhaari (6116)
 5 Reported by At-Tirmithi (3445). Al-Albaani ruled it as sound (Hasan) in his book As-Silsilah As-Saheehah (1730)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 589
 
@@ -19691,7 +18774,6 @@ better, and whoever prays sitting then he has half the reward of a person
 
 590
 
-Interactions Of The Greatest Leader
 
 that is standing, and whoever prays lying down than he has half the reward of a person that is sitting.”1
 As-Sindi, may Allaah have mercy upon him, said, “The scholars said that this is
@@ -19722,8 +18804,6 @@ them?” He said, “Yes.” He, sallallaahu ‘alayhi wa sallam, said: “Then 
 2 The explanation of As-Sindi on the book of Ibn Maajah (370/1)
 3 Reported by Al-Bukhaari (2737) and Muslim (1633)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 591
 
@@ -19760,7 +18840,6 @@ question.
 
 592
 
-Interactions Of The Greatest Leader
 
 For example, Allaah Says (what means): «They ask you about
 the new moons.» They had asked the reason why the moon goes
@@ -19792,8 +18871,6 @@ even if I did not do the same deeds as them.”3
 2 Fat-h Al-Baari (5/186)
 3 Reported by Al-Bukhaari (7153) and Muslim (2639)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 593
 
@@ -19828,7 +18905,6 @@ benefit, or because the questioner needs to know it, or for another reason.
 
 594
 
-Interactions Of The Greatest Leader
 
 Abu Hurayrah, may Allaah be pleased with him, narrated that a man asked the
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, “O Messenger of Allaah,
@@ -19860,8 +18936,6 @@ him the true meaning of pride.
 3 Faydh Al-Qadeer (215/3)
 4 Reported by Muslim (91)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 595
 
@@ -19898,7 +18972,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, asked: ‘Were any idols wor
 
 596
 
-Interactions Of The Greatest Leader
 
 shipped there before Islam?’ The man said, ‘No.’ He, sallallaahu ‘alayhi wa
 sallam, said: ‘Were any of their holidays celebrated there?’ He said, ‘No.’
@@ -19932,8 +19005,6 @@ said: “Do not wear a Qamees [a long garment] turban, pants, Burnus [a
 2 At-Tamheed SharhKitaab At-Taheed (155/1)
 3 Reported by Al-Bukhaari (1862) and Muslim (1341)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 597
 
@@ -19970,7 +19041,6 @@ which gave the answer to the question and more.”5
 
 598
 
-Interactions Of The Greatest Leader
 
 Ibn Battaal, may Allaah have mercy upon him, said, “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did not answer with the same wording as the question,
 for the anger or zeal mentioned by the questioner could be for the sake of Allaah.
@@ -20002,8 +19072,6 @@ that you claim that Allah had sent you (as a prophet). He, sallallaahu ‘alayhi
 1 The explanation of Ibn Battaal on the book of Al-Bukhaari (203/1)
 2 Reported by Al-Bukhaari (4343) and Muslim (1733)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 599
 
@@ -20040,7 +19108,6 @@ initially he asked (the Prophet of Allaah, sallallaahu ‘alayhi wa sallam) abou
 
 600
 
-Interactions Of The Greatest Leader
 
 creator of all of these creations, who is He? Then he asked him to swear to him
 that this Creator is the one who sent him as a messenger. Then when he established that he was a messenger, he made the Prophet of Allaah, sallallaahu ‘alayhi
@@ -20072,8 +19139,6 @@ then attend to his question.”3
 2 Reported by Al-Bukhaari (59)
 3 Fat-h Al-Baari (143/1)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 601
 
@@ -20109,7 +19174,6 @@ legs were made of iron. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 
 602
 
-Interactions Of The Greatest Leader
 
 sat on it, and began to teach me from what Allaah has taught him. Then
 he went back to his Khutbah and completed it.”1
@@ -20140,8 +19204,6 @@ of women
 3 Reported by An-Nasaa’i (534)
 4 Al-Muntaqa (6/1)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 603
 
@@ -20177,7 +19239,6 @@ sallam, said: “Clean yourself with it, Subhaan Allaah!” And he, sallallaahu
 
 604
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, covered (his face out of shyness). ‘Aa’ishah, may Allaah be
 pleased with her, said, “I pulled her towards me, for I understood what the
@@ -20208,8 +19269,6 @@ everything that they hear.
 one who does not understand.
 1 Reported by Al-Bukhaari (314) and Muslim (332)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 605
 
@@ -20246,7 +19305,6 @@ difference in color.
 
 606
 
-Interactions Of The Greatest Leader
 
 • In this Hadeeth is a warning against suspicion.
 • It confirms Qiyaas (analogy).
@@ -20263,7 +19321,6 @@ the mosque.’ He, sallallaahu ‘alayhi wa sallam, took my hand, and when
 we wanted to leave, I said, ‘Did you not say: ‘I will teach you the greatest of the chapters in the Qur’aan?’ He, sallallaahu ‘alayhi wa sallam, recited the verse (which means): «All Praise belongs to Allaah, the Lord of
 the worlds.» [Qur’aan 1:2] It is the Seven oft-repeated [verses] and the great
 Qur’aan which I was given.’”2
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Allaah created the creation and
 when He finished, the ties of kinship stood up and said, ‘This is the standing up of one who seeks Your protection from being cut off.’ Allaah said,
 ‘Yes, are you not happy that I take care of those who take care of you and
@@ -20276,8 +19333,6 @@ kinship? Such are they whom Allah has cursed for He has made them deaf
 1 Fat-h Al-Baari (444/9) and The explanation of As-Sindi on the book of Ibn Maajah (134/10)
 2 Reported by Al-Bukhaari (4474)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 607
 
@@ -20317,7 +19372,6 @@ said: “Then ask permission to enter upon her.”5
 
 608
 
-Interactions Of The Greatest Leader
 
 Al-Baaji, may Allaah have mercy upon him, said, “A man should ask permission
 to enter upon his mother and all other female relatives, and all those whom it is
@@ -20354,8 +19408,6 @@ turn to anything (impermissible).2
 2 Reported by Ahmad (21,708) Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah
 (370)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 609
 
@@ -20393,9 +19445,7 @@ questions and hypothetical questions.”3
 
 610
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “A sign of a person’s perfection in
 adherence to Islaam is to refrain from that which does not concern him.”1
 He, sallallaahu ‘alayhi wa sallam, used to raise his voice in his response
@@ -20427,12 +19477,9 @@ Mishkaat Al-Masaabeeh (229)
 (1318)
 3 Reported by Al-Bukhaari (2236) and Muslim (1581)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 611
 
-Abu Hurayrah, may Allaah be pleased with him, reported that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Do not commit what the Jews
 committed, so that you will try to make lawful what Allaah has forbidden
 by the slightest tricks.”1
@@ -20466,7 +19513,6 @@ Abu Daawood (244/9)
 
 612
 
-Interactions Of The Greatest Leader
 
 “’Uwaymir Al-’Ajlaani came to ‘Aasim ibn ‘Adiyy, may Allaah be pleased
 with them, and said, “O ‘Aasim, what if a man found another man with his
@@ -20498,8 +19544,6 @@ Ibn Shihaab, may Allaah have mercy upon him, said, “After this the Sunnah was 
 The Sunnah regarding her inheritance is that she inherits from her
 husband and he inherits from her as Allaah prescribed.”
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 613
 
@@ -20537,7 +19581,6 @@ Al-’Ilm Wa Fadhlih (2057)
 
 614
 
-Interactions Of The Greatest Leader
 
 ‘Did it happen yet?’ They said, ‘No.’ He responded, ‘Leave it alone until
 it happens.’”1
@@ -20569,8 +19612,6 @@ said, ‘What do you command me to do if I live to see such a thing?’
 He, sallallaahu ‘alayhi wa sallam, said: ‘Stay with the Jamaa’ah
 1 Reported by Ibn Battah (318)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 615
 
@@ -20610,7 +19651,6 @@ not know he would not answer
 
 616
 
-Interactions Of The Greatest Leader
 
 Jaabir, may Allaah be pleased with him, reported,
 “I became sick so the Prophet of Allaah, sallallaahu ‘alayhi wa
@@ -20645,8 +19685,6 @@ said,
 1 Reported by Al-Bukhaari (194) and Muslim (1616)
 2 ‘Awn Al-Ma’bood (67/8)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 617
 
@@ -20684,7 +19722,6 @@ sallallaahu ‘alayhi wa sallam, and asked, ‘O Messenger of Allaah,
 
 618
 
-Interactions Of The Greatest Leader
 
 where is the migration to? Is it to you wherever you are, or to a
 certain land, or to a certain people, and if you die does it stop?’ The
@@ -20717,8 +19754,6 @@ he became angry and said, ‘You are to me as the back of my mother.’
 1 Reported by Ahmad (6851). Al-Haythami said in his book Majma’ Az-Zawaa’id (10/767) that the
 chain of narrators are all trustworthy
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 Then he went out and sat for a while in the meeting-place of his
 people. Then he came back, and wanted to have relations with me.
@@ -20754,7 +19789,6 @@ he who finds not [the money for freeing a slave] must fast two
 
 620
 
-Interactions Of The Greatest Leader
 
 successive months before they both touch each other. And for
 him who is unable to do so, he should feed sixty poor people.
@@ -20787,8 +19821,6 @@ Irwaa’ Al-Ghaleel (2087)
 2 Reported by An-Nasaa’i (3460) and Ibn Maajah. Al-Albaani ruled it as authentic in his book Irwaa’
 Al-Ghaleel (276)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 621
 
@@ -20828,7 +19860,6 @@ wat-Tarheeb (394/1). Reported also by Al-Bukhaari (2518), Muslim (84) summarized
 
 622
 
-Interactions Of The Greatest Leader
 
 generally permissible unless otherwise stated. The fact that he does not eat it also
 does not indicate that it is impermissible; rather it could be that it simply was
@@ -20862,8 +19893,6 @@ speaking
 3 Mirqaat Al-Mafaateeh (108/10)
 4 ‘Umdat Al-Qaari (102/2)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 623
 
@@ -20902,7 +19931,6 @@ reason behind it
 
 624
 
-Interactions Of The Greatest Leader
 
 The guidance of the Qur’aan is that it clarifies the reasons of different
 rulings, so that the believer will follow it without any doubt in his mind.
@@ -20934,8 +19962,6 @@ authentic in his book Irwaa’ Al-Ghaleel (1352)
 2 I’laam Al-Muwaqqi’een (123)
 3 ‘Awn Al-Ma’bood (151/9)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 625
 
@@ -20973,7 +19999,6 @@ wat-Tarheeb (3536)
 
 626
 
-Interactions Of The Greatest Leader
 
 But do not use a tooth or claw, and I will explain that: As for the tooth,
 then because it is a bone, and as for the claw then it is the knife of the
@@ -21006,8 +20031,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, gave him nothing, and said:
 4 The explanation of An-Nawawi on the book of Muslim (106/13)
 5 Reported by Al-Bukhaari (2266) and Muslim (1674)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 627
 
@@ -21043,7 +20066,6 @@ repentance, so what is different today?” He, may Allaah be pleased with him, r
 
 628
 
-Interactions Of The Greatest Leader
 
 sponded, “I think that he was angry and wanted to kill a believer.” So
 they followed the man and he was as ibn ‘Abbaas had thought.1
@@ -21072,8 +20094,6 @@ told him what they say, so the Prophet of Allaah, sallallaahu ‘alayhi wa sal1 
 The original text of the narration is reported by Al-Bukhaari (4343) and Muslims (1733)
 3 Reported by Muslim (2200)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 629
 
@@ -21109,7 +20129,6 @@ on the day of the Conquest of Makkah and said, “O Messenger of Allaah,
 
 630
 
-Interactions Of The Greatest Leader
 
 sallallaahu ‘alayhi wa sallam, I made an oath to Allaah that if He allows you
 to conquer Makkah, I will pray two Rak’ahs in (the Masjid in) Jerusalem.”
@@ -21126,7 +20145,6 @@ Ibn Katheer, may Allaah have mercy upon him, said, “Meaning: We will make
 good deeds and speech easy upon you, and we will legislate upon you rulings
 that are easy, forgiving and straight with no crookedness, without any difficulty
 in them.”2
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “The religion is easy, and no one
 will overburden himself in the religion except that it will defeat him.”3
 He, sallallaahu ‘alayhi wa sallam, also said: “I was sent with the easygoing monotheism.”4
@@ -21143,8 +20161,6 @@ for his nation
 As-Silsilah As-Saheehah (6/423)
 5 Reported by Al-Bukhaari (3560) and Muslim (2327)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 631
 
@@ -21183,7 +20199,6 @@ Makkah, so it was not made permissible [to wage war in it] for anyone
 
 632
 
-Interactions Of The Greatest Leader
 
 before me and it is not permissible for anyone after me. It was only made
 permissible for me for part of one day. Its plants should not be cut nor
@@ -21213,8 +20228,6 @@ sallam, would tell him that clearly
 2 The explanation of An-Nawawi on the book of Muslim (127/9)
 3 Fat-h Al-Baari (50/4)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 633
 
@@ -21250,7 +20263,6 @@ authentic in his book Saheeh Abu Daawood (561). A similar narration was also rep
 
 634
 
-Interactions Of The Greatest Leader
 
 then drink it].’ I said, ‘Should we not leave it longer until it ferments?’ The
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Do not leave it in the
@@ -21283,8 +20295,6 @@ book Saheeh Al-Jaami’ (1477)
 2 The explanation of ‘Abdul-Muhsin Al-’Abbaad on the book of Abu Daawood (25/419)
 3 Reported by Al-Bukhaari (2225) and Muslim (2110)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 635
 
@@ -21319,7 +20329,6 @@ with him
 
 636
 
-Interactions Of The Greatest Leader
 
 dates than us.’ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 then smiled until his front teeth showed, and said: ‘Go and give it
@@ -21351,8 +20360,6 @@ her and I had relations with her. In the morning I went to my people and told th
 2 Fat-h Al-Baari (165/4)
 3 Fat-h Al-Baari (171/4)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 637
 
@@ -21391,7 +20398,6 @@ authentic in his book Irwaa’ Al-Ghaleel (2091).
 
 638
 
-Interactions Of The Greatest Leader
 
 ‘Aa’ishah, may Allaah be pleased with her, said, “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did something, and he gave permission to do it,
 but some people did not feel comfortable doing it. So when the Prophet of
@@ -21422,8 +20428,6 @@ other times, and I pray at night and sleep, and I marry women. So whoever turns 
 2 The explanation of An-Nawawi on the book of Muslim (107/15)
 3 Reported by Al-Bukhaari (5063) and Muslim (1401)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 639
 
@@ -21460,7 +20464,6 @@ having intercourse.”
 
 640
 
-Interactions Of The Greatest Leader
 
 When this reached the Jews, they said, “This man wants to oppose us
 in everything that we do.” Then, Usayd ibn Hudhayr and ‘Abbaad ibn
@@ -21491,8 +20494,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam, by Allaah I only performed Ruqyah
 1 Reported by Muslim (302)
 2 Mirqaat Al-Mafaateeh Sharh Mishkaat Al-Masaabeeh (245/2)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 641
 
@@ -21529,7 +20530,6 @@ is because the people would follow the order of their leader, so when he refused
 
 642
 
-Interactions Of The Greatest Leader
 
 Jaabir ibn ‘Abdullaah, may Allaah be pleased with him, said, “The Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, sent us on an expedition to meet a caravan that belonged to the Quraysh, and made Abu ‘Ubaydah our leader.
@@ -21561,8 +20561,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, would answer the
 questions of non-Muslims
 1 Reported by Al-Bukhaari (2483) and Muslim (1935)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 643
 
@@ -21600,7 +20598,6 @@ fountain named Salsabeel.’
 
 644
 
-Interactions Of The Greatest Leader
 
 He said, ‘You have told the truth and you are a prophet.’ He then
 turned and left. The Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
@@ -21631,8 +20628,6 @@ of the prophets before them.” 4
 3 Reported by Muslim (2135)
 4 Tuhfat al-Ahwathi (8/477)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 645
 
@@ -21669,7 +20664,6 @@ upon which Allaah’s name was not mentioned.” 2
 
 646
 
-Interactions Of The Greatest Leader
 
 Conclusion:
 Prophet Muhammad, sallallaahu ‘alayhi wa sallam, advised people to
@@ -21694,14 +20688,11 @@ This is a quality of true leaders, who address the worries of their subjects and
 and his Companions, may Allaah be pleased with them, adopted the same method
 after his demise as they had learnt from his practical life.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 647
 
 Section Three
 
-The conduct of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with the Bedouins (desert dwellers)
 Introduction:
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, had perfect manners, which is evident in the way he showed kindness even to people
@@ -21727,7 +20718,6 @@ Al-Albaani ruled it As authentic in his book Saheeh Al-Jaami’ (6123).
 
 648
 
-Interactions Of The Greatest Leader
 
 lives in the cities and towns, then you will see that he is more personable
 and his speech is softer and kinder than the man who lives in the desert.
@@ -21763,8 +20753,6 @@ desert.”2
 (3241).
 2 Reported by Al-Bukhaari (7087) and Muslim (1862).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 649
 
@@ -21804,7 +20792,6 @@ be poured on the urine.” 3
 
 650
 
-Interactions Of The Greatest Leader
 
 From the benefits of this narration:
 • “One should be gentle with an ignorant person and teach him without
@@ -21834,8 +20821,6 @@ Anas ibn Maalik, may Allaah be pleased with him, narrated, “I was walking
 with the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and he was wearing a garment that had a thick collar. A Bedouin man came up to him and
 1 Fath al-Baari (325/1) and The explanation of An-Nawawi on the book of Muslim (191/3).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 651
 
@@ -21869,7 +20854,6 @@ sallallaahu ‘alayhi wa sallam, then said: ‘Drink from it, and pour some on
 
 652
 
-Interactions Of The Greatest Leader
 
 your faces and necks, and have glad tidings!’ So they took the water and
 did so. Umm Salamah, may Allaah be pleased with her, called out to them from
@@ -21900,8 +20884,6 @@ said: ‘This man took my sword when I was sleeping, and I awoke to find
 1 Reported by Al-Bukhaari (4328) and Muslim (503).
 2 Al-Mufhim (448/6).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 653
 
@@ -21938,7 +20920,6 @@ At-Ta’leeqaat Al-Hisaan (2872).
 
 654
 
-Interactions Of The Greatest Leader
 
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam. They would not ask about
 anything that was not previously mentioned out of fear that it would
@@ -21971,8 +20952,6 @@ him, ‘O son of ‘Abd Al-Muttalib!’ The Prophet of Allaah, sallallaahu ‘al
 to ask you and I will be direct in the way I ask so do not become an1 Reported by Muslim (2553).
 2 The explanation of An-Nawawi on the book of Muslim (111/16).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 gry with me.’ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 replied: ‘Ask what you wish.’
@@ -22007,7 +20986,6 @@ anything to them, nor diminish anything from them.’ The Prophet
 
 656
 
-Interactions Of The Greatest Leader
 
 of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘If he is truthful, he
 will enter Paradise.’” 1
@@ -22040,8 +21018,6 @@ the man asked, “How is it lost?”3
 2 Reported by Al-Bukhaari (59).
 3 ‘Umdat al-Qaari (7/2) and The explanation of Ibn Battaal on the book of Al-Bukhaari (127/1).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 657
 
@@ -22080,7 +21056,6 @@ the part of the Bedouin calling out to the Prophet of Allaah, sallallaahu ‘ala
 
 658
 
-Interactions Of The Greatest Leader
 
 wa sallam, said: “What color are they?” He replied, “They are red.” The
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, asked: “Are any of them
@@ -22115,8 +21090,6 @@ sent me back to his other wives, and they all said as ‘Aa’ishah, may Allaah 
 1 Reported by Al-Bukhaari (5309) and Muslim (1500).
 2 Reported by Al-Bukhaari (2348).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 659
 
@@ -22156,7 +21129,6 @@ goat].”1
 
 660
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, used to praise the people of truth and
 Jihaad amongst them
@@ -22190,8 +21162,6 @@ book As-Silsilah As-Saheehah (1977).
 1 Reported by An-Nasaa’i (1953). Al-Albaani ruled it as authentic in his book Ahkaam Al-Janaa’iz
 (pg. 61).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 661
 
@@ -22228,7 +21198,6 @@ defeated his camel. This was difficult upon the Muslims, and they exclaimed: ‘
 
 662
 
-Interactions Of The Greatest Leader
 
 the way of Allaah that nothing from this worldly life becomes lofty except
 that He brings it down.’”1
@@ -22260,8 +21229,6 @@ second is that his rhyming was forced and unnatural, and these two kinds of
 3 Reported by Al-Bukhaari (6906), Muslim (1682) and An-Nasaa’i (4832) and the wording is for
 An-Nasaa’i
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 663
 
@@ -22296,7 +21263,6 @@ on it, it would break it. And I order you with the statement
 
 664
 
-Interactions Of The Greatest Leader
 
 thing single creature, and everything is given provision by
 it.”1
@@ -22331,8 +21297,6 @@ for good reasons such as spreading knowledge, conquering the lands of disbelief,
 2 Reported by Al-Bukhaari (1883) and Muslim (1383).
 3 The explanation of An-Nawawi on the book of Muslim (156/9).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 665
 
@@ -22370,7 +21334,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, used to say when he visited
 
 666
 
-Interactions Of The Greatest Leader
 
 a sick person, ‘Laa Ba’s, Tahoor In shaa’ Allaah [No harm, a purification if
 Allaah wills].’ So he said that, and the Bedouin man said, ‘A purification!
@@ -22401,13 +21364,10 @@ gifts and return the favor
 1 Reported by Al-Bukhaari (3616).
 2 Reported by At-Tabaraani (7213) on the authority of Sharhabeel, may Allaah be pleased with him,
 3 Reported by Al-Bukhaari (6339) and Muslim (2679) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 4 The explanation of Al-’Uthaymeen on the book of Riyaadh As-Saaliheen (484/4),
 5 Fath al-Baari (119/10) and The explanation of Al-’Uthaymeen on the book of Riyaadh As-Saaliheen
 (484/4).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 667
 
@@ -22445,7 +21405,6 @@ one camel to the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and the
 
 668
 
-Interactions Of The Greatest Leader
 
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, give him six camels back,
 but the man was unsatisfied with that (because he hoped the Prophet
@@ -22463,7 +21422,6 @@ did not seek a reward for their favors.’” 2
 He, sallallaahu ‘alayhi wa sallam, was patient if one of them transgressed upon him
 ‘Imaarah ibn Khuzaymah, may Allaah have mercy upon him, mentioned that
 his uncle said, and he was from the Companions of the Prophet of Allaah,
-sallallaahu ‘alayhi wa sallam,
 “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, bought
 a horse from a Bedouin. The Prophet of Allaah, sallallaahu ‘alayhi
 wa sallam, asked him to follow him to pay the price of his horse. The
@@ -22481,8 +21439,6 @@ stopped when he heard the call of the Bedouin, and said: ‘Did I not
 book Saheeh Al-Jaami’ (2119).
 2 Tuhfat Al-Ahwathi (308/10).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 669
 
@@ -22517,7 +21473,6 @@ authentic in his book Irwaa’ Al-Ghaleel (1286).
 
 670
 
-Interactions Of The Greatest Leader
 
 don’t you support the person with the right [meaning the
 Bedouin]?’ He then sent to Khawlah bint Qays and said to her: ‘If
@@ -22549,8 +21504,6 @@ Hakeem ibn Umayyah and tell her: ‘The Messenger of Allaah says to
 you: ‘If you have such-and-such amount of dates then loan it to us, until
 1 Reported by Ibn Maajah (2426). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (2421).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 671
 
@@ -22587,7 +21540,6 @@ umbrage at their roughness of speech. In fact, he, sallallaahu ‘alayhi wa sall
 
 672
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, knew when someone was sensitive or vulnerable, and
 he approached mistakes with utmost gentleness. He, sallallaahu ‘alayhi
@@ -22597,8 +21549,6 @@ Allaah, sallallaahu ‘alayhi wa sallam, had for his people that he did everythi
 forgiveness, and he, sallallaahu ‘alayhi wa sallam, searched out solutions to
 individual’s unique circumstances.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 673
 
@@ -22630,7 +21580,6 @@ as in the Hadeeth of Abu Umaamah, may Allaah be pleased with him, when he re-
 
 674
 
-Interactions Of The Greatest Leader
 
 ported that a young man came to The Prophet of Allaah, sallallaahu ‘alayhi
 wa sallam, and said:
@@ -22658,8 +21607,6 @@ then this is blameworthy but if you do not accept it for yourself then you
 should not accept it for others. This is how the Prophet of Allaah, sallal1 Reported by Ahmad (21708). Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah
 (370).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 675
 
@@ -22699,7 +21646,6 @@ Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did not respond at all, so
 
 676
 
-Interactions Of The Greatest Leader
 
 the man got up and left. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, sent a man after him to bring him back, and then he recited the verse
 to him (which means): «And perform prayer at the two ends of the day
@@ -22731,8 +21677,6 @@ He, sallallaahu ‘alayhi wa sallam, was very careful in implementing the
 3 Tafseer As-Sa’di (391/1).
 4 Fath al-Baari (357/8).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 677
 
@@ -22771,7 +21715,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘Why
 
 678
 
-Interactions Of The Greatest Leader
 
 did you not leave him, perhaps he would repent and Allaah
 would forgive him?’
@@ -22803,8 +21746,6 @@ birth.’ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said: ‘In
 that case, we shall not stone her and leave her infant with no
 one to breast-feed him.’ One of the Ansaar got up and said: ‘O
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 679
 
@@ -22838,7 +21779,6 @@ to do so.
 
 680
 
-Interactions Of The Greatest Leader
 
 there is a possibility that he could explain his act in a way that would
 not necessitate a punishment.
@@ -22867,8 +21807,6 @@ Abu Umaamah, may Allaah be pleased with him, said:
 ‘alayhi wa sallam, in the mosque, a man came in and said: ‘O Messenger of Allaah, I have committed a sin that necessitates the Hadd
 punishment, so implement it upon me.’ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, stayed silent and did not ask him any1 Fath al-Baari (126/12) and the explanation of An-Nawawi on the book of Muslim (201/11) .
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 681
 
@@ -22903,7 +21841,6 @@ the punishment.3
 
 682
 
-Interactions Of The Greatest Leader
 
 Ibn Al-Qayyim, may Allaah have mercy upon him, was of the opinion that if a
 sinner repents before being caught, then the punishment is not obligated
@@ -22935,8 +21872,6 @@ A similar narration is that of ‘Alqamah ibn Waa’il Al-Kindi, who related tha
 1 I’laam Al-Muwaqqi’een (17/3).
 2 I’laam Al-Muwaqi’een (60-61/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 683
 
@@ -22975,7 +21910,6 @@ authentic in his book As-Silsilah As-Saheehah (900).
 
 684
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, was close to ordering that, but the narrator just
 mentioned what seemed like it was going to happen.” 1
@@ -23010,8 +21944,6 @@ saying: “Maa’iz, the woman from Juhaynah, and the woman from Ghaamid all
 4 Ibid.
 5 Al-Ahaadeeth Al-Mukhtaarah (12/20) and Tahtheeb At-Tahtheeb (234/4).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 685
 
@@ -23048,7 +21980,6 @@ said: ‘She has repented such a repentance that if it was divided amongst
 
 686
 
-Interactions Of The Greatest Leader
 
 seventy men from Madeenah it would have been enough for them. Is
 there a better repentance than for her to sacrifice her life for Allaah?’” 1
@@ -23080,8 +22011,6 @@ first narration indicated that he stoned her immediately after the birth. The me
 2 The explanation of An-Nawawi on the book of Muslim (199/11).
 3 Ibid.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 687
 
@@ -23119,7 +22048,6 @@ said: ‘Should we not hate him?’ Abu Ad-Dardaa’, may Allaah be pleased with
 
 688
 
-Interactions Of The Greatest Leader
 
 him, said: ‘I only hate his actions, but if he leaves this act then he is my
 
@@ -23155,8 +22083,6 @@ Nu’aym in his book Al-Hilyah (225/1).
 2 	Reported by Al-Bukhaari (6780).
 3 	Fath Al-Baari (12/78).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 689
 
@@ -23190,7 +22116,6 @@ dress him in the same clothes that he wears, do not overwhelm them with
 
 690
 
-Interactions Of The Greatest Leader
 
 work that they cannot bear. If you give them work to do then help them
 with it.”1
@@ -23223,8 +22148,6 @@ only become Muslim after committing this sin, so that his sin would be wiped
 1 	Reported by Al-Bukhaari (30) and Muslim (1661).
 2 	Reported by Al-Bukhaari (4269) and Muslim (96).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 691
 
@@ -23259,7 +22182,6 @@ book Saheeh Al-Jaami’ (5140).
 
 692
 
-Interactions Of The Greatest Leader
 
 dirtied the state of the water, despite the vastness of the ocean. So how about if
 this backbiting is mixed with only a few deeds?” 1
@@ -23290,8 +22212,6 @@ anyone else in the world apart from you, I would think that I could
 escape his anger by making some excuse, and I have been given the
 1 	Tuhfat Al-Ahwathi (177/7).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 ability to argue. However, by Allaah, I know that if I were to tell you
 a false excuse today which might make you happy with me, Allaah
@@ -23329,7 +22249,6 @@ he would turn away from me. When the harshness of the Muslims
 
 694
 
-Interactions Of The Greatest Leader
 
 continued, I climbed over the wall of Abu Qataadah’s garden, he
 was my cousin and the dearest of people to me. I greeted him, and
@@ -23364,8 +22283,6 @@ shouting from the top of the mountain Sal’, ‘Ka’b ibn Maalik, rejoice!’ 
 Messenger of Allaah, sallallaahu ‘alayhi wa sallam, announced to
 the people that Allaah had forgiven us after he had prayed the Fajr
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 695
 
@@ -23401,14 +22318,12 @@ wa sallam, read the saying of Allaah (which means): «Let them pardon and
 
 696
 
-Interactions Of The Greatest Leader
 
 overlook. Would you not like that Allaah should forgive you? And Allaah
 is Forgiving and Merciful.» [Qur’aan 24:22]”1
 He, sallallaahu ‘alayhi wa sallam, would not stop a punishment when
 it became obligatory, not even by the intercession of the most beloved
 person to him:
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “The Quraysh were upset by the case of the woman from
 Makhzoom who had committed theft, and The Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, had ordered for her hand to be cut off.
@@ -23435,8 +22350,6 @@ of Allaah, sallallaahu ‘alayhi wa sallam.” In another narration, she
 (1637).
 2 	Reported by Al-Bukhaari (4304) and Muslim (1688).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 697
 
@@ -23471,7 +22384,6 @@ him. Ahmad Shaakir ruled it as authentic.
 
 698
 
-Interactions Of The Greatest Leader
 
 ordered for them to take a cluster that had one hundred stalks and hit him
 with it once.” 1
@@ -23505,8 +22417,6 @@ book As-Silsilah As-Saheehah (2968).
 2 	Fath Al-Qadeer (245/5).
 3 Ighaathat Al-Lahfaan (98/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 699
 
@@ -23544,7 +22454,6 @@ Allaah be pleased with him, when The Prophet of Allaah, sallallaahu ‘alayhi wa
 
 700
 
-Interactions Of The Greatest Leader
 
 to hit his hand with a stick. When The Prophet of Allaah, sallallaahu ‘alayhi
 wa sallam, was not paying attention Abu Tha’labah, may Allaah be pleased with
@@ -23576,8 +22485,6 @@ At-Ta’leeqaat Al-Hisaan (303).
 2 	Reported by An-Nasaa’i (5188). Al-Albaani ruled it as authentic in his book Saheeh At-Targheeb
 wat-Tarheeb (226/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 701
 
@@ -23615,7 +22522,6 @@ make a harsh statement:
 
 702
 
-Interactions Of The Greatest Leader
 
 ‘Imraan ibn Husayn, may Allaah be pleased with him, said: “A man from the
 Ansaar made his will at his death, and freed six slaves, and he did not
@@ -23650,8 +22556,6 @@ Al-Masaabeeh (3390).
 2 	Reported by Muslim (987), Abu Daawood (3185) and At-Tirmithi (1068). Al-Albaani ruled it as
 authentic in his book Ahkaam Al-Janaa’iz (pg. 48).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 703
 
@@ -23689,7 +22593,6 @@ authentic according to the conditions of Al-Bukhaari and Muslim (2582) and Ath-T
 
 704
 
-Interactions Of The Greatest Leader
 
 Abu Qatadaah, may Allaah be pleased with him, said: “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, would ask about a funeral if he was
 called to it. If they spoke well about the person, he would pray over him.
@@ -23719,14 +22622,11 @@ with his ruling. Al-Albaani ruled it as inauthentic in his book Irwaa’ Al-Ghal
 (3046).
 2 Reported by Ibn Hibbaan (64/5).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 705
 
 Section Five
 
-The conduct of the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, with hypocrites
 Introduction:
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, dealt with every
@@ -23750,7 +22650,6 @@ causes of the revelations regarding hypocrites and by going back to Islamic hist
 
 706
 
-Interactions Of The Greatest Leader
 
 and know how he, sallallaahu ‘alayhi wa sallam, dealt with the section of society known as the “hypocrites” in order to know how to deal with them.
 The attributes of hypocrites:
@@ -23780,8 +22679,6 @@ is the resting place.» [Qur’aan 2:204-206]
 Allaah The Almighty Says (what means): «And when they
 stand for prayer, they stand lazily, showing [themselves
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 to] the people and not remembering Allaah except a little.»
 [Qur’aan 4:142]
@@ -23822,7 +22719,6 @@ who take disbelievers as allies instead of the believers. Do
 
 708
 
-Interactions Of The Greatest Leader
 
 they seek with them honor [through power]? But indeed, honor belongs to Allaah entirely.» [Qur’aan 4:138-139]
 Allah The Almighty also Says (what means): «Have you not
@@ -23854,8 +22750,6 @@ them because of what their hands have put forth and then
 they come to you swearing by Allaah, “We intended nothing
 but good conduct and accommodation.” Those are the ones
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 of whom Allaah knows what is in their hearts, so turn away
 from them [i.e. use not violence against them] but admonish
@@ -23890,7 +22784,6 @@ refuse to spend in the way of Allaah]. They have forgotten Allaah, so He has for
 
 710
 
-Interactions Of The Greatest Leader
 
 Hypocrites are the most dangerous group who pose the greatest threat
 to the Muslim nation. This is because they are part of the community and
@@ -23921,8 +22814,6 @@ until the last day of his life.
 3 His father’s name is Ubayy and his mother’s name is Salool, so he was called after both his father
 and mother.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 711
 
@@ -23959,7 +22850,6 @@ greeting with Salaam to a group of people who are a mixture of Muslims and non M
 
 712
 
-Interactions Of The Greatest Leader
 
 “When the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 passed by the gathering ‘Abdullaah ibn Ubayy said to him, ‘Stay
@@ -23992,10 +22882,7 @@ from those who were given the Scripture before you and from those who
 associate others with Allaah much abuse. But if you are patient and fear
 Allaah- indeed, that is of the matters [worthy] of determination.» [Qur’aan
 1 Reported by Al-Bukhaari (2699) and Muslim (1799) on the authority of Anas, may Allaah be
-pleased with him.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 713
 
@@ -24031,7 +22918,6 @@ become strong and are able to face others in war.
 
 714
 
-Interactions Of The Greatest Leader
 
 After the battle of Badr, the Muslims became stronger which forced
 people like ‘Abdullaah ibn Ubayy ibn Salool and many polytheists to
@@ -24062,8 +22948,6 @@ expressed acceptance of Islaam were harmed, there was no need for hypocrisy.” 
 1 Reported by Al-Bukhaari (4566).
 2 Al-Fataawa Al-Kubra (450/3).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 715
 
@@ -24101,7 +22985,6 @@ the pledge Allaah took upon you.” Ibn Is-Haaq (313/1).
 
 716
 
-Interactions Of The Greatest Leader
 
 The result was that they were blockaded by the Messenger of Allaah,
 sallallaahu ‘alayhi wa sallam, and the Muslims. The blockade continued until they surrendered and accepted to adhere to whatever action he, sallallaahu ‘alayhi wa sallam, decided to take.
@@ -24132,8 +23015,6 @@ fight the battle of Uhud, the hypocrites went back on the way to the battle
 and refrained from fighting with him. They withdrew one third of the
 1 As-Seerah An-Nabawiyyah (48/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 717
 
@@ -24147,7 +23028,6 @@ with you [that you are] two groups concerning the hypocrites, [divided
 between two viewpoints] while Allaah has made them fall back [into error and disbelief] for what they earned [as the result of their disobedience
 and disloyalty]. Do you wish to guide those whom Allaah has [allowed
 to go] astray?» [Qur’aan 4:88].”1
-Ibn Hajar, may Allaah have mercy upon him, said:
 “The term ‘some people who initially went out with him went
 back’ refers to ‘Abdullaah ibn Ubayy and his followers (from the
 hypocrites). This was clearly mentioned in another narration on the
@@ -24167,7 +23047,6 @@ father of Jaabir, went after them and tried to convince them to come back (to fi
 
 718
 
-Interactions Of The Greatest Leader
 
 but they refused. He then said to them, ‘May Allaah distance you, O you enemies
 of Allaah! Allaah will suffice His Messenger and he will not need you.”1
@@ -24198,8 +23077,6 @@ people from the Ansaar (help)!’ And in return the former said: ‘O
 people of the Muhaajiroon (help)!’ The Prophet of Allaah, sallallaa1 As-Seerah An-Nabawiyyah (64/2)
 2 Tafseer Al-Khazzaan (407/1) and Tuhfat Al-Ahwathi (304/8).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 719
 
@@ -24237,12 +23114,10 @@ and this deep sleep made them forget the issue. (Marwiyyat Ghazwat Bani Al-Musta
 
 720
 
-Interactions Of The Greatest Leader
 
 are the humiliated one and that the Messenger of Allaah, sallallaahu ‘alayhi wa
 sallam, is the honorable one, so he did (admitted to what his son wanted to him
 to admit to).” 1
-An-Nawawi, may Allaah have mercy upon him, said:
 “This narration proves the mercy of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, and his lenience. It also shows that one
 should persevere through some hardships to avoid a greater evil and
 harm. The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, practiced extreme patience in order to soften people’s hearts and win
@@ -24266,8 +23141,6 @@ those who embraced Islaam to turn away from it, and those who did not yet embrac
 2 The explanation of An-Nawawi on the book of Muslim (139/16).
 3 Iqaamat Ad-Daleel ‘Ala Ibtaal At-Tahleel (471/3).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 721
 
@@ -24305,7 +23178,6 @@ Muslim.” 2
 
 722
 
-Interactions Of The Greatest Leader
 
 Hypocrites are treated like Muslims unless they openly show something that proves that they are disbelievers and hypocrites. If this is proven with clear evidence, then they would be treated as disbelievers and the
 penalty of apostasy would be applied to them.
@@ -24337,8 +23209,6 @@ I reported that (his words) to Sa’d ibn ‘Ubaadah (the chief from
 the tribe of Al-Khazraj), in turn, he informed the Prophet of Allaah,
 sallallaahu ‘alayhi wa sallam, of it. The Prophet of Allaah, sallal-
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 723
 
@@ -24378,7 +23248,6 @@ misunderstood what was said.” Reported by Al-Waaqidi in his book Al-Maghaazi (
 
 724
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, recited to us the chapter of Al-Munaafiqoon (that confirmed
 my statement).” 1
@@ -24409,8 +23278,6 @@ Ibn Salool until he started attacking his wife (the Prophet’s):
 3 Reported by Muslim (879)
 4 The explanation of An-Nawawi on the book of Muslim (167/6)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 725
 
@@ -24445,7 +23312,6 @@ the tribe of Al-Khazraj, and he was a pious man, but his tribalism and en-
 
 726
 
-Interactions Of The Greatest Leader
 
 thusiasm overcame him and he said to Sa’d ibn Mu’aath, ‘You are lying; I
 swear by Allaah you will not kill him and you will not be able to kill him!’
@@ -24456,7 +23322,6 @@ nothing but a hypocrite who defends hypocrites.’
 The two tribes of Al-Aws and Al-Khazraj became so angry, until they
 were about to fight each other. The Messenger of Allah, sallallaahu ‘alayhi
 wa sallam, remained standing on the pulpit and tried to subside their anger until they became silent.1
-Ibn Hajar, may Allaah have mercy upon him, said:
 “The following are some benefits that can be extracted from the narration:
 • Fanaticism to the people of falsehood takes the person out of the definition
 of piety.
@@ -24476,8 +23341,6 @@ the expedition of Banu Al-Mustaliq. Another way to engender tribulations was by 
 1 Reported by Al-Bukhaari (2661) Muslim (2770).
 2 Fat-h Al-Baari (480/8).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 727
 
@@ -24512,7 +23375,6 @@ hot weather.’ However, Allaah exposed their reality in the Qur’aan and ad1 F
 
 728
 
-Interactions Of The Greatest Leader
 
 monished the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, for allowing
 them not to go and accepting their excuses. Allaah The Almighty Says
@@ -24546,8 +23408,6 @@ to make evident who is truthful and who is lying, and only then
 permit those who were truly excused to stay behind.” 1
 1 Tafseer As-Sa’di (338/1)
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 729
 
@@ -24584,7 +23444,6 @@ Allaah, sallallaahu ‘alayhi wa sallam, said to him: “Did you recognize these
 
 730
 
-Interactions Of The Greatest Leader
 
 people?” ‘Ammaar, may Allaah be pleased with him, replied: ‘I recognized their
 animals, but the men were masked.’
@@ -24618,8 +23477,6 @@ are the same used by Muslim (195/6). Shu’ayb Al-Arna’oot ruled it as a stron
 to the conditions of Muslim. The story is originally reported summarized by Muslim (2779).
 2 The explanation of An-Nawawi on the book of Muslim (126/17).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 731
 
@@ -24654,7 +23511,6 @@ heat in their chests who will feel like a lamp lit with fire.”4
 
 732
 
-Interactions Of The Greatest Leader
 
 Al-Qurtubi, may Allaah have mercy upon him, said: “The term “Allaah will take
 care of eight of them” means, that Allaah will kill these eight in this worldly
@@ -24688,8 +23544,6 @@ this?” He said: ‘Huthayfah ibn Al-Yamaan.’
 2 Majmoo’ Al-Fataawa (211/7).
 3 Tafseer Ibn Katheer (182/4).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 733
 
@@ -24722,7 +23576,6 @@ know all the hypocrites and was not informed (by Allaah)
 
 734
 
-Interactions Of The Greatest Leader
 
 about them all. However, he, sallallaahu ‘alayhi wa sallam, was
 informed of their characteristics so that he would be able to
@@ -24755,8 +23608,6 @@ and His Messenger that you were mocking?’ Make no excuse; you have
 2 It is a rope which goes around the stomach of the camel.
 3 Reported by At-Tabari in his book Tafseer At-Tabari (16912). Ahmad Shaakir ruled it as authentic.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 735
 
@@ -24792,7 +23643,6 @@ against hypocrites:
 
 736
 
-Interactions Of The Greatest Leader
 
 One of the tactics which the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, used against the hypocrites was to demolish the obvious places
@@ -24827,8 +23677,6 @@ mosque besides Qubaa’) and providing a closer mosque for the old,
 weak and blind who are unable to walk to the Qubaa’ mosque, and
 for the purpose of having another place where Allaah is worshipped.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 737
 
@@ -24864,7 +23712,6 @@ one should distance himself from it.
 
 738
 
-Interactions Of The Greatest Leader
 
 • Sins affect places, just like praying in the mosque that was built
 by the hypocrites became prohibited. Likewise, obedience has the
@@ -24892,13 +23739,10 @@ the practice of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 is one that is based on piety and leads the person to the eternal bliss
 in Paradise. On the other hand, a deed that is done with ill intention
 1 Reported by Al-Bukhaari (1192) Muslim (1399) on the authority of Ibn ‘Umar, may Allaah be
-pleased with him.
 2 Reported by At-Tirmithi (324) on the authority of Ibn ‘Umar, may Allaah be please with him, that
 he, sallallaahu ‘alayhi wa sallam, said, “A prayer in the mosque of Qubaa’ is equal in reward to
 performing ‘Umrah.”. Al-Albaani ruled it as authentic.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 and includes religious innovations, is one whose foundation is laid
 on the edge of a bank about to collapse, so it collapses with him into
@@ -24935,7 +23779,6 @@ rebellious, so the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
 
 740
 
-Interactions Of The Greatest Leader
 
 supplicated that he dies whilst alone and away from his people, so
 Allaah honored his supplication and this is what happened to him.
@@ -24967,8 +23810,6 @@ disunite the Muslims and scatter them from the mosque of Qubaa’,
 a mosque that was established upon piety from the first day. The
 Messenger of Allaah, sallallaahu ‘alayhi wa sallam, sent a group of
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 741
 
@@ -25006,7 +23847,6 @@ ruling.
 
 742
 
-Interactions Of The Greatest Leader
 
 forgive them.» [Qur’aan 9:80] and if I know that if I increase [the
 number of times I ask for forgiveness] would result in forgiving him, I would increase” So the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, offered the funeral prayer, and very shortly
@@ -25015,7 +23855,6 @@ pray [the funeral prayer, O Muhammad, over any of them
 who has died, ever, or stand at his grave. Indeed, they disbelieved in Allaah and His Messenger and died while they were
 defiantly disobedient» [Qur’aan 9:84] ‘Umar, said: ‘I was astonished
 at the daring way I behaved with the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, on that day.” 1
-Ibn Hajar, may Allaah have mercy upon him, said:
 “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, did not do what
 ‘Umar, may Allaah be pleased with him, said and performed the funeral prayer,
 because he dealt with him (‘Abdullaah ibn Ubayy ibn Salool) according to
@@ -25035,8 +23874,6 @@ at anybody else’s funeral.” 3
 2 Fat-h Al-Baari (336/8).
 3 Ibid.
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 743
 
@@ -25074,7 +23911,6 @@ to him. One day ‘Umayr overheard Al-Jullaas saying: “I swear by Allaah,
 
 744
 
-Interactions Of The Greatest Leader
 
 if Muhammad was truthful (about his mission) then we are worse than
 donkeys.”
@@ -25107,8 +23943,6 @@ or helper.» [Qur’aan 9:74]
 Al-Jullaas, may Allaah be pleased with him, said: “Indeed I said it, and Allaah
 is offering me repentance and I (accept the offer and) repent.” Thus, he
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 745
 
@@ -25144,7 +23978,6 @@ book Al-Istee’aab (79/1), “This is a famous story in the books of Tafseer.�
 
 746
 
-Interactions Of The Greatest Leader
 
 ger do not do justice?” He, sallallaahu ‘alayhi wa sallam, further
 said: “May Allaah have mercy upon Moosa [Moses]; he was
@@ -25178,8 +24011,6 @@ know them by the tone of [their] speech” means that the way they speak will
 1 Reported by Al-Bukhaari (3405) and Muslim (1062) and the wording is for Muslim.
 2 Fat-h Al-Baari (56/8) and (512/10).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 747
 
@@ -25214,10 +24045,8 @@ some such characteristics:
 
 748
 
-Interactions Of The Greatest Leader
 
 • Not attending the Fajr (dawn) and Ishaa’ (night) prayers:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “No prayer is more burdensome to the hypocrites than the Fajr [dawn] prayer and the `Ishaa’ [night]
 prayer; and if they knew their merits, they would come to them even if
 they had to crawl to do so.’’1
@@ -25244,8 +24073,6 @@ extremely fast] and mentions Allah very little [during them].””3
 2 Fat-h Al-Baari by Ibn Rajab (23/5).
 3 Reported by Muslim (622).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 749
 
@@ -25257,7 +24084,6 @@ of the might and power of Satan over his followers. This means that delaying the
 prayer occurs as a result of the whisper of the devil. However, the first opinion is
 the predominant one.”1
 • Lying, breaking promises, betrayal and vulgar during quarrels:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “There are three signs of a
 hypocrite: When he speaks, he lies; when he makes a promise, he breaks
 it; and when he is trusted, he betrays his trust.”2
@@ -25269,7 +24095,6 @@ when he makes a promise, he acts treacherously; when he is entrusted
 with something, he betrays trust; and when he argues, he quarrels and
 utters foul language.’’ 3
 • They are ignorant and undignified:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “There are two qualities no
 hypocrite will possess: a dignified appearance and knowledge about religion.” 4
 Al-Manaawi, may Allaah have mercy upon him, said: “The term “a dignified appearance” means that a hypocrite would never try to look like righteous people
@@ -25281,7 +24106,6 @@ never be keen on getting rid of inward and outward faults. The term “knowl1 Th
 
 750
 
-Interactions Of The Greatest Leader
 
 edge about religion” means that they do not have the knowledge that leads a
 person to piety. There are people who study and seek knowledge to use as a means
@@ -25311,8 +24135,6 @@ which are hidden and private of his fellow Muslim, Allaah The Almighty
 2 Reported by Muslim (2784).
 3 Mirqaat Al-Mafaateeh Sharh Mishkaat Al-Masaabeeh (130/1).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 751
 
@@ -25346,7 +24168,6 @@ and benevolence, they do not want charitable projects to advance and
 
 752
 
-Interactions Of The Greatest Leader
 
 grow, so they accuse people’s intentions. Whether these projects are in
 mosques, schools, government institutions or anywhere else, they accuse
@@ -25379,8 +24200,6 @@ An-Nawawi, may Allaah have mercy upon him, said commenting on this narration, �
 3 Reported by Muslim (2782).
 4 Reported by Muslim (2783).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 753
 
@@ -25411,7 +24230,6 @@ was sitting in the shade of his room, and the shade almost disap1 The explanatio
 
 754
 
-Interactions Of The Greatest Leader
 
 peared. He, sallallaahu ‘alayhi wa sallam, said: “A man will come
 now looking at you through the eye of the devil [i.e. as evil
@@ -25440,8 +24258,6 @@ be your status.”4
 3 ‘Awn Al-Ma’bood (3009/7).
 4 An-Nihaayah (418/2).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 755
 
@@ -25477,7 +24293,6 @@ Huthayfah ibn Al-Yamaan, ‘Are the hypocrites today more evil than those during
 
 756
 
-Interactions Of The Greatest Leader
 
 the time of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam? Huthayfah hit
 his forehead with his hand and said: ‘Today hypocrisy is public. They used to
@@ -25512,8 +24327,6 @@ way of speaking.” 3
 2 Reported by Ahmad (144). Al-Albaani ruled it as authentic in his book At-Ta’leeqaat Al-Hisaan (80).
 3 Tayseer Bisharhi Al-Jaami’ As-Sagheer (52/1).
 
-Chapter Four: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with groups requiring specific styles of religious invocation
 
 757
 
@@ -25549,7 +24362,6 @@ is included in their good books. He does not care if what he says is untrue,
 
 758
 
-Interactions Of The Greatest Leader
 
 because all that he cares for is his own interest. Since a hypocrite relies on
 lying, thinking that he could lie his way out of any difficulty, he is punished severely in the Hereafter.
@@ -25564,8 +24376,6 @@ which their identity would be exposed.
 
 Chapter Five
 How the Prophet of Allaah,
-sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 • Section One: How the Prophet of Allaah, sallallaahu
 ‘alayhi wa sallam, dealt with women.
 • Section Two: How the Prophet of Allaah, sallallaahu
@@ -25573,8 +24383,6 @@ dealt with the general masses
 • Section Three: How the Prophet of Allaah, sallallaahu
 ‘alayhi wa sallam, treated youngsters.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 761
 
@@ -25607,7 +24415,6 @@ He, sallallaahu ‘alayhi wa sallam, instructed men to treat women kindly:
 
 762
 
-Interactions Of The Greatest Leader
 
 `Amr ibn Al-Ahwas Al-Jushami, may Allaah be pleased with him, narrated that
 he had heard the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, saying on
@@ -25643,8 +24450,6 @@ book Irwaa’ Al-Ghaleel (2030).
 Saheeh Al-Jaami’ (1983).
 4 An-Nihaayah (492/2).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 763
 
@@ -25681,7 +24486,6 @@ born of adultery) to a woman’s husband.
 
 764
 
-Interactions Of The Greatest Leader
 
 prostitution or by having illicit relationships with men. They also
 had to pledge not to kill their children as ignorant women used to do
@@ -25715,8 +24519,6 @@ women.2 ”3
 all obliged to adhere, and it is not needed for every woman to pledge separately.
 3 Reported by At-Tirmithi (1597) Ibn Maajah (2874) and An-Nasaa’i (4181). Al-Albaani ruled it as
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 765
 
@@ -25724,7 +24526,6 @@ A pledge is very beneficial in that it obliges the person to fulfill what
 they pledged to do (or refrain from). One would always remember it and
 thus is encouraged to fulfill it.
 He, sallallaahu ‘alayhi wa sallam, tested women who emigrated to him:
-‘Aa’ishah, may Allaah be pleased with her, narrated:
 “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, used
 to take the pledge of allegiance from the women by words only after
 reciting this verse (which means): «O you who have believed,
@@ -25753,7 +24554,6 @@ of Hudaybiyyah.
 
 766
 
-Interactions Of The Greatest Leader
 
 Meaning without shaking their hands or touching them as
 he, sallallaahu ‘alayhi wa sallam, would do with men when he
@@ -25785,8 +24585,6 @@ sallallaahu ‘alayhi wa sallam, did not want the women to be tempted by his
 2 Reported by Ahmad (12350).
 3 Fath-h Al-Baari (545/10).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 767
 
@@ -25822,7 +24620,6 @@ extravagant when spending from it.”3
 
 768
 
-Interactions Of The Greatest Leader
 
 Ibn Battaal, may Allaah have mercy upon him, said: “This narration favors the
 ladies of Quraysh over the rest of the ladies of the Arabs for two reasons: One, because they look after their children, nurture them properly, and are compassionate towards them. Second, because they can be entrusted with their husband’s
@@ -25852,8 +24649,6 @@ Ahmad (7610).
 3 Reported by Al-Bukhaari (102) and Muslim (2634).
 4 Fath-h Al-Baari (196/1).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 769
 
@@ -25886,12 +24681,10 @@ the cloth of Bilaal.” 3
 2 Another narration reads: “If one treats you [women] kindly for ages and then she once sees
 something that does not please her, she would say, ‘I never saw anything good from you.’”
 Reported by Al-Bukhaari (29) and Muslim (907) on the authority of Ibn ‘Abbaas, may Allaah be
-pleased with him.
 3 Reported by Muslim (885).
 
 770
 
-Interactions Of The Greatest Leader
 
 When the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, noticed that
 women could not hear him properly (during the sermon) due to the large
@@ -25902,7 +24695,6 @@ Islamic upbringing.
 An-Nawawi, may Allaah have mercy upon him, said: “It is recommended that the
 preacher addresses women after he advises men, if they could not hear him properly, unless a predominant harm or evil would result from him doing so.”1 However, nowadays, this is not necessary since people have microphones and
 loudspeakers in the area where women gather.
-Benefits extracted from the narration:
 • It is recommended to teach women the rulings of Islaam and remind them of their duties. ibn Jurayj, may Allaah have mercy upon him, said:
 “I asked ‘Ataa’, may Allaah have mercy upon him, ‘Do you think it is a must for the
 Imaam to go to the ladies’ side and advise them once he is done with his
@@ -25920,8 +24712,6 @@ sallallaahu ‘alayhi wa sallam, said: “One Dirham [currency of silver] can be
 2 Reported by Al-Bukhaari (961) and Muslim (885).
 3 Fath-h Al-Baari (469/2).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 771
 
@@ -25959,7 +24749,6 @@ him charity.
 
 772
 
-Interactions Of The Greatest Leader
 
 Bilaal, may Allaah be pleased with him, said: “A woman from the Ansaar and
 Zaynab.”
@@ -25969,7 +24758,6 @@ Bilaal, may Allaah be pleased with him, replied: “The wife of ‘Abdullaah.”
 The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said: “They will
 get twice the reward, one for charity and one for maintaining ties of
 kinship.” 1
-Benefits extracted from the narration:
 • It is recommended to spend charity on relatives. If it is the obligatory alms (i.e. Zakaah) then charity cannot be spent on relatives who
 are Islamically obliged to spend on the donator.
 • Islaam encourages maintaining ties of kinship.
@@ -25991,8 +24779,6 @@ identity.
 1 Reported by Al-Bukhaari (1466) and Muslim (1000).
 2 Fath-h Al-Baari (330/3).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 773
 
@@ -26026,7 +24812,6 @@ sound (Hasan) in his book Saheeh Al-Jaami’ (4087).
 
 774
 
-Interactions Of The Greatest Leader
 
 The term: “they [the fingers] will be questioned and asked to speak”
 means that these fingers will be asked what they were used in and what
@@ -26057,8 +24842,6 @@ Wa Rabbul-`Arsh Al-Kareem. [None has the right to be worshipped but
 2 Reported by Abu Daawood (1525) and Ibn Maajah (3882). Al-Albaani ruled it as authentic in his
 book Saheeh Abu Daawood (1364).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 775
 
@@ -26077,7 +24860,6 @@ area. A woman asked: ‘O Messenger of Allaah! What about one who does
 not have a veil?’ He, sallallaahu ‘alayhi wa sallam, said: “Let her share the
 veil of her friend [or neighbor].””3 Which means, let her Muslim sister
 lend her a veil to wear.4
-Benefits extracted from the narration:
 • It is recommended for women to go out to attend the ‘Eed festivals
 whether they were old or young, married or virgin, menstruating
 or not.
@@ -26092,7 +24874,6 @@ days.
 
 776
 
-Interactions Of The Greatest Leader
 
 • It is evidence that menstruating women should not abandon the
 mention of Allaah, the places of virtue, like mosques and study circles.1
@@ -26116,7 +24897,6 @@ used to attend the Fajr (dawn) with the Messenger of Allaah, sallallaahu
 believing women used to return (after finishing their prayer) covering
 their heads with a separate cover (than that of the body), and nobody
 could recognize them owing to darkness.” 4
-Benefits extracted from the narration:
 • It is recommended for women to go out to attend the night prayers
 if they are safe from temptation, and thus the permissibility of attending the day prayers goes without saying.
 1 Fat-h Al-Baari (424/1), (470/2).
@@ -26124,8 +24904,6 @@ if they are safe from temptation, and thus the permissibility of attending the d
 3 The explanation of An-Nawawi on the book of Muslim (161/6).
 4 Reported by Al-Bukhaari (372) and Muslim (645).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 777
 
@@ -26142,7 +24920,6 @@ the saying of the Messenger of Allaah, sallallaahu ‘alayhi wa sallam: “Do
 not prevent your women from going to the mosque when they seek your
 permission.”’2
 He, sallallaahu ‘alayhi wa sallam, forbade women from applying perfume when going out:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Do not prevent your women
 from going to the mosque, but let them not perfume themselves before
 going out.”3
@@ -26162,9 +24939,7 @@ she should not apply perfume.”5
 
 778
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Whoever [woman] perfumes
 herself should not join us in the night prayer.” 1
 Abu Moosa, may Allaah be pleased with him, narrated that the Messenger of
@@ -26190,8 +24965,6 @@ Women’s prayer at home is more rewarding:
 2 Reported by At-Tirmithi (2786) and Abu Daawood (4173). Al-Albaani ruled it as authentic.
 3 Tuhfat Al-Ahwathi (58/8).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 779
 
@@ -26228,7 +25001,6 @@ wa sallam, finished the Hajj, I came to him.
 
 780
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, said to me: “Umm Ma’qil, what prevented you from coming out for Hajj along with us?”
 I said: ‘We resolved (to do so), but Abu Ma’qil died. We had a camel on which
@@ -26260,8 +25032,6 @@ Al-Albaani ruled it as authentic in his book Saheeh Abu Daawood (1736).
 3 Reported by Al-Bukhaari (6643) on the authority of Abu Sa’eed and Muslim (811) on the authority
 of Abu Ad-Dardaa’.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 781
 
@@ -26275,7 +25045,6 @@ Umm Salamah, may Allaah be pleased with her, narrated: “Whenever the Messenger
 Tasleem (i.e. saying “Assalaamu ‘Alaykum”), the women would depart
 and enter their houses before the Messenger of Allaah, sallallaahu ‘alayhi
 wa sallam, departed.”2
-Benefits extracted from the narration:
 • The person leading the prayer should be mindful of the situation of
 those praying behind him.
 • One should avoid what could lead to prohibited matters.
@@ -26285,7 +25054,6 @@ alone inside houses.
 • The women of the early generations used to attend the congregational prayer at the mosque. 3
 To avoid mixing, he, sallallaahu ‘alayhi wa sallam, encouraged them to
 pray at the back rows:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “The best rows for men are
 the first rows [from the front], and the worst ones the last ones [from the
 back], and the best rows for women are the last ones and the worst ones
@@ -26297,7 +25065,6 @@ for them are the first ones.” 4
 
 782
 
-Interactions Of The Greatest Leader
 
 An-Nawawi, may Allaah have mercy upon him, said: “This refers to the situation
 where women pray with men in congregation. However, if they pray alone, then
@@ -26331,8 +25098,6 @@ the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, say (addressing
 (483).
 3 ‘Awn Al-Ma’bood (92/2).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 783
 
@@ -26370,9 +25135,7 @@ concentration).” 5
 
 784
 
-Interactions Of The Greatest Leader
 
-Benefits extracted from the narration:
 • One should be kind towards the believers and those under his leadership and be considerate of their needs. He should not make them
 undergo hardship, even if it is for a short period, unless there is a
 need.
@@ -26405,14 +25168,11 @@ mentioning.” They showed him where her grave was, and he, sallallaahu
 with him. Al-Albaani ruled it as authentic.
 3 The Permanent Committee for Fatwa (263/5).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 785
 
 graves are filled with darkness for those residing in them, and Allaah The
 Almighty brightens them by my praying on them.”1
-Benefits extracted from the narration:
 • The virtue of cleaning the mosque.
 • It is recommended to ask about a servant or one’s friend when they
 are absent for a while.
@@ -26443,7 +25203,6 @@ sallallaahu ‘alayhi wa sallam, when Khaybar had been conquered. “
 
 786
 
-Interactions Of The Greatest Leader
 
 Abu Moosa, may Allaah be pleased with him, continued:
 “The Messenger of Allaah, sallallaahu ‘alayhi wa sallam, allocated a share to us and in the ordinary course he did not allocate the
@@ -26475,8 +25234,6 @@ We remained in that country in constant trouble and dread and I
 1 Attributing her to Abyssinia since she lived there, and called her the sea-farer since she travelled
 there by sea.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 787
 
@@ -26510,7 +25267,6 @@ went behind the curtain.” Thereupon ‘Umar said: ‘O Messen1 Reported by Al-
 
 788
 
-Interactions Of The Greatest Leader
 
 ger of Allaah, you have more right that they should fear you.’ Then
 Umar (addressing the women) said: ‘O enemies of your selves, do
@@ -26544,8 +25300,6 @@ and harsh in heart, they would have disbanded from about you.» [Qur’aan
 2 The explanation of An-Nawawi on the book of Muslim (164/15).
 3 Fat-h Al-Baari (47/7).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 789
 
@@ -26577,12 +25331,10 @@ of the alleys you want me to stand with you in [so that people cannot hear
 2 Reported by An-Nasaa’i (1414). Al-Albaani ruled it as sound (Hasan) in his book Saheeh Al-Jaami’
 (5005).
 3 Reported by Al-Bukhaari (5353) and Muslim (2982) on the authority of Abu Hurayrah, may Allaah
-be pleased with him.
 4 The explanation of An-Nawawi on the book of Muslim (18/112).
 
 790
 
-Interactions Of The Greatest Leader
 
 her questions], so that I may fulfill your need [i.e. reply to your inquiries].” So he, sallallaahu ‘alayhi wa sallam, stood with her in one of the alleys
 (where people could still see them but could not hear them) and replied
@@ -26590,7 +25342,6 @@ to all her inquiries.1
 This shows the humbleness of the Prophet of Allaah, sallallaahu ‘alayhi
 wa sallam, and his kindness with this woman who needed to ask him and
 needed his help. It also reflects his leniency and care for those who needed him.
-Benefits extracted from the narration:
 • The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was available for
 people whenever they needed him.
 • The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was approachable and easily accessible to the people, who were able to retrieve
@@ -26611,8 +25362,6 @@ from Madeenah would go and take the hand of the Messenger of Allaah,
 1 Reported by Muslim (2326).
 2 The explanation of An-Nawawi on the book of Muslim (182/15).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 791
 
@@ -26651,7 +25400,6 @@ the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, before him. After the
 
 792
 
-Interactions Of The Greatest Leader
 
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam, she breastfed Abu Salamah
 ibn ‘Abdul-Asad, may Allaah be pleased with him. 1
@@ -26682,8 +25430,6 @@ them.”
 3 Fat-h Al-Baari (145/9).
 4 Al-Isaabah Fi Tamyeez As-Sahaabah (291/14) and Taareekh Dimashq (302/4).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 793
 
@@ -26718,7 +25464,6 @@ his nursemaid who cultivated him).” 2
 
 794
 
-Interactions Of The Greatest Leader
 
 An-Nawawi, may Allaah have mercy upon him, also said: “The scholars said:
 ‘When the Muhaajiroon (the Emigrants) came, the Ansaar 1 favored them over
@@ -26740,7 +25485,6 @@ not because I am ignorant of the fact that what is in store for the Messenger of
 (this world), but because the revelation which came from the Heaven has
 ceased to come.’ This moved both of them to tears and they began to weep
 along with her.”3
-Benefits extracted from the narration:
 • The virtue of visiting righteous people.
 • Virtuous people may visit those who are less than them in virtue.
 • It is recommended to visit those whom one’s friend or relative used
@@ -26751,8 +25495,6 @@ to visit during their life.
 2 The explanation of An-Nawawi on the book of Muslim (99/12).
 3 Reported by Muslim (2454).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 795
 
@@ -26788,7 +25530,6 @@ to ones with nice meanings.
 
 796
 
-Interactions Of The Greatest Leader
 
 to visit us during the life of Khadeejah and being kind to old friends is
 from Eemaan [faith].”” 1
@@ -26815,8 +25556,6 @@ As-Saheehah (216).
 2 Reported by Al-Bukhaari (2844) and Muslim (2455).
 3 Fat-h Al-Baari (461/8).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 797
 
@@ -26854,7 +25593,6 @@ as authentic in his book Saheeh Al-Jaami’ (7946).
 
 798
 
-Interactions Of The Greatest Leader
 
 Abu Bakr, may Allaah be pleased with him, was the first to awake amongst us.
 We did not awake the Messenger of Allaah, sallallaahu ‘alayhi wa sallam,
@@ -26889,8 +25627,6 @@ sleep, so they feared to interrupt this.
 sorrow for having missed the prayer on its time, and told them that they were not sinning for that
 since it happened unintentionally.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 We were traveling when we came across a woman who was sitting (on a camel) with her feet hanging over two leather water bags.
 We asked her, ‘How far away is water available?’ She said: ‘Far,
@@ -26926,7 +25662,6 @@ wa sallam, said to her: “Take it away. This is meant for your
 
 800
 
-Interactions Of The Greatest Leader
 
 children, and know that we have not done any loss to your
 water. Rather, Allaah is The One Who provided us with water.”
@@ -26946,7 +25681,6 @@ to drink from. In return he, sallallaahu ‘alayhi wa sallam, gave her food and
 stayed away from her tribe’s territory as a way of paying her favor back.
 Al-’Ayni, may Allaah have mercy upon him, said: “The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, remembered her favor and paid it back by safeguarding
 her, her people and her land.” 2
-Benefits extracted from the narration:
 • The one who misses a prayer should pray it as soon as he remembers it, even if its prescribed time has passed.
 • If the need for water becomes dire, then one may take it from any
 place and compensate the owner of that water, like the woman was
@@ -26958,8 +25692,6 @@ if it was never touched.
 1 Reported by Al-Bukhaari (344) and Muslim (682).
 2 Al-’Ayni, may Allaah have mercy upon him, in his book ‘Umdat Al-Qaari (32/4).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 801
 
@@ -26997,7 +25729,6 @@ the complete opposite of what she had initially pictured. Fat-h Al-Baari (3/149)
 
 802
 
-Interactions Of The Greatest Leader
 
 Ibn Hajar, may Allaah have mercy upon him, said: “The term: “Patience is [accepted] only at the first shock of the calamity.” means that praiseworthy
 patience which one would be rewarded for is that which one practices at the first
@@ -27014,7 +25745,6 @@ issue and which is worthier to be answered.” 2
 It was as if the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, was telling her that he was not upset for her improper reaction, as he, sallallaahu
 ‘alayhi wa sallam, only got upset regarding matters related to the religion
 of Allaah, and that she should think about what is more important.
-Benefits extracted from the narration:
 • It shows the humbleness of the Messenger of Allaah, sallallaahu
 ‘alayhi wa sallam, his tolerance with ignorant people, his forgiveness,
 and his acceptance of apologies.
@@ -27029,8 +25759,6 @@ sallallaahu ‘alayhi wa sallam, told her to fear Allaah and be patient.
 1 Fat-h Al-Baari (150/3).
 2 Al-Eedhaah Fi ‘Uloom Al-Balaaghah (110/2).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 803
 
@@ -27068,7 +25796,6 @@ book Saheeh Abu Daawood (1863).
 
 804
 
-Interactions Of The Greatest Leader
 
 Then the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, commanded people to apply the punishment of stoning, and she was stoned to death. He, sallallaahu ‘alayhi wa sallam, then prayed the funeral prayer over her (dead body).
 Thereupon ‘Umar said to him, ‘O Messenger of Allaah, do you offer the funeral prayer for her, whereas she had committed adultery?’ Thereupon he, sallallaahu ‘alayhi wa sallam, said: “She has made such repentance that if it were
@@ -27097,8 +25824,6 @@ In another narration, she, may Allaah be pleased with her, said: “The woman fr
 2 The explanation of An-Nawawi on the book of Muslim (205/11).
 3 Reported by Al-Bukhaari (4304) and Muslim (1688).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 805
 
@@ -27133,7 +25858,6 @@ him. Ahmad Shaakir ruled it as authentic while Al-Arna’oot ruled it as inauthe
 
 806
 
-Interactions Of The Greatest Leader
 
 sallallaahu ‘alayhi wa sallam, started calling people in groups of ten, and said:
 “Make a circle of ten [guests], and every person should eat from what
@@ -27167,12 +25891,9 @@ my shroud.’ Later it was indeed his shroud.’ 3
 2 The explanation of An-Nawawi on the book of Muslim (232/9).
 3 Reported by Al-Bukhaari (1277).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 807
 
-Benefits extracted from the narration:
 Ibn Hajar, may Allaah have mercy upon him, said the following:
 • The narration shows the good manners of the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, his generosity, and that he accepted gifts (in general,
 but here it is from a woman).
@@ -27196,14 +25917,11 @@ sallallaahu ‘alayhi wa sallam, stood upon it, and I and an orphan formed a
 row behind him, sallallaahu ‘alayhi wa sallam, and the old woman (i.e. his
 mother) was behind us, and the Messenger of Allaah, sallallaahu ‘alayhi wa
 sallam, led us in two Rak’ahs (units) of prayer and then went back.’2
-Benefits extracted from the narration:
-Ibn Hajar, may Allaah have mercy upon him, said:
 1 Fat-h Al-Baari (144/3).
 2 Reported by Al-Bukhaari (380) and Muslim (658).
 
 808
 
-Interactions Of The Greatest Leader
 
 • The narration is evidence that one should accept an invitation to a meal
 even if it is not a wedding banquet.
@@ -27234,8 +25952,6 @@ Allaah, sallallaahu ‘alayhi wa sallam, visited me while I was sick. He, sallal
 1 Fat-h Al-Baari (490/1).
 2 Reported by Muslim (2575).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 809
 
@@ -27269,12 +25985,10 @@ to the container, because I am fasting.” Then he, sallallaahu ‘alayhi wa sal
 2 At-Targheeb Wat-Tarheeb (148/4).
 3 Reported by An-Nasaa’i (1907). Al-Albaani ruled it as authentic in his book Saheeh An-Nasaa’i
 (1981). It was also reported by Al-Bukhaari and Muslim on the authority of Abu Hurayrah, may
-Allaah be pleased with him.
 4 At-Tamheed (255/6).
 
 810
 
-Interactions Of The Greatest Leader
 
 lam, stood in one of the corners of the house and prayed an optional prayer, and
 then he, sallallaahu ‘alayhi wa sallam, supplicated for Umm Sulaym and her
@@ -27307,8 +26021,6 @@ my head and prayed for Allaah to bless me. After that, he, sallallaahu ‘alayhi
 ‘alayhi wa sallam, said: “O Allaah, increase his wealth and offspring and prolong his life and forgive his sins.” Ibn Hajar ruled it as authentic in his book Fat-h Al-Baari (229/4).
 2 Reported by Al-Bukhaari (1846).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 811
 
@@ -27343,7 +26055,6 @@ amongst you.”
 
 812
 
-Interactions Of The Greatest Leader
 
 We said: “What should we name her?” Thereupon he, sallallaahu ‘alayhi
 wa sallam, said: “Name her Zaynab.” 1
@@ -27375,8 +26086,6 @@ growth like in plantation].” 4
 3 Reported by Al-Bukhaari (6190).
 4 Reported by Abu Daawood (4954). Al-Albaani ruled it as sound (Hasan) in his book Mishkaat
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 813
 
@@ -27415,7 +26124,6 @@ his book As-Silsilah As-Saheehah (2987).
 
 814
 
-Interactions Of The Greatest Leader
 
 ‘alayhi wa sallam, then said to Bareerah: “Why don’t you return to him?”
 1
@@ -27449,8 +26157,6 @@ is the father of your children.”
 2 Reported by Al-Bukhaari (5283).
 3 Reported by Muslim (1480).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 815
 
@@ -27487,7 +26193,6 @@ the Prophet of Allaah, sallallaahu ‘alayhi wa sallam, find no one else to ask 
 
 816
 
-Interactions Of The Greatest Leader
 
 hand for other than Julaybeeb!” Their daughter was behind the screen and
 heard their conversation. The father got up to go and inform the Prophet
@@ -27520,8 +26225,6 @@ to one another.
 1 Reported by Ahmad (11944). Shu’ayb Al-Arna’oot ruled it as authentic according to the conditions
 of Al-Bukhaari and Muslim.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 817
 
@@ -27558,7 +26261,6 @@ without her consent, then she may get the marriage revoked.” 4
 
 818
 
-Interactions Of The Greatest Leader
 
 He, sallallaahu ‘alayhi wa sallam, listened to their complaints:
 Khuwaylah bint Tha’labah, may Allaah be pleased with her narrated: “I swear
@@ -27588,8 +26290,6 @@ Al-Mujaadilah (which mean):
 husband and directs her complaint to Allaah. And Allaah
 hears your dialogue; indeed, Allaah is Hearing and Seeing.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 819
 
@@ -27627,7 +26327,6 @@ He, sallallaahu ‘alayhi wa sallam, said: “I shall help him with a date-baske
 
 820
 
-Interactions Of The Greatest Leader
 
 I said: “I shall also help him with another date-basket.”
 He, sallallaahu ‘alayhi wa sallam, said: “You have done well. Go and feed
@@ -27663,8 +26362,6 @@ book Irwaa’ Al-Ghaleel (2087).
 4 Reported by Al-Bukhaari (3811) and Muslim (4064).
 5 Reported by Muslim (3380).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 821
 
@@ -27702,7 +26399,6 @@ Al-Mufrad (863).
 
 822
 
-Interactions Of The Greatest Leader
 
 It is narrated on the authority of ‘Abdullaah ibn ‘Umar, may Allaah be
 pleased with him, “A woman was found killed in one of the battles fought by
@@ -27733,8 +26429,6 @@ verses of Allaah and wisdom [i.e. The teachings and the Sunnah of the
 2 The explanation of An-Nawawi on the book of Muslim (48/12).
 3 Reported by Al-Bukhaari (893) and Muslim (1829) on the authority of ‘Umar. Reported by An-Nasaa’i (9174) on the authority of Anas in his book As-Sunan Al-Kubra.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 823
 
@@ -27757,8 +26451,6 @@ upcoming female generation to learn from.
 Today, we are witnessing a similar era where ignorance and oppression flourish, and need to follow the example and guidance of the Prophet
 of Allaah, sallallaahu ‘alayhi wa sallam, more than ever.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 825
 
@@ -27788,7 +26480,6 @@ sent back to a feeble age].”’’ 2
 
 826
 
-Interactions Of The Greatest Leader
 
 As-Si’di, may Allaah have mercy upon him, said: “Feeble age is the worst age and
 is the one which causes the most deficiencies in man. A man’s strength decreases
@@ -27816,8 +26507,6 @@ is long and his conduct is good.” The man said: “Then who is the worst
 1 Tafseer As-Sa’di (444/1).
 2 The explanation of An-Nawawi on the book of Muslim (29/17).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 827
 
@@ -27854,7 +26543,6 @@ authentic in his book As-Silsilah As-Saheehah (3263).
 
 828
 
-Interactions Of The Greatest Leader
 
 with Allaah because he has lived longer (than youngsters) as a Muslim. Also,
 this respect is a way for the community he lives in to demonstrate his rights upon
@@ -27890,8 +26578,6 @@ glorify aged Muslims as part of their community.
 3 Reported by Abu Daawood (4943) on the authority of ‘Abdullaah Ibn ‘Amr. Al-Albaani ruled it as
 authentic in his book Saheeh Al-Jaami’ (6540).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 829
 
@@ -27928,7 +26614,6 @@ programs, according to a report by the U.S. Census Bureau.
 
 830
 
-Interactions Of The Greatest Leader
 
 The number of people older than 65 will double to 14 percent from 7
 percent of the world’s population in the next 30 years, rising to 1.4 billion
@@ -27954,8 +26639,6 @@ large increase in the numbers of elderly people worldwide.
 percentage of 8.8% of the world’s population.
 • Likewise, by the year 2000 the numbers increased to reach 590 million people.
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 831
 
@@ -27990,7 +26673,6 @@ to him.”
 
 832
 
-Interactions Of The Greatest Leader
 
 Abu Bakr, may Allaah be pleased with him, said: “O Messenger of Allaah, you
 are more deserving of having him walk to than you walking to him.”
@@ -28021,8 +26703,6 @@ Al-Albaani ruled it as sound (Hasan) in his book At-Ta’leeqaat Al-Hisaan (7164
 2 Reported by Al-Haakim Nasaa’i (17/1). Al-Albaani ruled it as authentic in his book As-Silsilah
 As-Saheehah (216).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 833
 
@@ -28059,7 +26739,6 @@ related narrations.
 
 834
 
-Interactions Of The Greatest Leader
 
 dressed old men who participated in the battle in any form, as was the case in this
 Dardeer. It is permissible to kill such old people, even if they were not physical
@@ -28092,8 +26771,6 @@ should speak.” So he kept quiet, and his companions (Muhayyisah
 As-Silsilah As-Saheehah (701).
 2 Sharh Ma’aani Al-Aathaar (224/3).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 835
 
@@ -28131,7 +26808,6 @@ Ibn Battaal, may Allaah have mercy upon him, said:
 
 836
 
-Interactions Of The Greatest Leader
 
 “We extract from this narration that one should give preference
 to the elder when offering a Siwaak. All other matters should be
@@ -28156,15 +26832,12 @@ and on his left were elderly people. He, sallallaahu ‘alayhi wa sallam, said t
 this drink to those on my left?” The boy said: ‘O Messenger of
 Allaah, I would certainly not give preference to anyone in anything
 that might come to me from you.’ So he, sallallaahu ‘alayhi wa sallam, handed over the rest of the drink to him.” 3
-An-Nawawi, may Allaah have mercy upon him, said:
 “He, sallallaahu ‘alayhi wa sallam, did what he did with the boy
 as a way of consoling the elders to show them how much he cares for
 them and that they take precedence and are honored unless the mat1 The explanation of Ibn Battaal on the book of Al-Bukhaari (364/1).
 2 Fat-h Al-Baari (357/1).
 3 Reported by Al-Bukhaari (2319) Muslim (2030).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 837
 
@@ -28200,7 +26873,6 @@ of riding safely (on the journey to Hajj). May I perform Hajj on his
 
 838
 
-Interactions Of The Greatest Leader
 
 behalf?’ He, sallallaahu ‘alayhi wa sallam, said: “Yes.” It was during
 the Farewell Pilgrimage.”1
@@ -28230,8 +26902,6 @@ offering prayers alone, you may pray as long as you like.” 3
 Irwaa’ Al-Ghaleel (2087).
 3 Reported by Al-Bukhaari (671) Muslim (468).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 839
 
@@ -28243,7 +26913,6 @@ therein to remember, and the warner had come to you? So taste [the punishment], 
 Ibn Katheer, may Allaah have mercy upon him, said: “Ibn ‘Abbaas, may Allaah be
 pleased with him, said: “The warner is grey hair” 1
 
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “A person who lives until he
 attains the age of sixty years has no excuse with Allaah.” 2
 Ibn Hajar, may Allaah have mercy upon him, said: “The term, “has no excuse
@@ -28269,9 +26938,7 @@ this transient life:
 
 840
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “The heart of an old person
 feels young for the love of two things; love for long life and wealth.” 1
 The narration of Al-Bukhaari, reads: “The heart of an elderly person
@@ -28305,8 +26972,6 @@ likewise stronger.” 5
 4 Tuhfat Al-Ahwathi (520/6).
 5 Fat-h Al-Baari (241/11).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 841
 
@@ -28333,7 +26998,6 @@ Another narration reads: “Don’t pluck grey hair. No Muslim gets a
 grey hair except that it will be light for him on the Day of Resurrection.”
 Another narration adds: “… but Allaah will grant him in return one
 reward and wipe one sin.”4
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Don’t pluck grey hair, for it
 will be light on the Day of resurrection. No Muslim gets a grey hair but
 1 Reported by Muslim (107).
@@ -28344,7 +27008,6 @@ will be light on the Day of resurrection. No Muslim gets a grey hair but
 
 842
 
-Interactions Of The Greatest Leader
 
 Allaah will grant him in return one reward, wipe one sin, and raise his
 rank one level.”1
@@ -28359,7 +27022,6 @@ An-Nawawi, may Allaah have mercy upon him, said: “It is recommended to dye
 grey hair, whether a man or a woman, using a yellow or reddish (brown) color. It
 is prohibited to dye using a black color because the Prophet of Allaah, sallallaahu
 ‘alayhi wa sallam, said: “Avoid [do not use] black dye.”4
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Jews and Christians do not
 dye their hair, so act differently from them.”5
 Ibn Hajar, may Allaah have mercy upon him, said: “This refers to dyeing the grey
@@ -28375,8 +27037,6 @@ hair.”6
 5 Reported by Al-Bukhaari (3462) Muslim (2103).
 6 Fat-h Al-Baari (499/6).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 843
 
@@ -28407,7 +27067,6 @@ baby without someone to suckle him.” A man from the Ansaar stood
 
 844
 
-Interactions Of The Greatest Leader
 
 up and said: “I will take care of providing someone to suckle him, O Prophet of
 Allaah.”1
@@ -28441,8 +27100,6 @@ baby started moving his tongue to taste what was put in his mouth. The
 1 Reported by Muslim (1695).
 2 Reported by Al-Bukhaari (3619).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 845
 
@@ -28482,7 +27139,6 @@ recommended for one to name his boys after Prophets, and that the saying of the
 
 846
 
-Interactions Of The Greatest Leader
 
 Prophet of Allaah, sallallaahu ‘alayhi wa sallam: “The dearest of names to Allaah are ‘Abdullaah and ‘Abdur-Rahmaan” does not prevent one from using
 other names, and that is why he named the son of Abu Usayd as Al-Munthir.”1
@@ -28516,8 +27172,6 @@ the baby.
 4 Reported by Al-Bukhaari (223) Muslim (287).
 5 Fat-h Al-Baari (434/10).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 847
 
@@ -28555,7 +27209,6 @@ book As-Silsilah As-Saheehah (2141).
 
 848
 
-Interactions Of The Greatest Leader
 
 allow children to attend circles of knowledge and that it is permissible if a leader
 visits his followers in their homes and plays around with their children.” 1
@@ -28587,8 +27240,6 @@ family of Al-’Abbaas (‘Abdullaah, ‘Ubaydullaah and others) stand in a
 4 Reported by Abu Daawood (5002) and At-Tirmithi (1992). Al-Albaani ruled it as authentic in his
 book Saheeh Al-Jaami’ (7909).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 849
 
@@ -28628,7 +27279,6 @@ ruled it as authentic in his book At-Ta’leeqaat Al-Hisaan (460).
 
 850
 
-Interactions Of The Greatest Leader
 
 ‘Abdullaah ibn Hishaam, may Allaah be pleased with him, narrated: “My
 mother, Zaynab bint Humayd, took me to the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, and said: ‘O Messenger of Allaah, take the pledge
@@ -28660,8 +27310,6 @@ more so in the case of children. This is why the Prophet of Allaah, sallallaahu 
 3 The explanation of An-Nawawi on the book of Muslim (85/15).
 4 Reported by Al-Bukhaari (5998) Muslim (2317).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 851
 
@@ -28694,7 +27342,6 @@ had written for you. The pens have been lifted and the pages have been dried [i.
 
 852
 
-Interactions Of The Greatest Leader
 
 dislike, there is a lot of good, and that victory comes with
 patience, relief with affliction, and hardship with ease.’” 1
@@ -28727,8 +27374,6 @@ Wat-Tarheeb (1608).
 4 Tuhfat Al-Ahwathi (397/7).
 5 Reported by Al-Bukhaari (5376) Muslim (2022).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 853
 
@@ -28764,7 +27409,6 @@ he, sallallaahu ‘alayhi wa sallam, would call them by their nickname, as he
 
 854
 
-Interactions Of The Greatest Leader
 
 said to the young child: “O Abu ‘Umayr.” How does this compare with
 the callous, harsh treatment that so many young children receive today?
@@ -28800,8 +27444,6 @@ were playing in the streets.
 2 Reported by Al-Bukhaari (6289).
 3 Fat-h Al-Baari (82/11).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 855
 
@@ -28836,7 +27478,6 @@ truthful with them and not lying to them:
 
 856
 
-Interactions Of The Greatest Leader
 
 It was reported from ‘Abdullaah ibn ‘Aamir, may Allaah be pleased with him,
 that he said: “My mother called me one day when the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, was sitting in our house. She said: ‘Come
@@ -28865,8 +27506,6 @@ translate the sublime Islaamic code of ethics for treating the most vulnerable s
 1 Reported by Abu Daawood (4991). Al-Albaani ruled it as authentic.
 2 ‘Awn Al-Ma’bood (229/13).
 
-Chapter Five: How the Prophet of Allaah, sallallaahu ‘alayhi wa sallam,
-dealt with the general masses
 
 857
 
@@ -28884,7 +27523,6 @@ activities.
 
 Chapter Six
 How the Prophet of Allaah,
-sallallaahu ‘alayhi wa sallam,
 dealt with non-Human creation
 • Section One: How the Prophet of Allaah, sallallaahu
 ‘alayhi wa sallam, dealt with Jinn.
@@ -28919,7 +27557,6 @@ Muhammad, sallallaahu ‘alayhi wa sallam, reminded us, a true believer in
 Allaah demonstrates his or her belief by respecting the entire creation and
 utilizing them in a responsible manner.
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 863
 
@@ -28950,7 +27587,6 @@ sallallaahu ‘alayhi wa sallam, the night he spoke to the Jinn?’
 
 864
 
-Interactions Of The Greatest Leader
 
 He, may Allaah be pleased with him, said: “No, but we were in the company of
 the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, one night and he disappeared, so we searched for him in the valleys and the hills. We thought
@@ -28979,7 +27615,6 @@ recited Chapter Ar-Rahmaan [Qur’aan 55] from the beginning to end, and
 the Companions were silent. Thereupon The Prophet of Allaah, sallallaahu
 1 Reported by Muslim (450).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 865
 
@@ -29015,7 +27650,6 @@ As-Silsilah As-Saheehah (2150). However, there are other scholars who ruled it t
 
 866
 
-Interactions Of The Greatest Leader
 
 pronounce a warning to it for three days, and if it appears before you after
 that, then kill it for that is a devil.”1
@@ -29045,7 +27679,6 @@ of sport for the children of Madeenah.”3
 2 Majmoo’ Al-Fataawa of Ibn Taymiyyah (44/19).
 3 Reported by Muslim (542).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 867
 
@@ -29076,7 +27709,6 @@ Allaah, sallallaahu ‘alayhi wa sallam. Its name was Adh-Dhars when it was
 
 868
 
-Interactions Of The Greatest Leader
 
 with the Bedouin from whom the Prophet of Allaah, sallallaahu ‘alayhi wa
 sallam, bought it. It was white-footed except for its right foot, and it was
@@ -29107,7 +27739,6 @@ It is also mentioned that Sa’d ibn ‘Ubaadah, may Allaah be pleased with him,
 gave a donkey to Prophet Muhammad, sallallaahu ‘alayhi wa sallam, as a
 gift and he, sallallaahu ‘alayhi wa sallam, used to ride it.
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 869
 
@@ -29143,7 +27774,6 @@ book Saheeh Abu Daawood (1535).
 
 870
 
-Interactions Of The Greatest Leader
 
 hu ‘alayhi wa sallam, also had seven ewes dedicated to charity, grazed by
 Umm Ayman, may Allaah be pleased with her.1
@@ -29177,7 +27807,6 @@ then water is poured over it. Once it is cooked, flour is sprinkled over it. If 
 ingredients, then it is called ‘Aseedah.
 3 Reported by Abu Daawood (142). Al-Albaani ruled it as authentic.
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 871
 
@@ -29216,9 +27845,7 @@ As-Saheehah (3187).
 
 872
 
-Interactions Of The Greatest Leader
 
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, used to dislike the Shikaal horse. 1A
 Shikaal horse is the type that has white spots on its right leg and left arm,
 or its left leg and right arm.
@@ -29252,7 +27879,6 @@ the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, as saying: “It is no
 4 Reported by Abu Daawood (76). Al-Albaani ruled it as authentic in his book Saheeh Abu Daawood
 (69).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 873
 
@@ -29285,7 +27911,6 @@ camel (due to hunger) and said: “Fear Allaah regarding these dumb ani1 Reporte
 
 874
 
-Interactions Of The Greatest Leader
 
 mals. Ride them when they are in good condition and eat them when they
 are in good condition.”1
@@ -29300,7 +27925,6 @@ to ride them. Do not use them as chairs to sit on whilst on the streets or
 in the markets. Perhaps a ridden animal would be better [in the scale of
 Allaah] than the one riding it, as it mentions Allaah more frequently than
 he does.”3
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Prophet of
 Allaah, sallallaahu ‘alayhi wa sallam, said: “Beware of using the backs of
 your animals as pulpits [making them stand for long periods only to talk
 or bargain in markets whilst on their backs]. Allaah has subjected them
@@ -29315,12 +27939,10 @@ Allaah be pleased with her, mounted upon a wild camel and she began subduing
 3 Reported by Ahmad (15219). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (908).
 4 Reported by Abu Daawood (2567). Al-Albaani ruled it as authentic in his book As-Silsilah As-Saheehah (22).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 875
 
 it in a rough manner. Thereupon the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said to her: “You should show kindness.” 1
-Abu Hurayrah, may Allaah be pleased with him, reported that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “When you travel [through
 a land] where there is plenty of vegetation, you should [go slow and]
 give the camels a chance to enjoy the benefit of the earth [i.e. eat from it].
@@ -29352,7 +27974,6 @@ eat the vermin of the earth.”4
 
 876
 
-Interactions Of The Greatest Leader
 
 An-Nawawi, may Allaah have mercy upon him, said: “The narration is evidence
 that it is prohibited to kill cats and confine them without offering them food or
@@ -29360,7 +27981,6 @@ drink.”1
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, said that kindness
 to living creatures is a means of entering Paradise and obtaining the
 forgiveness of Allaah:
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “While a man was walking on
 his way he became extremely thirsty. He found a well and went down
 into it to drink water. Upon leaving it, he saw a dog that was panting out
@@ -29380,13 +28000,11 @@ animals that we are not commanded to kill. It is only these animals that one
 would get rewarded for giving drink. Feeding animals and all acts of kindness are
 included by this narration. This applies whether the animal belongs to the person
 or to someone else or a free animal that does not belong to anyone.”3
-Abu Hurayrah, may Allaah be pleased with him, narrated that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “Once a dog was going around
 1 The explanation of An-Nawawi for the book of Muslim (240/14).
 2 Reported by Al-Bukhaari (2363) and Muslim (2244).
 3 The explanation of An-Nawawi for the book of Muslim (241/14).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 877
 
@@ -29424,7 +28042,6 @@ one is harmful and thus it is permissible to deter its harm (by killing it) whil
 
 878
 
-Interactions Of The Greatest Leader
 
 other type of ants is not (these usually have longer legs), and it is therefore not
 permissible to kill it”1
@@ -29459,7 +28076,6 @@ while it is still alive).”5
 4 Reported by Al-Bukhaari (5515) and Muslim (1958).
 5 Reported by An-Nasaa’i (4442). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (5113).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 879
 
@@ -29500,7 +28116,6 @@ consensus of scholars based on this narration. It is prohibited for humans since
 
 880
 
-Interactions Of The Greatest Leader
 
 disgraces him and since there is no need for him to have done to him/her, and thus
 it is not permissible to torture the person by having it done to him/her. However,
@@ -29531,7 +28146,6 @@ there is a benefit that is sought, like making its meat better tasting.”6
 5 Reported by Ahmad (4755). Al-Albaani ruled it as authentic in his book Saheeh Al-Jaami’ (6956).
 6 Al-Qurtubi in his book Al-Mufhim Lima Ashkal Min Talkhees Kitaab Muslim (127/12).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 881
 
@@ -29568,7 +28182,6 @@ and belief would be removed from their hearts.4
 
 882
 
-Interactions Of The Greatest Leader
 
 The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, used to command
 killing harmful animals:
@@ -29584,7 +28197,6 @@ beasts.”2
 Sa’d ibn Abu Waqqaas, may Allaah be pleased with him, reported that the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, commanded that the gecko
 be killed and The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, called
 them harmful creatures.3
-Abu Hurayrah, may Allaah be pleased with him, reported that the Messenger
 of Allaah, sallallaahu ‘alayhi wa sallam, said: “He who kills a gecko [a type
 of lizard] with the first stroke for him is such and such a reward, and he
 who kills it with a second stroke for him is such and such reward less than
@@ -29601,7 +28213,6 @@ scholars agree that a gecko is a harmful creature, and that the Messenger of Al1
 4 Reported by Muslim (2240).
 5 Reported by Al-Bukhaari (3359) and Muslim (2237).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 883
 
@@ -29638,7 +28249,6 @@ Saheeh Al-Jaami’ (6261).
 
 884
 
-Interactions Of The Greatest Leader
 
 thus wakes people for the optional night prayer; therefore, it deserves to
 be praised and not reviled since it helps people in their acts of worship
@@ -29671,7 +28281,6 @@ The Prophet of Allaah, sallallaahu ‘alayhi wa sallam, only forbade it from rem
 2 Reported by Muslim (2595).
 3 Reported by Muslim (2596).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 885
 
@@ -29707,7 +28316,6 @@ down to slaughter it, and started sharpening his blade. Thereupon the
 
 886
 
-Interactions Of The Greatest Leader
 
 Messenger of Allaah, sallallaahu ‘alayhi wa sallam, said: “Do you want to kill
 it twice? You should have sharpened your blade before laying it down.”1
@@ -29741,7 +28349,6 @@ amazing thing! A wolf sitting on its tail speaks to me in the language of
 book Saheeh Abu Daawood (2311).
 3 ‘Awn Al-Ma’bood (167/7).
 
-Chapter Six: How the Prophet of Allaah, dealt with non-Human creation
 
 887
 
@@ -29778,7 +28385,6 @@ army. As he was walking, he encountered a lion, so he said to it, ‘I am the
 
 888
 
-Interactions Of The Greatest Leader
 
 servant of the Messenger of Allaah, sallallaahu ‘alayhi wa sallam, and such
 and such happened to me’. The lion came close to him until he stood right

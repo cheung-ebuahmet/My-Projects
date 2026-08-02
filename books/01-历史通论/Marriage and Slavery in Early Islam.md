@@ -1,7 +1,5 @@
 # Marriage and Slavery in Early Islam
 
-> 来源: Marriage and Slavery in Early Islam.pdf
-
 MARRIAGE AND SLAVERY
 IN EARLY ISLAM
 
@@ -1071,7 +1069,6 @@ other.
 
 q
 
-Transacting Marriage
 
 I N SEVENTH- CENTURY Arabia, a daughter was born to a Muslim named
 al-Musayyab ibn Najaba. He hastened to visit his cousin Quraya bint
@@ -1095,7 +1092,6 @@ appears in the Kitab al-Hujja, a ninth-century work whose full title translates 
 
 30
 
-Transacting Marriage
 
 with some debate, to Muhammad al-Shaybani, one of the two main disciples of eighth-century Iraqi jurist Abu Hanifa. The Hujja defends Abu
 Hanifa’s views against his detractors, “the people of Medina,” a group
@@ -1129,7 +1125,6 @@ and also their differences in method and approach. I argue for the signiﬁcance
 doctrines and for the role of analogy— especially the linked analogies
 between wife and slave, and marriage and purchase— in shaping jurisprudence on marriage.
 
-Transacting Marriage
 
 31
 
@@ -1168,7 +1163,6 @@ they were subject to paternal compulsion; after it, they were not. As
 
 32
 
-Transacting Marriage
 
 minors, they could not contract their own marriages; as majors, they
 could. (Bulugh, majority, was usually constituted by puberty, normally
@@ -1195,7 +1189,6 @@ The intermediate categories— daughters who were either minors or virgins but n
 most signiﬁcant debate surrounding consent. Malik and Shaﬁi afﬁ rm
 the father’s right to compel her, while Abu Hanifa and his disciples reject it forcefully. I will turn to their rationales below.
 
-Transacting Marriage
 
 33
 
@@ -1230,7 +1223,6 @@ more attention. One hadith text takes center stage in the jurists’ discussions
 
 34
 
-Transacting Marriage
 
 her permission for herself, and the non-virgin has more right to herself
 (ahaqqu bi nafsiha) than her marriage guardian.” In exploring the jurists’ use of this prophetic declaration as a proof text, it bears repeating
@@ -1260,7 +1252,6 @@ proof of correct practice. Rather than viewing the acts of ordinary Muslims as a
 down from many to many, is more reliably authentic than any individual hadith could be.15 Thus, Malik feels no need to reconcile these
 actions with the apparent sense of the Prophet’s declaration that a virgin’s permission must be sought. The Mudawwana, by contrast, prefaces
 
-Transacting Marriage
 
 35
 
@@ -1295,7 +1286,6 @@ explicitly engaging with the Hanafi view on majority, but insisting that
 
 36
 
-Transacting Marriage
 
 the relevant categories are those of the Prophet, who distinguished between the virgin and the thayyib rather than between the minor and
 the baligh. For him, there was no real difference between a minor and a
@@ -1326,7 +1316,6 @@ demonstrates juristic comfort with the involvement of male kin.
 Like Shaﬁi’s view in the Ikhtilaf, the Hanafi stance on noncompulsion of females in their majority appears already in tension with existing procompulsion views, primarily those of Malikis.28 Once a male or
 female child matured, according to Abu Hanifa, the father had to ob-
 
-Transacting Marriage
 
 37
 
@@ -1362,7 +1351,6 @@ broader phenomenon that encompassed other marriage guardians and
 
 38
 
-Transacting Marriage
 
 slave owners. Malik explicitly likens a father’s power to that of a master: “No one may compel anyone to marry except the father in the case
 of his virgin daughter and his minor son, and [the master] in the case of
@@ -1393,7 +1381,6 @@ citizens or those who were granted “ius conubii, the right to contract a
 valid Roman marriage with Roman citizens.”38 For the Muslim jurists,
 procreation was an aim of marriage, to be sure, but neither licit sex nor
 
-Transacting Marriage
 
 39
 
@@ -1426,7 +1413,6 @@ offspring she bore to her husband. Could an adult male slave be compelled to mar
 
 40
 
-Transacting Marriage
 
 destiny if he were free, stood in tension with his status as a slave. Malik
 and his followers allowed an owner to marry off his male slave without
@@ -1458,7 +1444,6 @@ previously married. In contrast to free women, female slaves’ virginity is
 seldom discussed in connection with their marriages, and where it does
 appear, its irrelevance is clear: “He may marry off his female slave without her permission whether she is a virgin or a non-virgin.”46
 
-Transacting Marriage
 
 41
 
@@ -1494,7 +1479,6 @@ Abu Hanifa interprets the prophetic grammatical imperatives to include
 
 42
 
-Transacting Marriage
 
 the actual conclusion of the marriage contract.54 (“Ja®ala ilayha ®uqdat
 al-nikah.”) Later Hanafi texts point to the use of the active verb form in
@@ -1529,7 +1513,6 @@ guardian.61
 Women’s capacity to conclude marriage contracts divided the Hanafi
 authorities. The Kitab al-Hujja defends Abu Hanifa’s view without dissent; in the Muwatta© Shaybani, though, Shaybani reports Abu Hani-
 
-Transacting Marriage
 
 43
 
@@ -1568,7 +1551,6 @@ was for men, except that Maliki jurists granted a husband the right to
 
 44
 
-Transacting Marriage
 
 oversee certain of his wife’s transactions.69 Cristina de la Puente argues
 that, in addition to the requirement for the husband’s “express consent”
@@ -1604,7 +1586,6 @@ positions, Shaﬁi declares that a female slave must be married off by her
 female owner’s own marriage guardian. This effectively renders the
 slave woman’s sexuality an extension of her owner’s sexual capacity; it
 
-Transacting Marriage
 
 45
 
@@ -1641,7 +1622,6 @@ her possible role in any transfer of sexual rights. (Interestingly, she
 
 46
 
-Transacting Marriage
 
 could sell her unmarried female slave to a man, and sexual rights
 would belong to the new master. One explanation for this potential
@@ -1675,7 +1655,6 @@ thus has an interest in seeing it properly transferred to a ﬁt spouse.81
 He must prevent her from “marrying someone whose lineage (nasab) is
 deﬁcient in comparison to her lineage.”82 Malik’s half-measure in the
 
-Transacting Marriage
 
 47
 
@@ -1711,7 +1690,6 @@ a parent can forbid a child from performing acts of worship: discussion
 
 48
 
-Transacting Marriage
 
 centers on the parental obligation to teach children appropriately so
 that they are both capable of and willing to fulﬁ ll their obligations, especially prayer, once they reach the appropriate age.
@@ -1739,7 +1717,6 @@ object. Despite abundant historical and literary evidence for the sexual use of 
 indeed all women— through granting to them uniquely masculine
 prerogatives.
 
-Transacting Marriage
 
 49
 
@@ -1774,7 +1751,6 @@ no parallel here to the “acquisition” of a woman through intercourse
 
 50
 
-Transacting Marriage
 
 found in rabbinic literature; though a claim that the parties thought
 they were married can divert the punishment for illicit sex, such a claim
@@ -1806,7 +1782,6 @@ slave, whereas in marriage, the husband purchases his wife’s productive part.�
 dispose”— that is, her control over property— distinguishes the transactions even as it highlights the sexual character of the ownership conveyed through marriage. More obvious even than parallels between
 marriage and purchase of a slave are jurists’ frequent analogies be-
 
-Transacting Marriage
 
 51
 
@@ -1846,7 +1821,6 @@ rabbinic literature.”99
 
 52
 
-Transacting Marriage
 
 Although a series of overlapping metaphorical associations between women, slaves, and (other) property characterizes Muslim legal
 discourse as well, the central presence of enslaved women alters the
@@ -1876,7 +1850,6 @@ discussion of various modes of travel, that “a boat is like a house.”101
 That is, the forward motion of the boat does not constitute a deliberate
 progression on the woman’s part that implies a rejection of her choice.
 
-Transacting Marriage
 
 53
 
@@ -1910,7 +1883,6 @@ set a higher dower. To justify his view, he makes a comparison to the
 
 54
 
-Transacting Marriage
 
 purchase of a female slave. “Can you not see,” he presses, “that if a man
 ordered [another] man to purchase so-and-so’s slave girl for him for
@@ -1943,7 +1915,6 @@ marriage were eventually consummated; if they parted before consummation with no
 “consolation” gift.)106 In direct contrast, in the case of a sale, the lack of
 a speciﬁed price caused the transaction to be canceled. In characterizing marriage as not a sale, Yves Linant de Bellefonds seizes on Shaﬁi’s
 
-Transacting Marriage
 
 55
 
@@ -1978,7 +1949,6 @@ there is an irremediable loss that occurs through consummation, for
 
 56
 
-Transacting Marriage
 
 which the minimum dower compensates; however, the lack of differentiation between virgin and non-virgin brides means that this loss cannot be deﬁ ned as the loss of an intact hymen.111
 Against Malik and Abu Hanifa, Shaﬁi opposed a minimum dower.
@@ -2010,7 +1980,6 @@ outlets.
 Exchange marriage (shighar), an irregular type of marriage specifying a “nondower,” conﬁ rms a dower’s legitimating function with regard to sex at the same time as it shows the jurists’ concern with ensuring brides’ property rights over and above their bodily rights. Apparently
 an accepted pre-Islamic practice, exchange marriage consisted of two
 
-Transacting Marriage
 
 57
 
@@ -2049,7 +2018,6 @@ and ﬁnancial integrity. Exchange marriage involved the nonconsensual
 
 58
 
-Transacting Marriage
 
 waiver of the bride’s ﬁnancial rights. However, even guardians with the
 right to marry women off without their consent did not necessarily have
@@ -2086,7 +2054,6 @@ goods were discovered to be unlawful, turned out to be defective, or
 were damaged before the handover, two remedies were possible. The
 husband could either pay the wife’s fair dower or give her the goods’
 
-Transacting Marriage
 
 59
 
@@ -2123,7 +2090,6 @@ before a bride took possession of them, reveals diversity of opinion,
 
 60
 
-Transacting Marriage
 
 change, and legal development. Dower, like any other salable good, had
 to consist of “ritually and legally clean” items with “legal value.”125 Salable goods were either fungible (dayn), such as cash or produce, or
@@ -2154,7 +2120,6 @@ argues that the wife should get her own fair dower: “Rather than
 claiming the thing [i.e., the dower] that she came to own by her bud®,
 she claims the bud®’s price (thaman al-bud®).”
 
-Transacting Marriage
 
 61
 
@@ -2190,7 +2155,6 @@ authority or control has irrevocably taken effect with the contract, even
 
 62
 
-Transacting Marriage
 
 before consummation. (This is also the case for Malik, despite the fact
 that in other cases he admits some signiﬁcance to consummation.)
@@ -2221,7 +2185,6 @@ around eighteen in most nations with a Muslim majority, though a
 slight disparity between boys and girls is often present. Even with such
 reforms, earlier marriage is often possible with parental consent and
 
-Transacting Marriage
 
 63
 
@@ -2255,7 +2218,6 @@ unequal partners”140 —he situates enslavement and the “slaver-enslaved
 
 64
 
-Transacting Marriage
 
 relationship” within existing social forms. The family and the household
 are both hierarchically constituted relationships based on unequal but
@@ -2270,7 +2232,6 @@ chapters.
 
 q
 
-Maintaining Relations
 
 A HM A D B . Umar al-Khassaf (d. 261/874), an early Hanafi, devoted an
 entire treatise to the subject of maintenance.1 His Kitab al-Nafaqat
@@ -2294,7 +2255,6 @@ followers devoted more attention to the husband’s right to take pleasure with 
 
 66
 
-Maintaining Relations
 
 The maintenance obligation—which broadly included food, clothing, and lodging—was part of a scheme of interdependent spousal
 claims. These included inheritance, dower, sex, and companionship.
@@ -2326,7 +2286,6 @@ on mobility or sexual rights? This distinction is even more clearly visible in t
 maintenance rights to her sexual availability, while Abu Hanifa and his
 disciples grant her support in recognition of the continuity of restric-
 
-Maintaining Relations
 
 67
 
@@ -2361,7 +2320,6 @@ had over a free wife since her master controlled her living arrangements
 
 68
 
-Maintaining Relations
 
 and determined when she could leave the premises. Control of a wife’s
 domicile was an expected element of marriage to a free woman; contractual stipulations whereby a wife could determine her own domicile
@@ -2397,7 +2355,6 @@ her and I will not lodge her with you in your house”; or if the husband
 comes [to her master] and says, “I want to have intercourse with her
 immediately,” and her master says, “She is occupied (mashghula) now
 
-Maintaining Relations
 
 69
 
@@ -2432,7 +2389,6 @@ interpersonal relationships but this excerpt from the Mudawwana attempts to medi
 
 70
 
-Maintaining Relations
 
 so, it prioritizes male rights to sex. The wife’s master may not prevent the
 husband from having sex with his wife, but the husband is not entitled to
@@ -2470,7 +2426,6 @@ Notably, for Malik, a slave’s husband had to support her, even if
 she lodged with her master; the right to have sex with her made him
 responsible for maintaining her. The link between lodging and support
 
-Maintaining Relations
 
 71
 
@@ -2507,7 +2462,6 @@ obligated him to support her, in Malik’s view.
 
 72
 
-Maintaining Relations
 
 Abu Hanifa linked the duty to maintain with the right to have her
 dwell with and hence be continuously available to him.20 Only a husband who controlled his wife’s domicile and mobility was obliged to support her. The Hanafi jurists stressed a wife’s physical presence with her
@@ -2538,7 +2492,6 @@ concubine alongside her . . . the marriage is binding, and the stipulation is vo
 Shaﬁi voids these stipulations because they interfere with a scripturally sanctioned division of marital rights and duties that cannot be
 modiﬁed to suit the whims of individuals. These stipulations, according
 
-Maintaining Relations
 
 73
 
@@ -2576,7 +2529,6 @@ dower, or a portion of his time— though she might waive them later.28
 
 74
 
-Maintaining Relations
 
 They also could not be monetized: a wife could not give up her claim to
 a share of her husband’s time for a larger dower, increased maintenance,
@@ -2611,7 +2563,6 @@ there is an oath of divorce or manumission attached to it.” But if he
 does make such an oath, keeping his word “is obliged and required of
 him.”31 Should he breach the oath, divorce would result automatically.
 
-Maintaining Relations
 
 75
 
@@ -2646,7 +2597,6 @@ in the Kitab al-Nafaqat distinguishes a wife’s duties from those of a servant 
 
 76
 
-Maintaining Relations
 
 a female slave (mamluka) that she herself owns, one lent by her father,
 or a free servant engaged by the husband. Even if she does not have a
@@ -2681,7 +2631,6 @@ motion her husband’s obligation to maintain her. In the Mudawwana,
 Sahnun asks Ibn al-Qasim whether the maintenance obligation commences with the contracting of a marriage or with its consummation.
 His answer? Neither. According to Malik, the wife’s availability was the
 
-Maintaining Relations
 
 77
 
@@ -2716,7 +2665,6 @@ rise to them was the case where the wife had reached majority while
 
 78
 
-Maintaining Relations
 
 the husband remained a minor. In the Mudawwana’s discussion of this
 possibility—which presents the wife herself and not her kin issuing the
@@ -2749,7 +2697,6 @@ if he traveled, got imprisoned, or found himself required to abstain for
 any other reason— his wife retained her claim. Two thoroughly improbable scenarios illustrate the jurists’ logic. If a man had sex with his
 wife’s sister by mistake, she would be obliged to observe a waiting period
 
-Maintaining Relations
 
 79
 
@@ -2786,7 +2733,6 @@ roles. The ﬁ rst scriptural use of nushuz is generally taken to refer to
 
 80
 
-Maintaining Relations
 
 wives, though the verse speciﬁes only “women.” My translation here
 reﬂects the usual understanding of the verse’s meaning, to the extent
@@ -2819,7 +2765,6 @@ motive for divorce.55
 Though the term nushuz rarely appears in these works, the concepts it encompasses are of vital importance to jurists’ vision of spousal
 claims. While exegetes focus on the speciﬁc measures that the Quran
 
-Maintaining Relations
 
 81
 
@@ -2855,7 +2800,6 @@ her claim to support. Absence from the conjugal home— including unauthorized d
 
 82
 
-Maintaining Relations
 
 maintain his wife continued whether she was sick or well, even if menstruation, illness, or a defect prevented actual intercourse, so long as
 she allowed him other intimacies.60 A wife who became ill or whose
@@ -2885,7 +2829,6 @@ refusal differently from their counterparts in other juristic traditions.
 Nushuz becomes neither sexual refusal nor willful recalcitrance but
 rather the wife’s unauthorized departure from the marital home: “I
 
-Maintaining Relations
 
 83
 
@@ -2920,7 +2863,6 @@ or refusal, divorce also suspended or ended the sexual relationship between two 
 
 84
 
-Maintaining Relations
 
 whether the spouses were free or enslaved. Substantial differences between Hanafi doctrines, which granted all divorcees the right of support, and Maliki and Shaﬁi doctrines, which restricted support to pregnant women or those divorced revocably, illustrate again the importance
 of human interpretive choices in the development of legal rules. These
@@ -2947,7 +2889,6 @@ back, all agreed, he had to support and lodge her, pregnant or not, during her w
 divorce was irrevocable, however, Malik and Shaﬁi held a husband responsible for maintaining a wife only if she was pregnant. Their basic
 agreement was predicated on competing rationales, though, which
 
-Maintaining Relations
 
 85
 
@@ -2980,7 +2921,6 @@ The talaq introduced no real change before the end of the waiting
 
 86
 
-Maintaining Relations
 
 period. It did not matter “whether his wife is pregnant or not” because
 she was due maintenance for the same reasons she had a claim to it
@@ -3008,7 +2948,6 @@ it was interpreted by most to limit maintenance to pregnant women:
 well-known traditions about Fatima bint Qays, an irrevocably divorced
 woman to whom the Prophet reportedly denied both lodging and main-
 
-Maintaining Relations
 
 87
 
@@ -3044,7 +2983,6 @@ slave.92 However, if she was afterward manumitted while pregnant,
 
 88
 
-Maintaining Relations
 
 the child in her womb also became free. The man then became the free
 father of a free (though not yet born) child and had to maintain the
@@ -3074,7 +3012,6 @@ mother during her pregnancy because no valid marriage tie existed. An
 example clariﬁes the matter: if a woman married (unlawfully) during
 her waiting period from another husband, the later marriage was invalid and therefore dissolved. Pregnancy in this case might be attributed to either “husband.” If the child was linked to the ﬁrst husband,
 
-Maintaining Relations
 
 89
 
@@ -3111,7 +3048,6 @@ be charged to investigate the matter and grant the husband an appropriate delay 
 
 90
 
-Maintaining Relations
 
 authorities were reluctant to proclaim a universal standard; every
 man’s situation was different.99 After the husband had been given ample
@@ -3141,7 +3077,6 @@ a man to a woman for a dower of what the groom could teach her from
 the Quran. This anecdote appears frequently in legal discussions of
 dower as an exception to standard rules. Here, Shaybani ingeniously
 
-Maintaining Relations
 
 91
 
@@ -3175,7 +3110,6 @@ where Shaﬁi allowed her to seek judicial divorce: when the husband’s
 
 92
 
-Maintaining Relations
 
 impotence prevented consummation of the marriage and when the
 husband proved unable to pay dower in an unconsummated marriage.
@@ -3208,7 +3142,6 @@ soldiers to either support their wives or divorce them. The citation of
 Umar’s view here serves a dual function. First, it serves as evidence,
 acceptable in instances for which there is no explicit scriptural text, for
 
-Maintaining Relations
 
 93
 
@@ -3244,7 +3177,6 @@ being so restricted as to be essentially meaningless.
 
 94
 
-Maintaining Relations
 
 Conclusion
 For the Muslim jurists, sex is a husband’s right and support is a wife’s
@@ -3275,7 +3207,6 @@ of sexual relations, from the basic structures of marriage, to the expectations 
 sexual interactions outside the marital bond.”115 My point in discussing
 “the marital debt rabbinic style”116 is not to set it up as an ideal against
 
-Maintaining Relations
 
 95
 
@@ -3312,7 +3243,6 @@ return), one of a man’s marital duties concerned his behavior rather
 
 96
 
-Maintaining Relations
 
 than his expenditures: he was required to apportion his time among
 his wives, if he had more than one. The wife’s claim to regular visits
@@ -3324,7 +3254,6 @@ The next chapter will explore how the jurists’ discussions of apportionment (q
 
 q
 
-Claiming Companionship
 
 R AFI B. K HADIJ had been married to one woman for many years when
 he “married a young lady and favored the young one over” his older
@@ -3350,7 +3279,6 @@ the obligations of marriage” and she has a right to her turn.2 But in
 
 98
 
-Claiming Companionship
 
 another scenario, a woman is married to a man who “dislikes her and
 wants to divorce her.” What if, Sahnun asks, she says to him, “ ‘Don’t
@@ -3382,7 +3310,6 @@ great deal about their visions of women’s sexual rights. Their conceptual lang
 fairness between wives. In regulating the minutiae of allocating time,
 making up for lost turns, and the effect of various behaviors by either
 
-Claiming Companionship
 
 99
 
@@ -3418,7 +3345,6 @@ is, at one level, necessary (there is a bottom line when it comes to women’s r
 
 100
 
-Claiming Companionship
 
 Taking Turns
 Perhaps the best example of the extent to which jurists’ categories
@@ -3450,7 +3376,6 @@ who consistently differentiated less between enslaved and free people
 than his counterparts. He seems to have held that both free and slave
 wives were to receive the same number of nights. Other Medinan au-
 
-Claiming Companionship
 
 101
 
@@ -3490,7 +3415,6 @@ then spend two or three days with one or more of his concubines. One
 
 102
 
-Claiming Companionship
 
 Medinan judge with a favorite umm walad, a slave who had borne him
 a child, was known to do so, and Malik saw “no problem” with this
@@ -3527,7 +3451,6 @@ military expeditions.15
 Ibn al-Qasim here permits, in accordance with the teaching of Malik, a
 major departure from the one-night rule that governed the division of
 
-Claiming Companionship
 
 103
 
@@ -3565,7 +3488,6 @@ perfor mance of these tasks does not earn her compensatory time on his
 
 104
 
-Claiming Companionship
 
 return. Her impressive skills and capabilities do nothing to alter the husband’s prerogative to decide whom he takes with him on a journey.
 The Maliki focus on avoiding partiality, with only exceptional references to doing justice, drew implicitly on the Quranic assertion that
@@ -3593,7 +3515,6 @@ grave that he could not do so, “then I see no problem with him staying
 wherever he wishes, unless it is out of partiality.”22 No makeup of
 missed turns was due. Even if a man simply shirked his responsibility
 
-Claiming Companionship
 
 105
 
@@ -3634,7 +3555,6 @@ he took ill (not, as in the Maliki view, “wherever he wishes”) until capable
 
 106
 
-Claiming Companionship
 
 wife or wives the same amount of time he spent, in his grave illness,
 with one wife.
@@ -3666,7 +3586,6 @@ wedding nights may interfere with his duty to his other wife or wives.
 Jurists’ various approaches to these questions illustrate their common
 dependence on a view of gender-differentiated spousal claims, their
 
-Claiming Companionship
 
 107
 
@@ -3709,7 +3628,6 @@ between virgin and non-virgin brides and the exemption of the wedding nights fro
 
 108
 
-Claiming Companionship
 
 states that all brides receive the same number of nights and that those
 nights must be made up to each of a husband’s previous wives. (The
@@ -3744,7 +3662,6 @@ nights with his new wife, he must also spend three nights with each of
 the others, lest he impermissibly favor the new wife.
 The Kitab al-Hujja expands on this need for equality, drawing explicitly on prophetic precedent:
 
-Claiming Companionship
 
 109
 
@@ -3787,7 +3704,6 @@ spend seven with them; if you wish I will visit you and them in turn
 
 110
 
-Claiming Companionship
 
 words appears in the last phrase: “I will visit you and them in turn.”
 (The other version has “I will spend three with you then visit them in
@@ -3822,7 +3738,6 @@ part of an ongoing allocation of time to a man’s wives and who granted
 a newly married woman no special consideration, Shaﬁi and al-Muzani
 upheld both key elements of Malik’s stance: that a husband spent a dif-
 
-Claiming Companionship
 
 111
 
@@ -3860,7 +3775,6 @@ precludes arguing that the bride has the “right” to wedding nights or
 
 112
 
-Claiming Companionship
 
 that the husband has them as his duty, which would effectively be the
 same thing. (Claims that are “for” [li] one spouse are “due from” [®ala]
@@ -3894,7 +3808,6 @@ Umm Salama were “an indication that if a man marries a virgin he
 must (®alayhi an) stay seven nights with her, and three with the nonvirgin, and it is not counted against him by his wives who were already
 with him before her”45 The wedding nights were the husband’s right
 
-Claiming Companionship
 
 113
 
@@ -3930,7 +3843,6 @@ new husband? The Malikis straightforwardly view the nights as the
 
 114
 
-Claiming Companionship
 
 wife’s right. The Hanafis hold— though Shaybani in the Kitab al-Hujja does not defend this point with his usual vehemence— that the husband decided how many nights the bride received; she had no say. These
 views jibed with stances on whether wedding nights were exempt from
@@ -3960,7 +3872,6 @@ Though wives had an obligation to fulﬁ ll male sexual needs in exchange for th
 wives’ sexual claims.53 They repeatedly alluded to women’s claim to
 sex, and yet in nearly every instance where a wife pressed a speciﬁc
 
-Claiming Companionship
 
 115
 
@@ -3998,7 +3909,6 @@ them.56 The texts presume that nonpenetrative sexual activities were
 
 116
 
-Claiming Companionship
 
 allowed, and the gratiﬁcation thus obtained meant that the wife was
 fulﬁ lling her end of the bargain.
@@ -4034,7 +3944,6 @@ men’s sexual claims on their wives, and a Quranic passage (Q. 2:223)
 suggests to men how to conduct themselves amorously. Commentators
 drew on prophetic statements about proper treatment (a man should
 
-Claiming Companionship
 
 117
 
@@ -4074,7 +3983,6 @@ whose monogamous husband fails to have intercourse with her regularly. Placing t
 
 118
 
-Claiming Companionship
 
 a further discussion of the neglectful husband reafﬁ rms the difference
 between a woman’s claim to an equal share of her husband’s time and
@@ -4107,7 +4015,6 @@ intervention by the authorities.
 Shaﬁi was less conﬂ icted about wives’ sexual rights and more
 staunchly defended their rights to apportionment. He took a more restricted view of the husband’s sexual obligations, denying harm or cruelty any relevance. A husband had no obligation to have intercourse
 
-Claiming Companionship
 
 119
 
@@ -4148,7 +4055,6 @@ to the wife’s. Unlike the case of a wife who was menstruating, ill, or
 
 120
 
-Claiming Companionship
 
 prevented from intercourse by a physical defect, a wife who was absent
 from the marital home was unavailable. She would lose her allotted
@@ -4178,7 +4084,6 @@ gave the husband the right to “abandon” both. Of course, one cannot
 get a makeup turn— so the scriptural support here is for the husband’s
 right to leave a wife who will not accommodate him and seek the company of one who will.
 
-Claiming Companionship
 
 121
 
@@ -4215,7 +4120,6 @@ expiate his broken oath. If four months expired and he had not had
 
 122
 
-Claiming Companionship
 
 sex with her, Abu Hanifa and his disciples, along with the Medinan
 authority Said b. al-Musayyab, held that forswearing automatically
@@ -4251,7 +4155,6 @@ the Hanafi discussion of an oath where “a man swears that he will not
 approach his wife in that house for four months and he leaves her for
 four months and doesn’t approach her in it or elsewhere.” Abu Hanifa
 
-Claiming Companionship
 
 123
 
@@ -4290,7 +4193,6 @@ should order him to do so.80 None of the Hanafi authorities requires
 
 124
 
-Claiming Companionship
 
 or even encourages the husband to take this step, and the Shaﬁi text
 explicitly absolves him from doing so: “He is not compelled to take her
@@ -4320,7 +4222,6 @@ husband to take any action in zihar.85 The Shaﬁi texts put it most directly: 
 rules for each.86 This is true even “if he makes zihar from her then he
 leaves her (tarakaha [i.e., does not have sex with her]) for more than
 
-Claiming Companionship
 
 125
 
@@ -4357,7 +4258,6 @@ with the husband’s willful inﬂ iction of it. This is in keeping with the
 
 126
 
-Claiming Companionship
 
 Maliki concern with the husband’s motivations in all questions of
 apportionment.
@@ -4393,7 +4293,6 @@ divorce her, there is no blame on him for what he favors [another] over
 her.”93 The Muwatta© Shaybani concurs that Raﬁ acted appropriately
 when he allowed his wife to choose whether she would rather be di-
 
-Claiming Companionship
 
 127
 
@@ -4434,7 +4333,6 @@ from some of the obligations governing other husbands and was subject
 
 128
 
-Claiming Companionship
 
 to rules that did not apply to ordinary believers. The Quran excuses
 him from the requirement of apportioning his time among his wives,
@@ -4470,7 +4368,6 @@ know whether other husbands retained their wives on the basis of
 them giving up their turns, or whether the wives later found the terms
 of the settlement intolerable. All agreed that a wife who relinquished
 
-Claiming Companionship
 
 129
 
@@ -4507,7 +4404,6 @@ did not impose any consequences on him. Instead, his nushuz became
 
 130
 
-Claiming Companionship
 
 the impetus for his wife to forgo some or all of her claims— above all,
 her allotted turn with him.
@@ -4538,7 +4434,6 @@ Even with presumptive polygyny, though, husbands’ responsibilities to their wi
 it was not precisely sexual, it relied on closeness and companionship.
 Their insistence on this right serves to compensate, in a small way, for
 
-Claiming Companionship
 
 131
 
@@ -4576,7 +4471,6 @@ legalities of women’s giving up their rights to their allotted portion of
 
 132
 
-Claiming Companionship
 
 time, the situations the jurists presented, where women bargained with
 husbands to avoid being divorced against their will, attested to a fundamental imbalance of legal power in the marital relationship. The husband’s unilateral prerogative to terminate the marriage inescapably
@@ -4586,7 +4480,6 @@ affected the whole fabric of spousal claims.
 
 q
 
-Untying the Knot
 
 A M A N , the Kitab al-Hujja informs us, divorces his wife in absentia. She
 learns of the divorce and, after observing a waiting period to ensure
@@ -4615,7 +4508,6 @@ weeks, months, or years had passed. Questions of sentiment were likewise irrelev
 
 134
 
-Untying the Knot
 
 wife’s wishes with regard to the divorce? Ditto. Her feelings on learning
 that her (original) husband had chosen to take her back? Utterly beside
@@ -4647,7 +4539,6 @@ use of “ﬁ rst” implies that there is another husband from whom this one
 must be distinguished, in referring to the other man Shaybani avoids
 the term husband and refers to him as al-akhir, literally “the later one.”
 
-Untying the Knot
 
 135
 
@@ -4684,7 +4575,6 @@ of marriage.
 
 136
 
-Untying the Knot
 
 Divorcing a Wife, Freeing a Slave
 In talaq— literally, “release”— a man ends his marriage by pronouncement. As the Hujja’s example of the absent man who pronounces divorce illustrates, the presence of the wife was unnecessary. (Shii jurists
@@ -4715,7 +4605,6 @@ the status of others.”8 In contrast to marriage, which was a bilateral
 contract (®aqd) that required consent of the wife, someone acting on her
 behalf, or both, divorce by talaq was a unilateral act.
 
-Untying the Knot
 
 137
 
@@ -4753,7 +4642,6 @@ as hurr(a) is used to identify a free person in contrast to a slave, one who
 
 138
 
-Untying the Knot
 
 is “mamluk(a),” owned.15 For Shaﬁi’s disciple al-Muzani, the rule works
 both ways: “And if he says to [his wife], “You are free,” intending divorce, and to his female slave, “You are released (taliq),” intending
@@ -4788,7 +4676,6 @@ same terminology of ownership:
 Shaﬁi, may God be merciful to him, said: If he says, “Every woman
 that I marry is divorced” or [if he names] a speciﬁc woman or, [says] to
 
-Untying the Knot
 
 139
 
@@ -4831,7 +4718,6 @@ such as the one linking intercourse to talaq. Manumission of a slave
 
 140
 
-Untying the Knot
 
 was always ﬁ nal and irrevocable, but as noted earlier talaq could be either revocable (raj®i) or irrevocable (ba©in).23 If revocable, as in the case
 of the absent husband with which this chapter begins, the husband
@@ -4863,7 +4749,6 @@ When it comes to both divorce and return, Maliki discussions take
 for granted both that actions and intent matter and that only the husband’s actions and intent matter; the wife’s participation and consent
 do not ﬁgure at all. Again, we have the conﬂuence of legal and sexual
 
-Untying the Knot
 
 141
 
@@ -4903,7 +4788,6 @@ state. Despite the resumption of standard rights and obligations, the
 
 142
 
-Untying the Knot
 
 pronouncement counted toward the limit of three talaqs that a husband
 could pronounce before he lost the right to take back his wife. In an irrevocable talaq— as with other forms of irrevocable divorce, such as divorce for compensation (khul®) or judicial divorce34 — the husband had
@@ -4936,7 +4820,6 @@ attention in contemporary discussions of talaq, which tend to center on
 so-called triple divorce, the question of whether divorce pronounced to
 a menstruating woman was valid preoccupied the jurists extensively.
 
-Untying the Knot
 
 143
 
@@ -4975,7 +4858,6 @@ constituted a relationship of agency; the agent, in such a case, could
 
 144
 
-Untying the Knot
 
 divorce the wife on the husband’s behalf so long as the husband had
 not withdrawn the agency. Malik’s view that the wife retained the
@@ -5014,7 +4896,6 @@ waiting period.40
 Ibn Umar’s previous decision did not allow the husband to deny that
 he intended to give his wife full control but rather upheld the wife’s action (“I think it is as she said”). This report suggests that though there is
 
-Untying the Knot
 
 145
 
@@ -5053,7 +4934,6 @@ it was never any expression of a wife’s power over whether she remained marrie
 
 146
 
-Untying the Knot
 
 the husband temporarily permitted his wife to exercise a prerogative
 that belonged exclusively to him.43 Delegated divorce, despite the fact
@@ -5083,7 +4963,6 @@ could count as more than a single divorce, either by agreement between the divor
 If talaq is analogous to manumission, khul® parallels kitaba, a transaction in which a slave contracts to pay for his or her emancipation.47
 Both khul® and kitaba require the husband or master’s consent and the
 
-Untying the Knot
 
 147
 
@@ -5120,7 +4999,6 @@ formula constituted a unilateral pronouncement or a bilateral agreement determin
 
 148
 
-Untying the Knot
 
 revocable talaq. Abu Hanifa understood this third formula as two separate statements: ﬁ rst a divorce (or manumission), which was automatically effective, followed by a declaration that the wife (or slave) owed
 the husband (or master) one thousand dirhams. In Abu Hanifa’s view,
@@ -5146,7 +5024,6 @@ her back during the waiting period, defeating the purpose. Because
 khul® severed the husband’s marital authority at the wife’s behest, irrevocability was an integral component. But this irrevocability had to be
 ﬁt into a legal framework of mutual claims.
 
-Untying the Knot
 
 149
 
@@ -5180,7 +5057,6 @@ wife is at fault and the husband blameless, “we do not like him to take
 
 150
 
-Untying the Knot
 
 from her more than he gave her [as dower], even if the nushuz is on her
 part.” In the opposite case, when the fault was the husband’s, the Muwatta© Shaybani condemns his taking anything at all for agreeing to the
@@ -5211,7 +5087,6 @@ she says, ‘Sell me my talaq for one thousand dirhams,’ and he does so,
 is that permissible in Malik’s opinion? He said: Yes.”58 Likewise, for
 Shaﬁi, khul® was either like a sale or it was a sale. The Mukhtasar of alMuzani gives the following case: “A wife saying ‘If you divorce me triply, I will [give] you one hundred [dirhams]’ is like a man saying ‘Sell
 
-Untying the Knot
 
 151
 
@@ -5245,7 +5120,6 @@ wife paid her fair dower to reclaim it.
 
 152
 
-Untying the Knot
 
 Rather than contradicting each other, these rationales express facets of one overarching explanation: in khul® the wife irrevocably purchases back the sexual rights over herself that her husband gained
 through the marriage contract, rights that were bound up with his milk
@@ -5277,7 +5151,6 @@ Capacity to contract khul® centered on axes of sex, age, and legal
 status. Khul® involved both relinquishment of marital authority and ﬁnancial remuneration, each of which could be wielded or not according
 to gender, majority, and freedom. To consent to khul®, a wife had to
 
-Untying the Knot
 
 153
 
@@ -5315,7 +5188,6 @@ because no one can divorce on behalf of another, [not] a father, nor a
 
 154
 
-Untying the Knot
 
 master, nor a wali, nor a sultan. Rather, a male (mar© ) divorces on his
 own behalf or the sultan divorces for him” for cause.75 Khul® could not
@@ -5348,7 +5220,6 @@ the wife are slaves belonging to the same owner, according to Jabir b.
 disagree, holding that the slave himself wields divorce. Confronted
 with the view of Jabir b. Zayd that “[the slave’s] divorce is in his mas-
 
-Untying the Knot
 
 155
 
@@ -5385,7 +5256,6 @@ each other. Though the same rule applied as in cases where both
 
 156
 
-Untying the Knot
 
 spouses belonged to different owners, here the female slave would
 originally have been licit to her master. The marriage made her sexually lawful to her husband and forbidden to their joint master. Debating
@@ -5418,7 +5288,6 @@ sexual relations with the female slave transferred alongside it. Disagreement on
 did not lead to the dissolution of marriage, but it is noteworthy that
 everyone agreed that a new master could not have sexual access if the
 
-Untying the Knot
 
 157
 
@@ -5459,7 +5328,6 @@ sums up the views he deems authoritative, a female slave who had a
 
 158
 
-Untying the Knot
 
 husband did not become lawful to a new owner “until he divorces her
 or her body is bought from the husband.”90 This language strongly parallels that used for khul® divorce. In the case of a slave, the act of buying
@@ -5491,7 +5359,6 @@ transaction, since he would be barred from sexual access to her. (The
 use of the term jariyya, “slave girl,” rather than ama or mamluka hints at
 a primarily sexual purpose for the slave.) One must also explain the
 
-Untying the Knot
 
 159
 
@@ -5525,7 +5392,6 @@ wife, simply a husband. His continued enslavement did not weaken his
 
 160
 
-Untying the Knot
 
 marital authority. He alone could divorce his wife by talaq; his consent
 was needed for khul® divorce. Once married, a male slave gained all of
@@ -5555,7 +5421,6 @@ signiﬁcant objectives of twentieth-century legal reformers. But restricting me
 of authentic Islamic law remains. As this chapter has shown, in the extension of divorce prerogatives to male slaves, the formative-period jurists cemented a model of marriage with male-initiated divorce as a
 nonnegotiable element.
 
-Untying the Knot
 
 161
 
@@ -5591,7 +5456,6 @@ without waiting for the period mandated by the Quran. The jurists
 
 162
 
-Untying the Knot
 disapprove of it, but, as a matter of fact, allow it. By contrast, they limit
 the access by women to divorce by having them go through a court although the Quran does not have any such provision. . . . Hence, the
 law, in actuality, helped provide unwarranted privileges to men and
@@ -5620,7 +5484,6 @@ marriage contracts, is the wife’s “right to divorce herself before the marri
 that of the formative and classical legal texts. The right of ®isma has been
 exercised since late Ottoman Egypt, though its origins in Hanafi doctrine remain murky and deserve a full study. Zulﬁcar concludes that “a
 
-Untying the Knot
 
 163
 
@@ -5642,7 +5505,6 @@ The next and ﬁ nal chapter explores the gendered nature of this milk.
 
 q
 
-Marriage and Dominion
 If a man is married to a female slave [belonging to someone
 else], then he purchases her, his purchase of her cancels the
 marriage, and he has sex with her by his [right of] ownership
@@ -5670,7 +5532,6 @@ slavery. Previous chapters have shown how analogies between the institutions of 
 wives and slaves. Marriage and purchase (of a female slave) operate
 with payment of dower or price to legalize intercourse; release of a wife
 
-Marriage and Dominion
 
 165
 
@@ -5708,7 +5569,6 @@ woman had untrammeled rights to commercial property, the lack of
 
 166
 
-Marriage and Dominion
 
 which prevented a male slave from exercising concubinage in Hanafi
 and Shaﬁi thought, she could not wield sexual access to her male slave.
@@ -5740,7 +5600,6 @@ Because of the crucial differences between marriage and slave ownership, the two
 simultaneously own and be married to the same woman.6 Unlike free
 women, to whom sexual access was lawful only within marriage, unmarried slave women were sexually lawful to their male masters as a
 
-Marriage and Dominion
 
 167
 
@@ -5777,7 +5636,6 @@ her, and if he wished, he could give her away, and if he wished, he
 
 168
 
-Marriage and Dominion
 
 could do with her whatever he wished.”14 Though Shaﬁi and others
 cite this report, it should be noted that none of these formative-period
@@ -5811,7 +5669,6 @@ be her husband and is now her owner. A man can purchase his enslaved wife. Once 
 sell her, which he was barred from doing when she was his wife. The
 Mudawwana quotes several authorities on the extent of an owner’s
 
-Marriage and Dominion
 
 169
 
@@ -5853,7 +5710,6 @@ women,23 these unions raised qualms, as attested to by the unanimous
 
 170
 
-Marriage and Dominion
 
 agreement that a manumitted female slave could have her marriage to
 a male slave dissolved. Such a marriage would originally have been one
@@ -5884,7 +5740,6 @@ had to be unquestioned.”26
 A mismatch, then, would have existed in cases where a free woman
 married a slave. We have seen that a woman’s shift from wife to concu-
 
-Marriage and Dominion
 
 171
 
@@ -5921,7 +5776,6 @@ the marital relationship.”31 Milk al-nikah is a special type of property
 
 172
 
-Marriage and Dominion
 
 and maleness is a requisite for exercising it. “A woman— according to
 the medieval lawyers— can never acquire this ‘property.’ Thus her capacity to acquire rights and duties, i.e., her status as a legal person, is
@@ -5953,7 +5807,6 @@ slave himself wielded the power of divorce and became, in Johansen’s
 term, a “proprietor of marriage.” Although how many wives a man
 could have might depend on his status (Malik allows him four, but the
 
-Marriage and Dominion
 
 173
 
@@ -5993,7 +5846,6 @@ divorce.”37
 
 174
 
-Marriage and Dominion
 
 The conﬂuence of Malik’s doctrines on slave marriage and slave
 concubinage created a loophole. In an end run around the enslaved
@@ -6026,7 +5878,6 @@ property. Slaves do not own property.”40
 Hanafi authorities concur. The Kitab al-Hujja directly attacks the
 Medinan example of a master who gives his male slave the slave’s enslaved wife to use as a concubine. Abu Hanifa holds that “the gift does
 
-Marriage and Dominion
 
 175
 
@@ -6067,7 +5918,6 @@ him [i.e., the slave’s master] having sex with her.” Though he prefers
 
 176
 
-Marriage and Dominion
 
 that the master formally “take her away” from the slave ﬁrst, his having
 intercourse with her is not forbidden even if he fails to do so. The Medinan then accepts that “if he [the master] does not have sex with her”
@@ -6100,7 +5950,6 @@ to a male slave.46 The lack of limit on concubines (for free men) becomes, in th
 partners. In a section entitled “Regarding the number of free women
 and slave women who are lawful and what makes sexual organs lawful,” Shaﬁi notes that God limited a man to four wives but placed no
 
-Marriage and Dominion
 
 177
 
@@ -6136,7 +5985,6 @@ to address the subject at all. His mode of doing so, by means of an “anonymous
 
 178
 
-Marriage and Dominion
 
 positions that were held by identiﬁable authorities of his time. I have
 not, however, come across other discussions that seriously posit the
@@ -6170,7 +6018,6 @@ shores it up by reference to male marital prerogatives:
 If the man divorces the woman and makes her forbidden to him— and
 she may not divorce him— and he divorces her once, then [the fact]
 
-Marriage and Dominion
 
 179
 
@@ -6208,7 +6055,6 @@ oath take effect with penetration, male legal and sexual agency are directly con
 
 180
 
-Marriage and Dominion
 
 Shaﬁi repeatedly emphasizes women’s passivity. He declares, “So it
 is not permitted to say to her that she may take her male slave as a concubine, because she is the one who is taken as a concubine and the one
@@ -6243,7 +6089,6 @@ marries” suggests a deeper parallel between marriage and concubinage
 than simply the Quranic joining of the two as licit sexual partners in
 verses like the one he quotes. Shaﬁi declares that one should not draw
 
-Marriage and Dominion
 
 181
 
@@ -6285,7 +6130,6 @@ even an enslaved one— could not be taken as a concubine. Ownership
 
 182
 
-Marriage and Dominion
 
 of a male slave did not permit his owner control over his sexual organ
 (farj). Indeed, some later jurists held that saying to a female slave,
@@ -6317,7 +6161,6 @@ sexual encounters with their male slaves were not considered lawful.
 Rather, the authorities were willing to accept even tenuous claims to
 acting on the mistaken belief that a prohibited action was, in fact, permissible if it meant averting hadd punishments.
 
-Marriage and Dominion
 
 183
 
@@ -6351,7 +6194,6 @@ distinction between human beings.
 
 184
 
-Marriage and Dominion
 
 Conclusion
 For many years, scholars addressing the subject of women and Islam
@@ -6386,7 +6228,6 @@ drawing boundaries between men and women, majors and minors, free
 and slave, virgins and non-virgins. He clearly delineates the legal rights
 and duties of each type of person. Shaﬁi texts insist on certain logical
 
-Marriage and Dominion
 
 185
 
@@ -6420,7 +6261,6 @@ status. The speciﬁcs of her rights and duties can differ, sometimes
 
 186
 
-Marriage and Dominion
 
 signiﬁcantly, from school to school, but the basic control over her sexuality and physical mobility that the husband gains by the marriage
 contract—with due modiﬁcations in the case of enslaved wives whose

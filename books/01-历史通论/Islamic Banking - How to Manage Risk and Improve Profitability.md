@@ -1,8 +1,5 @@
 # Islamic Banking - How to Manage Risk and Improve Profitability
 
-> 来源: Islamic Banking - How to Manage Risk and Improve Profitability.epub
-> 提取于: iSlam/伊斯兰金融/Islamic Banking - How to Manage Risk and Improve Profitability.epub
-
 []
 
 Islamic Banking: How to Manage Risk and Improve Profitability
@@ -159,7 +156,6 @@ Islamic banks’ modes of finance are mainly asset backed, which involves
 
 [picture1]
 
-UNDERSTANDING THE ORIGINS
 
 a great deal of contracts between the two parties. Such arrangements
 increase the legal risk in both the drafting stage and the enforcement
@@ -203,9 +199,7 @@ in the banks’ conventional activities.
 
 [picture2]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 2
 
@@ -247,7 +241,6 @@ received were distributed
 
 [picture3]
 
-UNDERSTANDING THE ORIGINS
 
 immediately; therefore, there was no need for a permanent Baitul Mai.
 The actual establishment of Baitul Mai as an organized financial
@@ -301,7 +294,6 @@ mathematics
 
 [picture4]
 
-History and Development of Islamic Banking
 
 9
 
@@ -352,7 +344,6 @@ the modern Islamic banking system. Although the bank
 
 [picture5]
 
-UNDERSTANDING THE ORIGINS
 
 provided basic banking services such as deposit accounts, loan accounts,
 direct investment, and social services, it was sufficient to meet the
@@ -376,7 +367,6 @@ The history of modern Islamic banking can be divided into four periods:
 
 TABLE 2.1 The Development of Islamic Banking from 1965 to Present
 
-History and Development of Islamic Banking
 
 11
 
@@ -432,7 +422,6 @@ economic and
 
 [picture6]
 
-UNDERSTANDING THE ORIGINS
 
 social development and progress in accordance with shari’ah principles
 for all member and Muslim countries.
@@ -482,7 +471,6 @@ period:
 
 [picture7]
 
-History and Development of Islamic Banking
 
 13
 
@@ -534,7 +522,6 @@ to 6.8 percent in 2009 {The Banker 2009).
 
 [picture8]
 
-UNDERSTANDING THE ORIGINS
 
 REGULATORY AGENCIES FOR ISLAMIC FINANCIAL SERVICES
 
@@ -586,7 +573,6 @@ and recommending these for adoption.
 institutions offering Islamic financial products and to develop for the
 Islamic
 
-History and Development of Islamic Banking
 
 15
 
@@ -638,7 +624,6 @@ institutions, and international Islamic banking and finance industries
 across the globe. The objectives of AAOIFI are to develop and
 disseminate accounting and auditing thoughts
 
-UNDERSTANDING THE ORIGINS
 
 relevant to Islamic financial institutions and their applications. This
 includes holding seminars, publishing periodical newsletters, as well as
@@ -694,7 +679,6 @@ promote, and regulate an international
 
 [picture9]
 
-History and Development of Islamic Banking
 
 17
 
@@ -748,7 +732,6 @@ Muslim Brotherhood group was accused of the attempted assassination
 
 [picture10]
 
-UNDERSTANDING THE ORIGINS
 
 of Gamal Abdel Nasser. The Muslim Brotherhood was abolished and
 thousands of its members were imprisoned and punished. Again in 1965,
@@ -801,7 +784,6 @@ nearly
 
 [picture11]
 
-History and Development of Islamic Banking
 
 19
 
@@ -858,7 +840,6 @@ economic life. The economic system of the West has
 
 [picture12]
 
-UNDERSTANDING THE ORIGINS
 
 created almost insoluble problems for humanity and to many of us appears
 that only a miracle can save it from disaster that is not facing the
@@ -907,7 +888,6 @@ effective accommodation of
 
 [picture13]
 
-History and Development of Islamic Banking
 
 21
 
@@ -961,7 +941,6 @@ practices while the others were operating under great pressure (Bashir
 
 [picture14]
 
-UNDERSTANDING THE ORIGINS
 
 military overthrew the government, that the whole economy was
 transferred to comply with shari’ah. In 1993, in order to ensure strict
@@ -1013,7 +992,6 @@ regarding their products and services.
 
 [picture15]
 
-History and Development of Islamic Banking
 
 23
 
@@ -1065,7 +1043,6 @@ banks are solid and sound.
 
 [picture16]
 
-UNDERSTANDING THE ORIGINS
 
 The Islamic financial system is supported by several regulatory and
 supporting agencies that exert great efforts to support the system.
@@ -1095,9 +1072,7 @@ banks.
 
 [picture17]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Two
 
@@ -1105,9 +1080,7 @@ Risk in Islamic Banking
 
 [picture18]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 3
 
@@ -1201,7 +1174,6 @@ adequacy of relevant risk reporting to the supervisory authority.
 
 Source: Islamic Financial Services Board (2005b).
 
-The Nature of Risk in Islamic Banking
 
 29
 
@@ -1252,7 +1224,6 @@ risk Reputation risk Equity
 
 Banking crisis Exogenous
 
-RISK IN ISLAMIC BANKING
 
 one of the primary concerns of a supervisor is to ensure that banks have
 a well-articulated and implemented credit policy in place.
@@ -1305,7 +1276,6 @@ In Islamic finance, credit risk exposure arises in connection with:
 ■ The accounts receivable in murabahah contracts, where the bank
 delivers the assets but does not receive the payments. And in nonbinding
 
-The Nature of Risk in Islamic Banking
 
 31
 
@@ -1361,7 +1331,6 @@ equity-based assets. Islamic banks are exposed to two different types of
 risk while holding the equity instruments, depending on the purpose of
 the instruments: (1) The first type
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.3 IFSB Principles for Credit Risk
 
@@ -1387,7 +1356,6 @@ arising under the use of an Islamic financing instrument.
 Islamic financial institutions shall have in place shari’ah-compliant
 credit risk-mitigating techniques for each Islamic financing instrument.
 
-Source: Islamic Financial Services Board (2005b).
 
 of risk, which is our concern in this part, arises as a result of the
 holding of equity for the purpose of investment. In this case, the
@@ -1416,7 +1384,6 @@ the losses while having no power to influence the other party to take
 the necessary remedial measurements when needed. In addition, this gives
 rise to moral hazard
 
-The Nature of Risk in Islamic Banking
 
 33
 
@@ -1469,7 +1436,6 @@ risk evaluation, and the bases of profit calculations and allocations.
 strategies in place. Such strategies should have the approval of the
 shari’ah board for extension and redemption conditions.
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.4 IFSB Principles for Equity Investment Risk
 
@@ -1493,7 +1459,6 @@ equity investment activities, including extension and redemption
 conditions for mudarabah and musharakah investments, subject to the
 approval of the institution’s shari’ah board.
 
-Source: Islamic Financial Services Board (2005b).
 
 Market Risk Market risk is defined as the risk of losses in on-and-off
 balance sheet positions arising from unfavorable movements in market
@@ -1526,7 +1491,6 @@ hold in financial instruments. These positions are held to secure a
 short-term profit from price or interest-rate variations, or to hedge
 against risk in other
 
-The Nature of Risk in Islamic Banking
 
 35
 
@@ -1581,7 +1545,6 @@ and loans, but the margin between the external benchmark and domestic
 rates of return shifts, there could be an impact on asset return
 (Sundararajan 2007).
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.5 IFSB Principles for Market Risk
 
@@ -1590,7 +1553,6 @@ risk management (including reporting) in respect of all assets held,
 including those that do not have a ready market and/or are exposed to
 high price volatility.
 
-Source: Islamic Financial Services Board (2005b).
 
 The IFSB has set a guiding principle, as shown in Table 3.5, to ensure
 that IIFS have an effective market risk management framework and
@@ -1629,7 +1591,6 @@ banking, can be of two types: (1) lack of liquidity in the market, where
 the illiquid asset makes it difficult for banks to meet their
 liabilities and financial obligations, and (2)
 
-The Nature of Risk in Islamic Banking
 
 37
 
@@ -1683,7 +1644,6 @@ of secondary trading of salam or istisna contracts. Finally, Islamic
 banks are obliged to maintain a high level of idle cash as they can only
 invest a small portion of the large current account portfolio they hold
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.6 IFSB Principles for Liquidity Risk
 
@@ -1698,7 +1658,6 @@ Principle 5.2 IIFS shall assume liquidity risk commensurate with their
 ability to have sufficient recourse to shari’ah compliant funds to
 mitigate such risk.
 
-Source: Islamic Financial Services Board (2005b).
 
 due to the limited liquid short-term shari’ah-compliant instruments
 available to them (Greuning and Iqbal 2008; Iqbal and Mirakhor 2007).
@@ -1733,7 +1692,6 @@ depositors an amount exceeding its profit, and the difference appeared
 in their balance sheet as loss carried forward. This risk may severely
 affect the bank’s solvency in extreme cases.
 
-The Nature of Risk in Islamic Banking
 
 39
 
@@ -1786,7 +1744,6 @@ of computing such reserves. Also, the rights of investment
 
 [picture19]
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.7 IFSB Principles for Rate of Return Risk
 
@@ -1799,7 +1756,6 @@ rates of return for investment account holders (HA).
 Principle 6.2 IIFS shall have in place an appropriate framework for
 managing displaced commercial risk, where applicable.
 
-Source: Islamic Financial Services Board (2005b).
 
 account holders to these reserves should be clearly stated and explained
 to the depositors. The short-term depositors may feel that maintaining
@@ -1837,7 +1793,6 @@ problems in operational processes and back-office functions.
 ■ The potential difficulties in enforcing Islamic financial contracts in
 a broader legal environment.
 
-The Nature of Risk in Islamic Banking
 
 41
 
@@ -1893,7 +1848,6 @@ Legal risk that arises from uncertainty in interpreting and enforcing
 contracts that comply with shari’ah is very significant in Islamic
 banks.
 
-RISK IN ISLAMIC BANKING
 
 TABLE 3.8 IFSB Principles for Operational Risk
 
@@ -1909,7 +1863,6 @@ asset, revenue, expense, and profit allocations are established,
 applied, and reported in a manner consistent with IIFS’ fiduciary
 responsibilities.
 
-Source: Islamic Financial Services Board (2005b).
 
 IFSB has set two principles for managing operational risk, as shown in
 Table 3.8:
@@ -1943,7 +1896,6 @@ of currencies.
 2. Equity risk that arises from depreciation of investments due to stock
 market dynamics.
 
-The Nature of Risk in Islamic Banking
 
 43
 
@@ -1997,7 +1949,6 @@ unique
 
 [picture20]
 
-RISK IN ISLAMIC BANKING
 
 foundations. The basic principles that form the foundations of Islamic
 banks are: the promotion fairness, risk and reward sharing, the
@@ -2050,7 +2001,6 @@ that are globally accepted.
 
 [picture21]
 
-The Nature of Risk in Islamic Banking
 
 45
 
@@ -2094,9 +2044,7 @@ Islamic banking instruments, which is covered in Chapter 4.
 
 [picture22]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 4
 
@@ -2133,7 +2081,6 @@ profit margin, a specified kind of asset that has been purchased and
 acquired by the IIFS based on a promise to purchase (PP) from the
 customer. The promise to purchase can be binding
 
-RISK IN ISLAMIC BANKING
 
 or nonbinding. The actual sale of the asset is a necessary condition in
 order for murabahah to comply with shari’ah.
@@ -2183,11 +2130,9 @@ disposing or cost related to holding it (such as warehousing and
 insurance). In the case of binding MPO, the IIFS is only exposed to
 credit risk.
 
-The Inherent Risk in Islamic Banking Instruments
 
 49
 
-Operational Risk
 
 There are mainly two types of operational risk related associated with
 murabahah contracts:
@@ -2237,7 +2182,6 @@ Islamic banking.
 
 [picture23]
 
-RISK IN ISLAMIC BANKING
 
 Ultimately, this is the risk of losses in the event of default or
 deterioration of the customer capacity for repayment. The measurement
@@ -2259,7 +2203,6 @@ from the market in order to meet their delivery obligations. The IIFS
 are exposed to price risk when the market price that has to be paid
 exceeds the amount paid under the salam contract.
 
-Operational Risk
 
 The nature of salam and parallel salam contracts as forward contracts
 exposes Islamic banks to three types of risk:
@@ -2289,7 +2232,6 @@ the ultimate
 
 [picture24]
 
-The Inherent Risk in Islamic Banking Instruments
 
 51
 
@@ -2343,9 +2285,7 @@ of losses incurred by the customer.
 
 [picture25]
 
-RISK IN ISLAMIC BANKING
 
-Operational Risk
 
 Istisna and parallel istisna are forward contracts, in which two
 contracts are involved. The first contract is the istisna between the
@@ -2396,7 +2336,6 @@ potential lessee prior to entering into the contract. Ijarah muntahia
 
 [picture26]
 
-The Inherent Risk in Islamic Banking Instruments
 
 53
 
@@ -2429,7 +2368,6 @@ the market price is lower than the book value of the asset. In both
 cases, the risk is partially mitigated by the value of the asset and the
 hamisb jiddiyyah (advance payment) paid by the customer.
 
-Operational Risk
 
 Theijarah as an operating lease contract and ijarah muntahia bittamleek
 as a lease-to-purchase contract expose IIFS to additional unique
@@ -2448,7 +2386,6 @@ protection as a tenant.
 
 [picture27]
 
-RISK IN ISLAMIC BANKING
 
 2. The IIFS may also be exposed to risk if the asset is damaged by the
 lessee, and the lessee refuses to fix it. In that case, the IIFS need to
@@ -2498,7 +2435,6 @@ the IIFS give away a
 
 [picture28]
 
-The Inherent Risk in Islamic Banking Instruments
 
 55
 
@@ -2529,7 +2465,6 @@ bank’s share to offset the risk of future investment losses. The basis
 of calculation and the terms and conditions should be reviewed and
 approved by the board of directors (AAOIFI 2008).
 
-Operational Risk
 
 In this case, investors, as rab al mal, share the profit and bear all
 losses without having any control or governance right over the
@@ -2551,7 +2486,6 @@ in terms of competitive returns on their investments. They are also
 
 [picture29]
 
-RISK IN ISLAMIC BANKING
 
 exposed to the risk that funds under mudarabah will be considered as a
 liability of the IIFS if there is proof of misconduct or negligence
@@ -2602,7 +2536,6 @@ contract or
 
 [picture30]
 
-The Inherent Risk in Islamic Banking Instruments
 
 57
 
@@ -2615,7 +2548,6 @@ purchase the agreed shares. In addition, the capital invested by the
 IIFS is subject to capital impairment risk in case the value of the
 musharakah assets declines.
 
-Operational Risk
 
 Operational risk in such contracts and transactions is attributed to
 either inadequate due diligence in the pre-establishment stage or to
@@ -2655,9 +2587,7 @@ Islamic Banking.
 
 [picture31]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 5
 
@@ -2692,7 +2622,6 @@ reputation risk, which threaten the overall business. Fiduciary and
 legal risks are significant, as we will see later in this chapter, due
 to the premature stage of the Islamic banking system.
 
-RISK IN ISLAMIC BANKING
 
 NONCOMPLIANCE WITH SHARI'AH RULES AND PRINCIPLES
 
@@ -2742,7 +2671,6 @@ requirements are as follows:
 ■ In murabaha and ijarah contracts, the asset in concern must exist and
 be owned by the IIFS. In addition, there is no penalty, fees or extra
 
-Operational Risk in Islamic Banking
 
 61
 
@@ -2797,7 +2725,6 @@ Investment Account Holders funds; (3) reputation risk in case the bank
 breaches the code of conduct, which may lead to panic withdrawal of
 funds by the depositors;
 
-RISK IN ISLAMIC BANKING
 
 (4) insolvency risk if the bank fails to meet the customers’ demands, as
 well as those of the current account and investment holders; (5)
@@ -2848,7 +2775,6 @@ violations of shari’ah principles that occurred during the year, annual
 zakat contributions by the IIFS, and the annual remuneration of the
 shari’ah board members.
 
-Operational Risk in Islamic Banking
 
 63
 
@@ -2905,7 +2831,6 @@ specific to the commercial law aspect:
 
 [picture32]
 
-RISK IN ISLAMIC BANKING
 
 (1) forbiddance of riba, (2) forbiddance of taking the wealth of people
 by cheating, and (3) the importance of contracts in commercial dealings
@@ -2959,7 +2884,6 @@ injunction and is considered as the fourth source of Islamic law. It is
 
 [picture33]
 
-Operational Risk in Islamic Banking
 
 65
 
@@ -3013,7 +2937,6 @@ years ago. From then on, scholars and jurists were to
 
 [picture34]
 
-RISK IN ISLAMIC BANKING
 
 rely only on the original meaning and earlier interpretations of the
 Qur’an and the Hadith. However, there is now a growing movement among
@@ -3064,7 +2987,6 @@ importance and weight they give to the different sources of Islamic law.
 
 [picture35]
 
-Operational Risk in Islamic Banking
 
 67
 
@@ -3121,7 +3043,6 @@ few shari’ah
 
 [picture36]
 
-RISK IN ISLAMIC BANKING
 
 scholars possessing financial and practical experience and background.
 Also, the major focus of most Islamic banks was on the deposit
@@ -3172,7 +3093,6 @@ can be enforced in the interest based economies and legal
 
 [picture37]
 
-Operational Risk in Islamic Banking
 
 69
 
@@ -3227,7 +3147,6 @@ conduct, morality, and the basis of relationships
 
 [picture38]
 
-RISK IN ISLAMIC BANKING
 
 with others. It also governs issues related to crime, marriage, divorce,
 international relationships, and inheritance. Fiqh is the human
@@ -3264,9 +3183,7 @@ and the Western financial and legal infrastructure.
 
 [picture39]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 6
 
@@ -3308,7 +3225,6 @@ or stocks are sold. This happens when a corporation or a government need
 funds; they issue securities to be sold to the public through a process
 called underwriting. In this process, banks guarantee a
 
-RISK IN ISLAMIC BANKING
 
 minimum price for business securities. Secondary market is where
 existing securities are bought and sold among investors and traders.
@@ -3417,7 +3333,6 @@ issuing entity purchases the underlying assets from the originator and
 
 [picture40]
 
-RISK IN ISLAMIC BANKING
 
 packages them into a pool and acts as the issuer of the sukuk. This
 issuer requires the originator to provide recourse for the asset to the
@@ -3518,7 +3433,6 @@ raised are the purchase cost of the commodity. The holders
 
 [picture42]
 
-RISK IN ISLAMIC BANKING
 
 of the certificate own the commodity and are entitled to its sale price.
 These certificates are tradable after closing of subscription,
@@ -3616,7 +3530,6 @@ that is imposed by most
 
 [picture44]
 
-RISK IN ISLAMIC BANKING
 
 jurisdictions, which results in an increase in the cost of products
 (JCR-VIS 2005). The development of a secondary market is key to the
@@ -3689,9 +3602,7 @@ market.
 
 [picture46]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Three
 
@@ -3699,9 +3610,7 @@ Capital Adequacy
 
 [picture47]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 7
 
@@ -3795,7 +3704,6 @@ occasional operating losses.
 supervisory authorities. A strong capital base would assure and impose
 confidence to depositors.
 
-The Importance and Role of Capital-Literature Review
 
 85
 
@@ -3851,7 +3759,6 @@ ability to absorb
 
 [picture49]
 
-CAPITAL ADEQUACY
 
 losses. It also determines the banks’ lending capacity because banks
 cannot expand their balance sheets beyond the level determined by its
@@ -3905,7 +3812,6 @@ Capital Accord identified two types of capital: tier one and tier two.
 
 [picture50]
 
-The Importance and Role of Capital-Literature Review
 
 87
 
@@ -3963,7 +3869,6 @@ from the net profit of the whole organization.
 
 [picture51]
 
-CAPITAL ADEQUACY
 
 According to the Islamic Financial and Services Board, Islamic bank
 capital is classified into two tiers: (1) tier one consists of the core
@@ -4013,7 +3918,6 @@ requirements
 
 [picture52]
 
-The Importance and Role of Capital-Literature Review
 
 89
 
@@ -4066,7 +3970,6 @@ deregulation
 
 [picture53]
 
-CAPITAL ADEQUACY
 
 argue that the financial market is sufficient to provide a mechanism by
 which institutions that have low capital would not be able to attract
@@ -4116,7 +4019,6 @@ assets.
 
 [picture54]
 
-The Importance and Role of Capital-Literature Review
 
 91
 
@@ -4169,7 +4071,6 @@ provided by the advocates of this argument to support their argument,
 
 [picture55]
 
-CAPITAL ADEQUACY
 
 due to the government failure and not market failure, and (3) protecting
 the small depositors on the expense of the taxpayers particularly the
@@ -4223,7 +4124,6 @@ conceptual nature, as they are not normally found in the conventional
 
 [picture56]
 
-The Importance and Role of Capital-Literature Review
 
 93
 
@@ -5469,7 +5369,6 @@ CJ CO
 
 (J5
 
-CAPITAL ADEQUACY
 
 regulations reveals that there were two major conceptual views to this
 issue. During the period 1914 to 1930, the capital adequacy ratio was
@@ -5486,9 +5385,7 @@ II (2004).
 
 [picture58]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 8
 
@@ -5524,7 +5421,6 @@ imposed on Germany under the Treaty of Versailles, following World War
 I. After World War II, the BIS was accused of helping the Germans during
 the War in looting
 
-CAPITAL ADEQUACY
 
 assets from the occupied territories. Also, it was accused of receiving
 large quantities of gold stolen by Germany from central banks in Belgium
@@ -5574,7 +5470,6 @@ Settlements 2003).
 BIS plays an important role in enhancing the predictability and
 transparency of the monetary policies among its members. The two most
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 99
@@ -5628,7 +5523,6 @@ South Africa,
 
 [picture59]
 
-CAPITAL ADEQUACY
 
 Spain, and Turkey. The main purpose of the Basel Committee is to
 consider regulatory issues related to activities of international banks
@@ -5683,7 +5577,6 @@ guidelines and
 
 [picture60]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 101
@@ -5735,7 +5628,6 @@ core capital and (2) supplementary capital.
 
 [picture61]
 
-CAPITAL ADEQUACY
 
 Tier one is the core capital and consists of two elements:
 
@@ -5790,7 +5682,6 @@ member countries
 
 [picture62]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 103
@@ -5844,7 +5735,6 @@ requirements:
 in the trading books, which applies to the current market value of items
 in the banks’ trading books. As per the new definition that came into
 
-CAPITAL ADEQUACY
 
 effect in November 2005, trading books consists of positions in
 financial instruments and commodities held for the purpose of trading or
@@ -5898,7 +5788,6 @@ nations, the Capital Adequacy Standard came to a point where a change
 had to be made. It was accused of setting inaccurate capital ratios that
 led to
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 105
@@ -5953,7 +5842,6 @@ In June 1999, the committee published the first consultative Basel II
 paper and received numerous substantial criticisms from the national
 regulators
 
-CAPITAL ADEQUACY
 
 and the banking industry. The major criticisms to the revised accord
 were in regard to its complexity in terms of mathematical-statistical
@@ -6004,7 +5892,6 @@ financial infrastructure.
 has the capacity to evolve with time in order to keep pace with market
 developments and advances in risk management practices.
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 107
@@ -6059,7 +5946,6 @@ to be applied within a banking group.
 minimum capital requirements for credit risk, market risk, and
 operational risk.
 
-CAPITAL ADEQUACY
 
 3. Part three is the second pillar, which outlines expectations
 concerning the supervisory review process.
@@ -6111,7 +5997,6 @@ capital buffer
 
 [picture63]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 109
@@ -6165,7 +6050,6 @@ claims would receive 100 percent, residential mortgage
 
 [picture64]
 
-CAPITAL ADEQUACY
 
 50 percent, and customer loans 100 percent weight (Lopez 1999; Paglia
 and Phlegar 2001; Stevens 2000).
@@ -6213,7 +6097,6 @@ different rating grade structure of banking institutions.
 
 [picture65]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 111
@@ -6271,7 +6154,6 @@ bank has sound internal systems in place to assess the adequacy of its
 capital based on a thorough evaluation of its risks. The framework
 stresses the
 
-CAPITAL ADEQUACY
 
 importance of developing an internal capital assessment system and
 setting targets for capital that are commensurate with a bank’s
@@ -6325,7 +6207,6 @@ remedial action if capital is not maintained or restored (BCOBS 2004).
 
 [picture66]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 113
@@ -6380,7 +6261,6 @@ longer required.
 
 [picture67]
 
-CAPITAL ADEQUACY
 
 Basic Indicator Approach
 
@@ -6437,7 +6317,6 @@ Basic Indicator Approach, for each of the eight business lines
 
 [picture68]
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 115
@@ -6477,7 +6356,6 @@ allocation of economic capital for operational risk across business
 lines in a manner that creates incentives to improve business line
 operational risk management.
 
-CAPITAL ADEQUACY
 
 There are both qualitative and quantitative standards and risk
 mitigation for operational risk that need to be in place before it is
@@ -6533,7 +6411,6 @@ minimum capital requirements. The recognition of insurance mitigation
 will be limited to 20 percent of the total operational risk capital
 charge calculated under
 
-The Regulatory Framework of the Conventional Banking System: Basel I and
 II
 
 117
@@ -6587,9 +6464,7 @@ credit and market risk in the denominator of the CAR formula.
 
 [picture69]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 9
 
@@ -6626,7 +6501,6 @@ standard-setting body of regulatory and supervisory agencies that have
 vested interest in ensuring the soundness and stability of the Islamic
 financial services industry, which
 
-CAPITAL ADEQUACY
 
 includes banking, capital market, and insurance. The IFSB promotes the
 development of a prudent and transparent Islamic financial services
@@ -6675,7 +6549,6 @@ and investment accounts
 
 [picture70]
 
-The Regulatory Framework of Islamic Banks
 
 121
 
@@ -6727,7 +6600,6 @@ offering Islamic financial
 
 [picture71]
 
-CAPITAL ADEQUACY
 
 services that fall within their jurisdiction at the description of the
 supervisory authority, (3) the risk weighting methodology may be
@@ -6776,7 +6648,6 @@ both credit and market
 
 [picture72]
 
-The Regulatory Framework of Islamic Banks
 
 123
 
@@ -6831,7 +6702,6 @@ one
 
 [picture73]
 
-CAPITAL ADEQUACY
 
 capital. Also, tier three will be limited to 250 percent of the bank’s
 tier one capital, which is required to support market risks (IFSB
@@ -6862,7 +6732,6 @@ The nature of risk in Islamic banks differs from conventional banks
 because of the different nature of assets between the two. Whereas the
 assets in
 
-The Regulatory Framework of Islamic Banks
 
 125
 
@@ -6918,7 +6787,6 @@ Eligible Capital
 [Total Risk-Weighted Assets (Credit and Market Risks) + Operational
 Risks] — Total Risk-Weighted Assets funded by PSIA
 
-CAPITAL ADEQUACY
 
 Notes:
 
@@ -6969,7 +6837,6 @@ following into consideration:
 a security based on external credit assessments. The supervisory
 authority
 
-The Regulatory Framework of Islamic Banks
 
 127
 
@@ -7028,7 +6895,6 @@ The first type is the equity position risk in the trading book and
 market risk on trading positions in sukok. The capital charge for
 securities in the
 
-CAPITAL ADEQUACY
 
 IIFS trading book consists of two elements that are calculated
 separately for the following types of risk:
@@ -7061,7 +6927,6 @@ quantitative measurement of weight or volume. The net position in each
 commodity will then be converted at current spot rates into the
 reporting currency (IFSB 2005a).
 
-Operational Risk
 
 Operational risk as defined in The Standard is the risk of losses
 resulting from inadequate or failed internal processes, people, and
@@ -7080,7 +6945,6 @@ and retail brokerage. Gross income is defined as: (1) net income from
 financing activities, which is gross of any provisions and operating
 expenses and
 
-The Regulatory Framework of Islamic Banks
 
 129
 
@@ -7137,7 +7001,6 @@ above the 15 percent; as such, risk cannot be ascertained owing to lack
 of data. The supervisory authority, however, has the discretion to
 impose a higher percentage as it deems necessary (IFSB 2005a).
 
-CAPITAL ADEQUACY
 
 Profit Sharing Investment Accounts (PSIA)
 
@@ -7187,7 +7050,6 @@ financing assets to
 
 [picture74]
 
-The Regulatory Framework of Islamic Banks
 
 131
 
@@ -7239,7 +7101,6 @@ delivered
 
 [picture75]
 
-CAPITAL ADEQUACY
 
 on a specified future date in a specified quantity and quality. As the
 buyer, the IIFS make full payment of the purchase price upon execution
@@ -7292,7 +7153,6 @@ underlying asset.
 
 [picture76]
 
-The Regulatory Framework of Islamic Banks
 
 133
 
@@ -7348,7 +7208,6 @@ payments
 
 [picture77]
 
-CAPITAL ADEQUACY
 
 with respect to the remaining period of the ijarah. This exposure is
 mitigated by the market value of the leased asset, which may be
@@ -7403,7 +7262,6 @@ on the greater of either
 
 [picture78]
 
-The Regulatory Framework of Islamic Banks
 
 135
 
@@ -7458,7 +7316,6 @@ generated
 
 [picture79]
 
-CAPITAL ADEQUACY
 
 by the enterprise or activity is shared in accordance with the terms of
 mu-darabah agreement, while losses are to be borne solely by the IIFS
@@ -7512,7 +7369,6 @@ will be paid directly to the repayment account with the IIFS.
 
 [picture80]
 
-The Regulatory Framework of Islamic Banks
 
 137
 
@@ -7565,7 +7421,6 @@ whole amount or all the installments are paid by the purchaser. The RW
 
 [picture81]
 
-CAPITAL ADEQUACY
 
 is based on the counterparty or customer. If there is a third party
 providing guarantee, then its RW will be applicable if it is lower than
@@ -7614,7 +7469,6 @@ adequate capital.
 
 [picture82]
 
-The Regulatory Framework of Islamic Banks
 
 139
 
@@ -7672,7 +7526,6 @@ Less § [risk-weighted assets funded by PER and IRR of unrestricted PSIA
 
 [picture83]
 
-CAPITAL ADEQUACY
 
 This means that the supervisory authority has the description to request
 IIFS to allocate regulatory capital against PSIA both restricted and
@@ -7692,9 +7545,7 @@ higher returns.
 ■ Provide additional comfort and confidence to PSIA, particularly
 unrestricted PSIA to place their funds with the IIFS.
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Four
 
@@ -7702,9 +7553,7 @@ Corporate Governance
 
 [picture84]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 10
 
@@ -7852,7 +7701,6 @@ reliability, and timeliness of the information helps to protect
 
 [picture86]
 
-CORPORATE GOVERNANCE
 
 the IAH interest and enhance system safety. Supervisory authority also
 must ensure adequate and timely disclosure of information on risk and
@@ -7958,7 +7806,6 @@ windows.
 
 [picture88]
 
-CORPORATE GOVERNANCE
 
 First, the institutions should have an effective system in place to
 separate Islamic assets and funds from conventional ones, and the system
@@ -8063,7 +7910,6 @@ regulatory
 
 [picture89]
 
-CORPORATE GOVERNANCE
 
 capital ratio. They should also take appropriate action if they are not
 satisfied with the result of this process.
@@ -8101,9 +7947,7 @@ the supervisory authorities.
 
 [picture90]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 11
 
@@ -8141,7 +7985,6 @@ characteristics, the principles were set as guidelines that can be used
 by the individual governments in evaluating and developing their
 regulatory framework for corporate
 
-CORPORATE GOVERNANCE
 
 governance, as well as for any organization or corporation that aims to
 develop a sound and effective corporate governance system (OECD 2004).
@@ -8197,7 +8040,6 @@ and they have heavy interrelation with all economic aspects.
 
 [picture91]
 
-Corporate Governance in Islamic Banking
 
 153
 
@@ -8247,7 +8089,6 @@ effective monitoring. The presence of
 
 [picture92]
 
-CORPORATE GOVERNANCE
 
 effective corporate governance within an individual company and across
 an economy as a whole helps to provide a degree of confidence that is
@@ -8296,7 +8137,6 @@ employees to act in an appropriate manner.
 
 [picture93]
 
-Corporate Governance in Islamic Banking
 
 155
 
@@ -8351,7 +8191,6 @@ of labor with a proactive role of the government, this position gives
 less attention to market discipline and voluntary codes than the
 neo-liberal model.
 
-CORPORATE GOVERNANCE
 
 THE OECD PRINCIPLES
 
@@ -8403,7 +8242,6 @@ effective redress for violation of their rights.
 This principle sets the rules and guidelines for the equality of
 treatment of all shareholders within any series of a class, the
 
-Corporate Governance in Islamic Banking
 
 157
 
@@ -8456,7 +8294,6 @@ are necessary
 
 [picture94]
 
-CORPORATE GOVERNANCE
 
 to protect the ethical standards and interests of the shareholders and
 stakeholders. Corporate governance should encompass:
@@ -8506,7 +8343,6 @@ the Shari’ah Supervisory Board, and the external auditors. The board of
 directors, being responsible for implementing the governance policy
 framework, will assign a governance committee and an audit committee.
 
-Corporate Governance in Islamic Banking
 
 159
 
@@ -8557,7 +8393,6 @@ in a timely and sufficient manner to IAH, both unrestricted and
 restricted. Table 11.2 shows the IFSB principles related to the rights
 of investment pertaining to IAH.
 
-CORPORATE GOVERNANCE
 
 TABLE 11.2 Rights of Investment Account Holders (IAH)
 
@@ -8610,7 +8445,6 @@ make these rulings available to the public
 
 Source: Islamic Financial Services Board (2006).
 
-Corporate Governance in Islamic Banking
 
 161
 
@@ -8658,7 +8492,6 @@ be withdrawn at any time, and are not entitled to any remuneration.
 
 In addition, Islamic banks raise funds by issuing equity shares.
 
-CORPORATE GOVERNANCE
 
 On the utilization function, Islamic banks use various
 shari’ah-compliant products such as mudarabah, musharakah, ijarah,
@@ -8712,7 +8545,6 @@ where there is diffuse shareholders or concentrated ownership, this
 assumption will not be valid. In the case of diffuse shareholders,
 management will have
 
-Corporate Governance in Islamic Banking
 
 163
 
@@ -8768,7 +8600,6 @@ shari’ah-compliant rules to ensure
 
 [picture95]
 
-CORPORATE GOVERNANCE
 
 appropriate corporate governance. The suggestion is to have one Shari’ah
 Supervisory Board (SSB) for the whole system consisting of scholars from
@@ -8817,7 +8648,6 @@ structure that ensures full segregation, and an SSB. This should be
 
 [picture96]
 
-Corporate Governance in Islamic Banking
 
 165
 
@@ -8867,7 +8697,6 @@ an IIFS ensures that there is effective independent oversight
 
 [picture97]
 
-CORPORATE GOVERNANCE
 
 of Shari’ah compliance over each of the following structures and
 
@@ -8920,7 +8749,6 @@ requirements. While developing the model, supervisors should take into
 consideration the maturity of the IIFS and the prevailing market
 conditions. The second principle explains and states
 
-Corporate Governance in Islamic Banking
 
 167
 
@@ -8978,7 +8806,6 @@ to the effectiveness of the board.
 
 Source: Islamic Financial Services Board (2009b).
 
-CORPORATE GOVERNANCE
 
 TABLE 11.7 Independence in the Shari’ah Governance System
 
@@ -9027,7 +8854,6 @@ information obtained in the course of their duties is kept confidential.
 
 Source: Islamic Financial Services Board (2009b).
 
-Corporate Governance in Islamic Banking
 
 1G9
 
@@ -9079,7 +8905,6 @@ of IIFS. Another issue of concern is the transparency and disclosure of
 financial information, which to some extent, needs improvement. In
 addition to the issues of corporate governance in pure Islamic
 
-CORPORATE GOVERNANCE
 
 banks, the issue of balance sheet segregation is considered unique to
 Islamic windows. It is mandatory that funds related to Islamic windows
@@ -9097,9 +8922,7 @@ professionalism.
 
 [picture98]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 12
 
@@ -9137,7 +8960,6 @@ information.
 It is important to note here that the nature of the relationship between
 the IIFS and the IAHs gives transparency and disclosure of information a
 
-CORPORATE GOVERNANCE
 
 much higher role than in conventional banks. The fact that IAHs carry
 all the risk makes it crucial for IIFS to provide accurate, reliable,
@@ -9188,7 +9010,6 @@ principles which include
 
 [picture99]
 
-Market Discipline and Transparency in Islamic Banking
 
 173
 
@@ -9244,7 +9065,6 @@ policies, and procedures, (b) structure and organizations supporting the
 
 [picture100]
 
-CORPORATE GOVERNANCE
 
 risk management framework, (c) risk management scope and nature and
 reporting system, and (d) risk mitigation policies and procedures. A
@@ -9296,7 +9116,6 @@ that includes (a) indicators
 
 [picture101]
 
-Market Discipline and Transparency in Islamic Banking
 
 175
 
@@ -9351,7 +9170,6 @@ shareholders.
 
 [picture102]
 
-CORPORATE GOVERNANCE
 
 14. Corporate governance: a qualitative disclosure that includes (a)
 corporate governance arrangement and practices, (b) any related party
@@ -9403,7 +9221,6 @@ under liabilities, while others reported them as equity, and other banks
 reported all IAH funds as off-balance sheet items. This issue was due to
 the
 
-Market Discipline and Transparency in Islamic Banking
 
 177
 
@@ -9459,7 +9276,6 @@ banks. Supervisors receive
 
 [picture103]
 
-CORPORATE GOVERNANCE
 
 early warning signals either through a higher required risk premium by
 the investors or through trouble when issuing new bonds. IAH investments
@@ -9512,7 +9328,6 @@ needs to meet the following criteria:
 discipline needs to achieve. There are different types of information
 that
 
-Market Discipline and Transparency in Islamic Banking
 
 179
 
@@ -9565,7 +9380,6 @@ consistent, and understandable disclosure framework plays a crucial role
 in informing the market and stakeholders about the banks’ exposure to
 those risks and in enhancing comparability.
 
-CORPORATE GOVERNANCE
 
 The disclosure framework for Islamic banks aims to achieve two
 objectives:
@@ -9618,7 +9432,6 @@ insurance based on takaful. In some countries, this reduces the
 incentive for IAH to monitor the performance of management and
 subsequently weakens the market discipline.
 
-Market Discipline and Transparency in Islamic Banking
 
 181
 
@@ -9642,9 +9455,7 @@ participants is to solicit information and discipline institutions by
 setting a rewards and punishments system for banks based on the quality
 and timeliness of the information disclosure.
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 13
 
@@ -9684,7 +9495,6 @@ capital structure, roles, and functions, and in the calculation of
 capital requirements between Islamic and conventional banks. The Basel
 Capital Adequacy Accord of 1988, the
 
-CORPORATE GOVERNANCE
 
 amendments of 1996 and 2005 to incorporate market risk, and the revised
 Basel II Accord of 2004 were also discussed. Criticisms for the first
@@ -9791,7 +9601,6 @@ supervisors, Islamic banks, and governments and authorities:
 standards and practices across the board. Therefore, there is a need to
 have
 
-CORPORATE GOVERNANCE
 
 one shari’ah board to support the system. This will also help in
 enhancing the credibility and confidence in the Islamic financial
@@ -9841,9 +9650,7 @@ in the right and genuine prospective.
 
 [picture104]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Abbreviations
 
@@ -9926,9 +9733,7 @@ WIP Work-in-process
 
 [picture105]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Glossary
 
@@ -10061,9 +9866,7 @@ whereby the depositor is guaranteed the funds in full.
 
 [picture107]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 References
 
@@ -10484,9 +10287,7 @@ Instruments 10, no. 4 (November).
 
 [picture112]
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 About the Author
 
@@ -10505,9 +10306,7 @@ Emirates as well as the United States by the Global Association of Risk
 Professionals (GARP), CPI Financial (www.cpifinancial.net), and the
 Emirates Institute for Banking and Finance Studies (EIBFS).
 
-Islamic Banking: How to Manage Risk and Improve Profitability
 
-by Amr Mohamed El Tiby Copyright © 2011 Amr Mohamed El Tiby
 
 Index
 

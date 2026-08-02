@@ -1,8 +1,5 @@
 # Islamic and Conventional Banking Differences
 
-> 来源: Islamic and Conventional Banking Differences.pdf
-> 提取于: iSlam/伊斯兰金融/Islamic and Conventional Banking Differences.pdf
-
 International Journal of Business and Social Science
 
 Vol. 2 No. 2; February 2011

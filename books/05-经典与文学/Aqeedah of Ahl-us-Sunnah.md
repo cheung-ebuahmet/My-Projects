@@ -1,13 +1,8 @@
 # Aqeedah of Ahl-us-Sunnah
 
-> 来源: Aqeedah of Ahl-us-Sunnah.pdf
-> 提取于: iSlam/伊斯兰哲学·神学（认主学）/Aqeedah of Ahl-us-Sunnah.pdf
-
 The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
 By Shaikh Muhammad Ibn 'Uthaimeen
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 In the Name of Allaah, the Most-Merciful, the Bestower of Mercy
 All Praise is due to Allaah Lord of all creation, and the final outcome is for those who fear
 Him, and there is no enmity except for the wrongdoers, and I bear witness that there is
@@ -45,8 +40,6 @@ for His Pleasure and beneficial for His Slaves.
 
 1
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 Our Aqeedah is: belief in Allaah, His Angels, His Books, His Messengers, the Last Day and
 Pre-decree - its good and its evil.
@@ -85,8 +78,6 @@ barren whom He wills. Verily, He is the All-Knower and is Able to do all things.
 
 2
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we believe regarding Him, "There is none like unto Him and He is the All-Hearer, the
 All-Seer. To Him belong the keys of the heavens and the earth, He enlarges provision for
@@ -128,8 +119,6 @@ because of His most High’s statement, “And He is the Most High, the Most Gre
 All-Wise, Well acquainted with all things” [Al-An’aam:18].
 3
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we believe that, “He created the heavens and the earth in six days then He ascended
 upon the Throne; He disposes the affairs” [Yoonus:3]. And His ascending upon the throne
@@ -170,8 +159,6 @@ creation worships with legislationally then indeed it is from Hikmah following o
 Hikmah, whether we understand from it that which we understand or if our intellects are
 4
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 prevented from this, "Is not Allaah the most just of judges" [At-Teen:8], "And who is better
 than Allaah in terms of judgement; for a people who believe" [Al-Maa'idah:50]
@@ -212,8 +199,6 @@ And we believe that Allaah Most High., "No vision can encompass Him, and He
 encompasses all vision and He is the Most-Subtle and Courteous, the All-Aware" [AlAn'aam:103].
 5
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we believe that the believers will see their Lord on the Day of Resurrection, "And faces
 on that day will be radient, looking at their Lord" [Al-Qiyaamah:22-23].
@@ -253,8 +238,6 @@ Lord And the most correct of the creation and the truest of them and the most el
 
 6
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 So in the speech of Allaah the Most High, and that of His Messenger sallaahu'alaihiwasallam
 there is perfection of knowledge and truthfulness and clarity, so there is no excuse for
@@ -296,8 +279,6 @@ firmly grounded in knowledge say, “We believe in it, all of it is from Our Lor
 
 7
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 [Aal-‘Emraan:7]. And let him know that the Book and the Sunnah have no contradiction
 within them nor between them and differing.
@@ -338,8 +319,6 @@ world and the next, and Allaah will lead astray the wrongdoers, and Allaah does 
 wishes” [Ibraaheem:27].
 8
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And from them are the Angels entrusted with the people of Paradise, “They enter upon
 them from every entrance; ‘Salaamun’alaikum for that which you had patience with, so
@@ -378,8 +357,6 @@ upon all mankind until the establishment of the Day of Standing.
 
 9
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 As for the preceding Books then indeed they are transitory in their time of applicability
 which was brought to an end by the sending down of that which abrogated them and
@@ -418,8 +395,6 @@ which contains and encompasses the virtues of the sharee'ahs of these Messengers
 been particularised with excellence - in accordance with His, the Exalted's statement, "We
 10
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 have legislated for you in the religion that which we commanded Nooh with, and that which
 We have revealed to you, and that which We commanded Ibraaheem, Moosaa and Eesaa
@@ -466,8 +441,6 @@ Allaah excluding Islaam, from the religion of the Jews or the Christians or othe
 
 11
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 then he is a disbeliever. If he is initially Muslim, then he is asked to repent, and unless he
 does so he is executed as an apostate because of his denying the Qur’aan.
@@ -511,8 +484,6 @@ error is forgiven.
 
 12
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we see that it is obligatory to avoid abusing them, so we do not mention them except
 for that which they deserve of beautiful praise and we purify our hearts from enmity or
@@ -555,8 +526,6 @@ judge between His slaves when they are afflicted with gloom and grief which cann
 
 13
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 tolerated. So they will go to Aadam, then to Nooh, then Ibraaheem, then Moosaa, then
 ‘Eesaa until they end up going to the Messenger of Allaah sallallaahu‘alaihiwasallam.
@@ -600,8 +569,6 @@ beneath which rivers flow abiding there forever; Allaah has perfected for him hi
 abide therein forever, they will not find an ally nor a helper. That day ther faces will be
 14
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 turned over in the fire, they will say, ‘Woe to us, if only we had obeyed Allaah and the
 Messenger” [Al-Ahzaab:64-66].
@@ -639,8 +606,6 @@ Chapter
 
 15
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we believe in the divine pre-decree: its good and its bad, and it is the decree of Allaah
 the Exalted for all the occurrences: His knowledge has preceded with their measure and His
@@ -681,8 +646,6 @@ Allaah the Exalted’s Wisdom and Mercy would not allow, and also His true
 
 16
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 statement, “Allaah doesn’t burden a soul with more than he can bear” [AlBaqarah:286].
 3. Praise of the righteous person for righeousness, and criticism of the evil person for
@@ -730,8 +693,6 @@ this was decreed for me - if you did the people would think that you are mad.
 
 17
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 And we say to him also: if you were offered two jobs one of which had a higher salary, then
 indeed you would choose this job over the other; so how do choose for yourself that which
@@ -772,8 +733,6 @@ appoint them their reward according to the best of what they used to do" [An-Nah
 And from the fruits of belief in the Angels:
 18
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 1. Knowledge of the greatness of their Creator, glorified and exalted, and His power
 and authority.
@@ -816,8 +775,6 @@ believes in divine pre-decree.
 
 19
 
-The Aqeedah of Ahl-us-Sunnah wal-Jamaa’ah
-By Shaikh Muhammad Ibn 'Uthaimeen
 
 3. Prevention of one having a favourable view of oneself when when that which you
 want to occur takes place; because the occurrence of this is a favour from Allaah in

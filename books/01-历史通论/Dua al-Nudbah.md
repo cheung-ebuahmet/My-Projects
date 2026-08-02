@@ -1,8 +1,5 @@
 # Dua al-Nudbah
 
-> 来源: Dua al-Nudbah.pdf
-> 提取于: iSlam/祈祷词·赞词/Dua al-Nudbah.pdf
-
 Du`¡' al- Nudbah www.Duas.org
 
 All praise be to Allah the Lord of the worlds.

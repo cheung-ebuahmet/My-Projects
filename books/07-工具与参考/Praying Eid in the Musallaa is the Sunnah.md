@@ -1,7 +1,5 @@
 # Praying Eid in the Musallaa is the Sunnah
 
-> 来源: Praying Eid in the Musallaa is the Sunnah.pdf
-
 ‫ِب ۡس ِبي ٱ ِب ٱلَّر ۡس َم ٰـ ِب ٱلَّر ِب ِبي‬
 Bismi Allahi Alrrahmani Alrraheemi
 
@@ -41,13 +39,11 @@ of the Sunnah in the lands of the west.
 A Publication of
 Al-Ibaanah E-Books
 
-Al-Ibaanah E-Books
 
 2
 
 www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 TABLE OF CONTENTS
 1. Introduction to the Treatise……………………………………. 4
@@ -61,15 +57,12 @@ the Excuse of the Masjid being Small………………………... 15
 
 6. A Misconception and a Reply to It……………………………
 
-Al-Ibaanah E-Books
 
 3
 
 26
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 INTRODUCTION
 All praise is for Allaah, alone, and may His Peace and Blessings be on our Prophet
@@ -108,13 +101,10 @@ Translator’s Note: The Shaikh’s words that occur in parentheses have been pl
 As for the words that appear in parentheses throughout this treatise, then they were added by the translator to
 provide a better understanding of the source material.
 
-Al-Ibaanah E-Books
 
 4
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 This is profound ignorance, since the masaajid in Madeenah during the time of the
 Prophet  were many and well known, the most famous of which were Masjid Qubaa,
 Masjid Qiblatayn and Masjid Al-Fat’h. There are many authentic ahaadeeth reported
@@ -150,13 +140,10 @@ Furthermore, what “necessity” is there in splitting up the unified body (Jam
 Muslims into these various masaajid, whether big or small, which are established in
 every place (?) and some of which are so close to one another that at times there can
 only be found between two of them the distance of fifty feet or less!
-Al-Ibaanah E-Books
 
 5
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 If these authors had restricted their words to just mean that they began to gather
 together to pray in the one large (central) masjid (and not various masaajid), they would
 have had some Salaf (i.e. scholars of the past) that held this view before them, as will
@@ -186,13 +173,10 @@ replied to you, so the hadeeth goes back as a proof against you and not for you.
 of this is said assuming that the hadeeth is authentic. However, it is not authentic. On
 the contrary its chain of narration is weak, as we will explain later.
 
-Al-Ibaanah E-Books
 
 6
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 The rest of their words are mere foolishness and do not deserve to be replied to, except
 for the statement they made after first listing the following hadeeth of Abu Sa’eed and
 then that of Abu Hurairah: “So we derive from these two ahaadeeth that the prayer is
@@ -231,13 +215,10 @@ attend the musallaa. So when they require that the ’Eid Prayer be performed in
 I say: His attributing it to Al-Bukhaaree with the following wording is erroneous. Rather, it is only this way in
 Saheeh Muslim (3/20-21; Istanbul copy)
 
-Al-Ibaanah E-Books
 
 7
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 masaajid, then this means that they are preventing these (menstruating) women from
 “witnessing the good and the supplication of the Muslims!”
 This is contrary to the command of Allaah’s Messenger  found in the hadeeth, which
@@ -270,13 +251,10 @@ their hands and faces, according to what I explained in detail in my book “The
 Woman’s Hijaab according to the Qur’aan and Sunnah.” Allaah, Blessed and
 Exalted, says:
 
-Al-Ibaanah E-Books
 
 8
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 “O Prophet! Tell your wives, your daughters, and the believing women to place
 their jilbaabs upon themselves. That is better that they may be known so as not to
@@ -304,13 +282,10 @@ The view that it is obligatory is what As-San’aanee has demonstrated in (his b
 Subul-us-Salaam, as well as Ash-Shawkaanee and Sideeq (Hasan) Khaan. And this is
 the view that is apparent from the words of Ibn Hazm. It also looks as if Ibn Taimiyyah
 
-Al-Ibaanah E-Books
 
 9
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 inclined toward this view in his Ikhtiyaaraat, and Allaah knows best. [The First: pg. 910]4
 So in summary, we say: Indeed the Sunnah is to perform the ‘Eid Prayer in the
 musallaa. In spite of this, it is permissible to perform it in the masaajid. I promised there
@@ -325,13 +300,10 @@ have also been added by Zuhair Shawaish, and we have annotated them by putting t
 However the readers must know that Imaam Al-Albaanee stopped publishing books with this man, in his latter days,
 due to some of his works being printed and tampered with without his permission. And Allaah knows best.
 
-Al-Ibaanah E-Books
 
 10
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 THE PROPHET’S PERSEVERANCE UPON PRAYING ‘EID IN THE
 MUSALLAA & THE AHAADEETH REPORTED IN THAT REGARD
@@ -372,13 +344,10 @@ reminding and instructing towards all of those things by which one can achieve b
 In an-Nihaayah it states: The ‘anazah is about half the size of the javelin and a bigger object. It has teeth (points)
 just like that on a javelin. The staffed spear is closes to it in resemblance.
 
-Al-Ibaanah E-Books
 
 11
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 front of him and pray towards it (i.e. using it as a sutrah). This is since the musallaa
 would be a vast empty area, which had nothing in it to screen oneself with.”
 Reported by Al-Bukhaaree (1/354), Muslim (2/55), Abu Dawood (1/109), An-Nasaa’ee
@@ -421,13 +390,10 @@ men, and the speech and the admonition is one for both the men and the women. Th
 the numerous loudspeakers found in every masjid and central mosque, which are normally brought out to the places
 of prayer for ‘Eid.
 
-Al-Ibaanah E-Books
 
 12
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 tossing it (i.e. their jewelry) into Bilaal’s garment with their hands. Then he and Bilaal
 would depart to his house.”
 Reported by Al-Bukhaaree (2/373) and the wording is from him, Muslim (2/18-19), Ibn
@@ -438,13 +404,10 @@ Ibn Juraij:
 finishing (the khutbah) and admonish them separately?’ He said: ‘By Allaah, indeed that
 is a duty binding upon them. What is wrong with them that they don’t do that?!’”
 
-Al-Ibaanah E-Books
 
 13
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 THE PROOFS IN THE AHAADEETH THAT INDICATE
 THAT PRAYING IN THE MUSALLAA IS THE SUNNAH
@@ -478,13 +441,10 @@ In fact, a majority of them said the reason for it was because Makkah, may Allaa
 the mountains. Consequently, there cannot be found an open plain close to the homes, as close as the open flatland
 of the Holy House. This is one view that is acceptable.
 
-Al-Ibaanah E-Books
 
 14
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 A REFUTATION OF: JUSTIFYING PRAYING IN THE
 MUSALLAA DUE TO THE EXCUSE OF THE MASJID BEING SMALL
@@ -520,13 +480,10 @@ encouraging that the ‘Eid Prayers be performed in the musallaa a proof that it
 virtuous to pray it in the musallaa than in the masjid (!), when the proof for these two
 issues is one, as you have seen!
 
-Al-Ibaanah E-Books
 
 15
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 All of this supports the first of the two opinions that Imaam An-Nawawee
 (rahimahullaah) mentioned as being from the madh-hab of the Shaafi’ee scholars.
 Nevertheless, the difference between these two views is formal and not practical with
@@ -564,13 +521,10 @@ in the masjid, along with it’s superiority, then that takes more precedence.�
 
 Al-Umm (1/207); The text of his words will be mentioned later.
 
-Al-Ibaanah E-Books
 
 16
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 Imaam Ash-Shawkaanee commented on this saying (3/248): “In this is proof that the
 reason being either that the masjid was too small or too big, is just an estimation, and it
 doesn’t show support that one can be excused from following the example he  set in
@@ -609,13 +563,10 @@ same goes for Al-Jabbaan. [Zuhair].
 17
 Translator’s Note: He means by this the night before the day of ‘Eid, and Allaah knows best.
 
-Al-Ibaanah E-Books
 
 17
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 to fit them.’ Then he said: ‘But if there occurs the likes of this rain, then (praying it in) the
 masjid is easier.’”
 The Response is: This report is very weak because this Muhammad bin ‘Abdil-‘Azeez,
@@ -651,13 +602,10 @@ going out to it. I felt it proper to quote some of it here due to the benefits f
 (rahimahullaah) said in his notes to At-Tirmidhee (2/421-424) after alluding to the First
 Hadeeth and mentioning what Ibn Juraij said to ‘Ataa, which we mentioned previously
 under the Fourth Hadeeth: “Is it a duty upon the Imaam nowadays to go to the women
-Al-Ibaanah E-Books
 
 18
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 after finishing (the khutbah) and admonish them separately’, and his reply: ‘By Allaah,
 indeed that is a duty binding upon them.” Shaikh Ahmad Shaakir said: “The statements
 of the scholars are many in this regard.”
@@ -693,13 +641,10 @@ not possible that the thing that we are commanded to do be the less preferable o
 whilst that which we were forbidden from be the better choice. So it is not reported on
 the Prophet  that he ever prayed ‘Eid in his masjid, unless it was due to some excuse
 (i.e. difficulty). And because all of this is unanimously agreed upon by the scholars, the
-Al-Ibaanah E-Books
 
 19
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 people in every generation and in every area practiced going out to the musallaa. So
 they pray ‘Eid in the musallaa regardless of whether the masjid is large or small. And
 the Prophet  would pray in the musallaa in spite of the virtue of praying in his masjid.”
@@ -741,13 +686,10 @@ Dawood’s silence when grading it, but this doesn’t mean anything, because Ab
 times about ahaadeeth of which their weakness was clear. This has been mentioned in Al-Mustalah and I have
 explained it in my book Saheeh Sunan Abee Dawood.
 
-Al-Ibaanah E-Books
 
 20
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 But in the case that it is not ample enough to accommodate them, and an Imaam leads
 them in prayer in it, I dislike this for him. However, they do not have to repeat their
 prayer. And if there occurs some excusable matter, such as rain and so on, I command
@@ -787,13 +729,10 @@ accommodate all of the attendees.
 This hadeeth reaches the level of being mutawaatir. See Irwaa-ul-Ghaleel (no. 953) and Saheeh-ul-Jaami’ (no.
 3732) [Zuhair]
 
-Al-Ibaanah E-Books
 
 21
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 So these authentic ahaadeeth and other narrations, the Muslims of the first generation
 persevering upon this practice, and the statements of the scholars – all of these provide
 evidence that performing the ‘Eid Prayers in the masaajid is an innovation. We can even
@@ -801,13 +740,10 @@ derive this from the statement of Imaam Ash-Shaafi’ee, since there doesn’t e
 single masjid within our cities that is large enough to accommodate all of the people
 who live in that city.
 
-Al-Ibaanah E-Books
 
 22
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 THE WISDOM BEHIND PRAYING IN THE MUSALLAA
 Furthermore, there is great and profound wisdom behind this Sunnah – i.e. the Sunnah
@@ -841,13 +777,10 @@ to that which will revive you.” [Surah Al-Anfaal: 24]
 Shaikh Waliyullaah Ad-Dihlawee said in Hujjatullaah-il-Baalighah under the heading
 “The Two ‘Eids” (2/30-32):
 
-Al-Ibaanah E-Books
 
 23
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 “The foundation with regard to them is that every nation has a day in which they beautify
 themselves and go out from their city with their adornment. This is a custom, which no
 group amongst the Arabs and non-Arabs have stopped practicing. When the Prophet 
@@ -887,13 +820,10 @@ is found in Allaah’s saying:
 I say: Ahmad and others reported it with an authentic chain of narration. I have referenced it in as-Saheehah (no.
 2021).
 
-Al-Ibaanah E-Books
 
 24
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 ‘And so that you may magnify Allaah (by making Takbeer) for having guided you
 and so that you may be grateful.’ [Surah Al-Baqarah: 185; Surah Al-Hajj: 37]
@@ -937,13 +867,10 @@ the kings arrive, in order to welcome them.” I say: He is indicating the hadee
 had bad memory. And in the other chain is found Abu Ishaaq, who is As-Subay’ee – he would mix up his narrations.
 At-Tahaawee weakened it in his Mushkil-ul-Athaar (2/209-210) based on two angles, so refer to it if you wish.
 
-Al-Ibaanah E-Books
 
 25
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 
 A MISCONCEPTION AND A REPLY TO IT
 You have come to know from what we explained previously that: Praying the two ‘Eids
@@ -980,13 +907,10 @@ we desire to unite them into one congregation, then there is no way possible for
 this unless we go out to the open area of land, which is ample enough to accommodate
 all of those praying – both men and women. They can take this land as a musallaa,
 wherein they can perform this great act of worship [the ‘Eid Prayer]. This is what the
-Al-Ibaanah E-Books
 
 26
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 Sunnah orders. So how can it be said after this: “Implementing this Sunnah will cause
 division to the Jamaa’ah?!”
 Yes. Indeed from the things in which there is no doubt is that reviving this Sunnah
@@ -1024,13 +948,10 @@ I say: Its chain of narration is hasan (sound) due to other narrations. At-Tirmi
 declared it hasan. At-Tabaraanee and others reported it from Anas. It has been referenced along with the first
 narration – which is authentic – in Silsilat-ul-Ahaadeeth as-Saheehah (no. 204)
 
-Al-Ibaanah E-Books
 
 27
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 So the opposition they face from their opponents does not harm them in the least, even
 if they are more than them in number, due to the Prophet’s saying:
 “There will not cease to be a group from my Ummah triumphant upon the truth.
@@ -1067,13 +988,10 @@ view on “Praying ‘Eid in an Open Area of Land“, as has been stated previou
 cease to exist amongst the Muslims those who preserved the prayers and the commands of their Religion and Prayer.
 But then there rose a small gang, which rejected them and split up the Jamaa’ah.” So look at how they made calling
 
-Al-Ibaanah E-Books
 
 28
 
-www.al-ibaanah.com
 
-Praying ‘Eid in the Musallaa is the Sunnah
 Innovation, since the innovator hoped that the ranks of the deviants would unite. But
 Allaah refused that their ranks unite until the Day of Judgement. So all of the deviant
 groups will never unite – regardless of their large numbers – in opposing the Sunnah –
@@ -1091,8 +1009,6 @@ Allaah, Lord of the Worlds.
 to the Sunnah into splitting the Jamaa’ah! How truthful was the one who said: “It flung its disease on me and then
 snuck away.”
 
-Al-Ibaanah E-Books
 
 29
 
-www.al-ibaanah.com

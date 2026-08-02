@@ -1,7 +1,5 @@
 # Women in Islamic Law
 
-> 来源: Women in Islamic Law.pdf
-
 2 | Women in Islamic Law: Five Prevalent Myths
 
 Author Biography

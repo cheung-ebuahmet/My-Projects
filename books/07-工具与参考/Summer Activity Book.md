@@ -1,7 +1,5 @@
 # Summer Activity Book
 
-> 来源: Summer Activity Book.pdf
-
 Summer Activity Book
 
 Coloring pages, word search, maze, I Spy, and more!
@@ -10,18 +8,14 @@ Coloring pages, word search, maze, I Spy, and more!
 
 www.studioarabiya.com
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 I Spy With My Little Eye
 Something Starting With...
 
 ‫ش‬
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Bismillah
 ‫ﺴﻢِ ﷲ‬
@@ -35,9 +29,7 @@ Allahu Akbar
 َ
 ْ
 ‫ﷲُ أﻛ َﺒﺮ‬
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Match each word with the right picture!
 ‫اﻟﺼ ْﻴﻒ‬
@@ -52,9 +44,7 @@ www.studioarabiya.com
 ‫ﺷ ْﻤﺴِ ﱠﻴﺔ‬
 ‫ُﻣﺜَ ﻠَﺠَﺎت‬
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Dua upon entering the mosque:
 
@@ -70,9 +60,7 @@ www.studioarabiya.com
 [Allahumma ftaḥ lee abwaaba raḥmatik]
 "O Allah, open the gates of Your mercy for me."
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Count and color!
 
@@ -82,7 +70,6 @@ www.studioarabiya.com
 
 ‫ ﺑ ُ ﱢﻨﻲ‬8
 
-© Studio Arabiya Institute
 
 ْ َ‫ أ‬9
 ‫ﺧﺪَ ر‬
@@ -92,11 +79,8 @@ www.studioarabiya.com
 ‫ﺠﻲ‬
 ِ َ‫ ﺑَ َﻨ ْﻔﺴ‬12
 
-www.studioarabiya.com
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Arabic Maze
 Find your way through this Arabic maze
@@ -118,9 +102,7 @@ If you need some help, here are the letters you need to find:
 ‫ر ب ب ز د ن ي ع ل م ا‬
 BONUS: Can you find the only letter from
 the Arabic alphabet that does not appear in the maze?
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 It was narrated from Abu Hurairah (RA) that:
 The Prophet (‫ )ﷺ‬said: "Whoever sends salah upon me once,
@@ -129,9 +111,7 @@ Sahih (Darussalam), Sunan an-Nasa'i 1296
 
 ‫ﷺ‬
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Summer Word Search
 Learn essential summer vocabulary in Arabic
@@ -142,18 +122,14 @@ by searching the words below!
 ‫( رﺣﻠﺔ‬trip) - ‫( ﺷﺎﻃﺊ‬beach) - ‫( ﻟﻌﺐ‬play) - ‫( ﻣﺮح‬fun)
 Word Search Generator: www.ilmprojects.com
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Narrated `Uthman (RA):
 The Prophet (‫ )ﷺ‬said, "The best among you (Muslims)
 are those who learn the Qur'an and teach it."
 Sahih al-Bukhari 5027
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 Answer Key
 I Spy With My Little Eye
@@ -196,9 +172,7 @@ Arabic Maze
 
 Match each word with the right picture!
 
-© Studio Arabiya Institute
 
-www.studioarabiya.com
 
 BONUS: The letter ‫[ ه‬haa] is missing!
 
@@ -217,6 +191,4 @@ Parent account to monitor progress
 
 ENROLL TODAY AT
 studioarabiya.com
-© Studio Arabiya Institute
 
-www.studioarabiya.com

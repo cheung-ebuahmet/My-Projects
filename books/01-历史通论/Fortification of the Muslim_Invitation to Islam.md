@@ -1,7 +1,5 @@
 # Fortification of the Muslim_Invitation to Islam
 
-> 来源: Fortification of the Muslim_Invitation to Islam.pdf
-
 Second Edition
 
 Fortification of the Muslim through
@@ -475,7 +473,6 @@ remembrance.’3
 ‘And for men and women who engage much in
 Alla>h’s remembrance, for them has Alla>h prepared
 forgiveness and great reward.’4
-_________________
 2 Al-Baqarah: 152.
 3 Al-Ah}za>b: 41.
 4 Al-Ah}za>b: 35.
@@ -500,7 +497,6 @@ disbursement of gold and money or battle with the
 enemy?’ They [the companions] said: ‘Indeed!
 Inform us.’ He  then said: ‘Remembrance of Alla>h
 
-_________________
 5 Al-A’ara>f: 205.
 6 Al-Bukha>ri> with Al-Fath} 11/208 and Muslim 1/539 with the following
 wording: ‘The comparison of the house in which Alla>h is mentioned and
@@ -531,7 +527,6 @@ something that I might hold fast to.’ He  said,
 ‘Let not your tongue cease from the remembrance
 of Alla>h’.”9
 The Prophet  also said, ‘Whoever recites a letter
-_________________
 7 At-Tirmiz}i> 5/459 and Ibn Ma>jah 2/1245, see: S{ah}i>h} Ibn Ma>jah 2/316 and
 S{ah}i>h} At-Tirmiz}i> 3/139.
 8 Al-Bukha>ri> 8/171 and Muslim 4/2061, this specific wording is related by
@@ -560,7 +555,6 @@ camels.’11
 The Prophet  also said: ‘Whoever takes a seat and
 fails to remember Alla>h, has incurred upon himself a
 loss from Alla>h, and whoever lies down [relaxes]
-_________________
 10 At-Tirmiz}i> 5/175, see: S{ah}i>h} At-Tirmiz}i> 3/9 and S{ah}i>h} Al-Ja>mi‘ As}-S{aghi>r
 5/340.
 11 Muslim 1/553.
@@ -581,7 +575,6 @@ they rise as if they had arisen from the corpse of an
 ass and incurring upon themselves grief.’14
 
 
-_________________
 12 Abu> Dawu>d 4/264 and others, see: S{ah}i>h} Al-Ja>mi‘ 5/342.
 13 At-Tirmiz}i>, see: S{ah}i>h} At-Tirmiz}i> 3/140.
 14 Abu> Dawu>d 4/264 and Ah}mad 2/389, see: S{ah}i>h} Al-Ja>mi‘ 5/176.
@@ -604,7 +597,6 @@ is for Alla>h, and none has the right to be worshipped
 except Alla>h, Alla>h is the greatest and there is no
 power nor might except with Alla>h, The Most High,
 The Supreme, O my Lord forgive me’.15
-_________________
 15 Whoever says this will be forgiven. If he then supplicates he will be
 
 
@@ -651,7 +643,6 @@ garment
 .
 ‘May you wear it out and Alla>h
 [with another].’16
-_________________
 16 The intended meaning: a supplication for long life.
 
 24
@@ -672,7 +663,6 @@ replace it
 you from all evil and evil-doers.’
 7. After leaving the toilet
 (11)
-_________________
 17 Shahi>d: one who dies fighting the kuffa>r in order to make the word of
 Alla>h superior or in defence of Isla>m. It also has other meanings found in
 the Sunnah such as: the one who dies defending his life, wealth or family;
@@ -733,7 +723,6 @@ trust.’
 12. Going to the Masjid
 (19)
 
-_________________
 18 i.e., to commit a sin unintentionally.
 
 28
@@ -766,7 +755,6 @@ open the gates of Your mercy for me.’19
 14. Upon leaving the Masjid
 (21)
 
-_________________
 19 Recorded in Sunan Ibn Ma>jah is the H}adi>th related by Fa>t}imah, may Alla>h
 be pleased with her:
 ‘O Alla>h, forgive me my sins and open for me the doors of your mercy.’
@@ -826,7 +814,6 @@ takbi>r]
 
 .
 ‘O Alla>h, distance me from my sins just as You
-_________________
 20 A station in paradise.
 21 A rank above the rest of creation.
 22 One on which all of creation will praise him, in order to bring about the
@@ -880,7 +867,6 @@ You, I seek Your forgiveness and repent unto You.’
 angels], Creator of the heavens and the earth,
 Knower of the seen and the unseen. You are the
 arbitrator between Your servants in that which they
-_________________
 23 Alla>h does not create pure evil which does not have any good or contain
 any benefit, wisdom or mercy at all, nor does He punish anyone without
 having committed a sin. Something can be good in terms of its creation
@@ -943,7 +929,6 @@ what will come to pass, and what I have hidden and
 what I have made public. You are al-Muqaddim and
 al-Mu‘akhkhir24. None has the right to be
 worshipped except You, You are my Deity, none
-_________________
 24 Meaning of Al-Muqaddim and Al-Mu’akhkhir: Alla>h puts forward and
 favours whom He wills from amongst His creation just as He defers and
 holds back whom He wills in accordance to His wisdom, e.g., favouring
@@ -987,7 +972,6 @@ sovereignty, magnificence and grandeur.’
 ‘May Alla>h answer the one who praises Him.’25
 (39)
 .
-_________________
 25 This supplication is to be made while rising.
 
 41
@@ -1008,7 +992,6 @@ wealth or majesty can benefit anyone, as from You
 is all wealth and majesty.’26
 19. Whilst prostrating [suju>d]
 (41)
-_________________
 26 This supplication is made optionally only in conjunction with the
 previous one.
 
@@ -1085,7 +1068,6 @@ it from Your servant Da>wud.’
 22. The Tashahhud27
 (52)
 
-_________________
 27 What one says in the sitting position in prayer.
 
 46
@@ -1102,7 +1084,6 @@ His slave and Messenger.’
 Tashahhud
 (53)
 
-_________________
 28 i.e. all words which indicate the glorification of Alla>h, His eternal
 existence, His perfection and His sovereignty.
 
@@ -1122,7 +1103,6 @@ Verily, You are full of praise and majesty.’
 .
 ‘O Alla>h, send prayers upon Muh}ammad and upon
 the wives and descendants of Muh}ammad, just as
-_________________
 29 i.e. praise and exalt him in the highest and superior of gatherings: that of
 the closest angels to Alla>h.
 30 [ ] has been translated in it’s broadest sense, some scholars are of the
@@ -1145,7 +1125,6 @@ before sala>m
 of the grave, from the torment of the Fire, from the
 trials and tribulations of life and death and from the
 evil affliction of al-Masi>h} ad-Dajja>l31.’
-_________________
 31 Among the great signs of the last hour and the greatest trials to befall
 mankind, which every Prophet has warned about. Most of mankind will
 follow him. He will appear from As}fah}a>n, Iran at the time when the
@@ -1174,7 +1153,6 @@ sin and debt.’
 ‘O Alla>h, I have indeed oppressed my soul
 excessively and none can forgive sin except You, so
 forgive me a forgiveness from Yourself32 and have
-_________________
 32 i.e., from Your innermost grace without deserving it and a forgiveness
 which is befitting to your tremendous generosity.
 
@@ -1195,7 +1173,6 @@ to be worshipped except You.’
 .
 ‘O Alla>h, help me to remember You, to thank You,
 and to worship You in the best of manners.’
-_________________
 33 See footnote 24.
 
 51
@@ -1214,7 +1191,6 @@ punishment of the grave.’
 refuge in You from the Fire.’
 (62)
 
-_________________
 34 i.e. old age, being weak, incapable and in a state of fear.
 
 52
@@ -1249,7 +1225,6 @@ that You forgive me my sins for verily You are The
 Oft-Forgiving, Most-Merciful.’
 (64)
 
-_________________
 35 The Self-Sufficient Master, Possessor of perfect attributes, Whom all of
 creation turn to in all their needs.
 
@@ -1269,7 +1244,6 @@ the Fire.’
 Alla>h, none has the right to be worshipped except
 You, The One, as}-S{amad36 Who begets not nor was
 He begotten and there is none like unto Him.’
-_________________
 36 See previous footnote.
 
 55
@@ -1285,10 +1259,7 @@ honour.’
 (67)
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner, to Him belong all
-sovereignty and praise and He is over all things
-_________________
 37 As-Sala>m: The One Who is free from all defects and deficiencies.
 
 56
@@ -1301,9 +1272,6 @@ wealth and majesty.’
 (68)
 
 .
-‘None has the right to be worshipped except Alla>h,
-alone, without any partner, to Him belong all
-sovereignty and praise and He is over all things
 omnipotent. There is no might nor power except
 with Alla>h, none has the right to be worshipped
 except Alla>h and we worship none except Him. For
@@ -1319,14 +1287,10 @@ the disbelievers detest it.’
 ‘How perfect Alla>h is, all praise is for Alla>h, and
 Alla>h is the greatest.’
 [thirty-three times]
-‘None has the right to be worshipped except Alla>h,
-alone, without any partner, to Him belong all
-sovereignty and praise and He is over all things
 omnipotent.’38
 (70)
 The following three suwar39 should be recited once
 after Z{uhr, ‘As}r and ‘Isha>‘ prayers and thrice after
-_________________
 38 Whoever says this after every prayer, will have his or her sins remitted
 even if they were comparable to the foam of the sea. Muslim, 1/418.
 39 These three suwar are known as al-Mu‘a>widha>t [i.e., those that are recited
@@ -1351,7 +1315,6 @@ after each prayer40:
            
           
         
-_________________
 40 Whoever recites this A<yah after every prayer, nothing prevents him from
 entering Paradise besides first having to die.
 
@@ -1374,10 +1337,8 @@ guarding and preserving them. And He is the Most
 High, the Most Great. [al-Baqarah: 255]
 (72)
 
-‘None has the right to be worshipped except Alla>h,
 60
 
-alone, without any partner, to Him belong all
 sovereignty and praise, He gives life and causes
 death and He is over all things omnipotent.’
 [ten times after the maghrib and fajr prayers]
@@ -1427,7 +1388,6 @@ evening42
 
 ‘All praise is for Alla>h, alone, and prayers and peace
 be upon the last and final Prophet.’43
-_________________
 41 Su>rah Al Imra>n (3): 159
 42 [
 ], translated morning: after Fajr prayer until the sun rises. [
@@ -1457,7 +1417,6 @@ Abu> Dawu>d, 2/698.
 Then recite A<yat al-Kursi>44
 (76)
       
-_________________
 44 Su>rah al-Baqarah: 255. Whoever says it in the morning will be protected
 from the jinn until the evening and whoever says it in the evening will be
 protected from the jinn until the morning.
@@ -1475,7 +1434,6 @@ protected from the jinn until the morning.
 (77)
 
 .
-_________________
 45 Whoever says this three times in the morning and evening, it will suffice
 him of all else.
 
@@ -1501,7 +1459,6 @@ morning and by Your leave we have reached the
 evening, by Your leave we live and die and unto
 You is our resurrection.’
 In the evening:
-_________________
 46 For the evening one says:
 47 For the evening, one reads:
 
@@ -1537,7 +1494,6 @@ Muh}ammad is Your Servant and Messenger.’49
 [four times in the morning and evening.]50
 (81)
 
-_________________
 48 Whoever says this being certain about it in the evening and then dies that
 night will enter Paradise, and the same applies for the morning.
 49 Whoever says this four times in the morning or evening, Alla>h will free
@@ -1563,7 +1519,6 @@ hearing health, O Alla>h, grant my sight health.
 None has the right to be worshipped except You. O
 Alla>h, I take refuge with You from disbelief and
 poverty, and I take refuge with You from the
-_________________
 51 For the evening, one reads
 
 instead of
@@ -1582,7 +1537,6 @@ Lord of the exalted throne.’52 [seven times morning
 and evening]
 (84)
 
-_________________
 52 Whoever says this seven times in the morning and evening, Alla>h suffices
 him with regard to the affairs of the world and Hereafter that worry him.
 
@@ -1621,7 +1575,6 @@ All-Seeing, The All-Knowing.’54 [three times]
 
 ‘I am pleased with Alla>h as a Lord, and Isla>m as a
 religion and Muh}ammad as a Prophet.’55 [three
-_________________
 53 Shirk : To associate others with Alla>h in those things which are specific
 to Him. This can occur in (1) belief, e.g. to believe that other than Alla>h
 has the power to benefit or harm, (2) speech, e.g. to swear by other than
@@ -1647,7 +1600,6 @@ for the blink of an eye.’
 ‘We have reached the morning and at this very time
 all sovereignty belongs to Alla>h, Lord of the worlds.
 O Alla>h, I ask You for the good of this day, its
-_________________________________
 upon Alla>h [which he declares upon Himself, benevolently] to please him
 on the Day of Resurrection.
 
@@ -1668,7 +1620,6 @@ was not of those who associate others with Alla>h.’59
 (91)
 
 ‘How perfect Alla>h is and I praise Him.’60 [one
-_________________
 56 For the evening, the supplication is read as follows:
 .
 57 i.e. the religion of Isla>m, the way of Ibra>hi>m .
@@ -1683,18 +1634,12 @@ instead of
 hundred times]
 (92)
 
-‘None has the right to be worshipped except Alla>h,
-alone, without any partner, to Him belong all
 sovereignty and praise, and He is over all things
 omnipotent.’
 [ten times or once if lazy]
 (93)
 
 .
-‘None has the right to be worshipped except Alla>h,
-alone, without any partner, to Him belong all
-sovereignty and praise and He is over all things
-_________________________________
 says this one hundred times in the morning and evening except one who
 says the same or more than this.
 
@@ -1713,7 +1658,6 @@ weight of His throne, and the ink of His words.’
 beneficial and sustenance which is good, and deeds
 which are acceptable.’
 [in the morning]
-_________________
 61 Whoever says this one hundred times in a day, has indeed gained the
 reward of freeing ten slaves, one hundred merits are recorded for him, one
 hundred sins are wiped away, he has found a safe retreat from the devil
@@ -1735,7 +1679,6 @@ He has created.’62
 
 ‘O Alla>h, send prayers and peace upon our Prophet
 Muh}ammad.’63 [ten times]
-_________________
 62 Whoever says it three times as the evening sets in, the fever of that night
 will not harm him.
 63 The Prophet  said ‘Whoever sends prayers to me ten times in the
@@ -1763,7 +1706,6 @@ The Prophet  also said: ‘Whoever recites the last
 two A<ya>t of su>rah al-Baqarah at night, those two
 A<ya>t shall be sufficient for him67:’
 [al-Baqarah: 285-286]
-_________________
 64 A form of spitting comprising mainly of air with little spittle.
 65 Su>rah’s al-Ikhla>s}, al-Falaq and an-Na>s.
 66 The A<yah of the foot-stool, Su>rah Baqarah 255.
@@ -1849,7 +1791,6 @@ than a servant? When you go to bed say:
 servant.’
 (107)
 
-_________________
 68 The Prophet  was addressing ‘A<’ishah and Fa>t{imah -may Alla>h be
 pleased with them - when they approached him for a servant.
 
@@ -1864,7 +1805,6 @@ You from the evil of all things You shall seize by
 the forelock72. O Alla>h, You are The First so there is
 nothing before You and You are The Last so there
 is nothing after You. You are az}-Z{a>hir73 so there is
-_________________
 69 The book revealed to Mu>sa> 
 70 The book revealed to ‘Isa> 
 71 One of the many names of the Qur’a>n, means: The Criterion, which
@@ -1887,7 +1827,6 @@ us, for how many have none to suffice them or
 shelter them.’
 (109)
 
-_________________________________
 of every single creation in respect to His greatness and Highness, for He is
 above all of His creation as regards His essence and attributes.
 74 al-Ba>t}in: Indicates His awareness and knowledge of all secrets, of that
@@ -1912,7 +1851,6 @@ recited su>rah as-Sajdah and su>rah al-Mulk76.’
 ‘If you take to your bed, then perform ablution, lie
 on your right side and then supplicate:
 
-_________________
 75 See footnote 53.
 76 Su>rahs 32 & 67.
 
@@ -1938,8 +1876,6 @@ of Alla>h  used to say at night if he turned during
 sleep:
 
 .
-‘None has the right to be worshipped except Alla>h,
-_________________
 77 See footnote 57.
 
 86
@@ -1963,7 +1899,6 @@ dream is from the devil, so if anyone sees something
 which pleases him then he should only relate it to
 one whom he loves...’
 Summary of what to do upon having a bad dream:
-_________________
 78 The One Who has subdued all of creation and Whom all of creation are
 subservient to. All movements occur by His will.
 
@@ -1982,7 +1917,6 @@ Get up and pray if you so desire.
 
 .
 ‘O Alla>h, guide me along with those whom You
-_________________
 79 See footnote 64.
 80 Supplication made before or after bowing in the witr prayer.
 
@@ -2006,7 +1940,6 @@ cannot enumerate Your praise. You are as You have
 praised Yourself.’
 (118)
 
-_________________
 81 See footnote 23.
 
 89
@@ -2040,7 +1973,6 @@ elongate it and add:
 son of Your maidservant, my forelock is in Your
 hand82, Your command over me is forever executed
 and Your decree over me is just. I ask You by every
-_________________
 82 See footnote 72.
 
 91
@@ -2062,13 +1994,11 @@ powered by men.’
 35. Supplication for one in distress
 (122)
 
-_________________
 83 The Prophet  used to mention this supplication frequently, see AlBukha>ri> with Al-Fath}, 11/173.
 
 92
 
 .
-‘None has the right to be worshipped except Alla>h,
 The Supreme, The Most-Forbearing. None has the
 right to be worshipped except Alla>h, Lord of the
 magnificent throne. None has the right to be
@@ -2176,7 +2106,6 @@ opposed to what is unlawful, and spare me by Your
 grace, of need of others.’
 (137)
 
-_________________
 84 See footnotes 73 and 74.
 
 98
@@ -2199,7 +2128,6 @@ spit85 on your left side three times.’
 become difficult
 (139)
 
-_________________
 85 See footnote 64.
 
 99
@@ -2223,7 +2151,6 @@ The Adha>n [call to prayer].
 (143)
 Recitation of the Qur‘a>n and the [authentic] words
 of remembrance and supplications87.
-_________________
 86 See Su>rah al-Mu’minu>n (23): 98-99.
 87 e.g. ‘Do not make your homes like the graveyards, indeed the devils flee
 
@@ -2244,7 +2171,6 @@ Rather, say:
 ‘Alla>h has decreed and what He wills, He does.’
 ...for verily ‘If ‘ lets in the work of the devil.’
 
-_________________________________
 from the house in which su>rah Al-Baqarah has been read.’ Related by
 Muslim 1/539, also supplications and remembrance for the morning and
 evening, before sleeping, when getting up, entering and leaving the house,
@@ -2316,7 +2242,6 @@ all hope of life
 (150)
 .
 ‘O Alla>h, forgive me, have mercy upon me and unite
-_________________
 89 Another du‘a> that could be said is the one reported by Bukhari and
 Muslim from the <<hadith< of ‘A<’ishah may Allah be pleased with her, who
 said that when the Prophet,  visited a member of his family who was
@@ -2334,7 +2259,6 @@ related that the Prophet 
 dip his hands in water and then he would wipe his
 face and say:
 .
-‘None has the right to be worshipped except Alla>h,
 death does indeed contain agony.’
 (152)
 
@@ -2343,7 +2267,6 @@ death does indeed contain agony.’
 and Alla>h is the greatest. None has the right to be
 worshipped except Alla>h, alone. None has the right
 to be worshipped except Alla>h, alone, without any
-_________________
 90 Refer to the Qur’a>n, Su>rah 4, A<yah: 69.
 
 105
@@ -2365,7 +2288,6 @@ Alla>h.’
 .
 ‘To Alla>h we belong and unto Him is our return. O
 Alla>h, recompense me for my affliction and replace
-_________________
 91 i.e. those around the sick should instruct and encourage him to say the
 shaha>dah.
 
@@ -2385,7 +2307,6 @@ for him.’
 55. Supplication for the deceased at the funeral
 prayer
 (156)
-_________________
 92 [
 ] A successor: one who succeeds another due to the latter’s absence
 or death. This is the correct meaning of the word khali>fah; thus, it is
@@ -2443,7 +2364,6 @@ during the funeral prayer93
 
 One can also say:
 
-_________________
 93 This supplication is made when the deceased is a baby/child [i.e. one not
 having reached the age of puberty].
 
@@ -2485,7 +2405,6 @@ solace and forgive your deceased.’95
 Messenger of Alla>h.’
 59. After burying the deceased
 (164)
-_________________
 94 The words [
 ] are commands in the feminine 3rd person form,
 so they will need to be changed with respect to whom is being addressed.
@@ -2631,7 +2550,6 @@ from myself.’
 praise, a never-ending praise, a praise which we will
 never bid farewell to and an indispensable praise,
 He is our Lord96.’
-_________________
 96 There are other views as regard to the understanding of this supplication,
 from them: ‘Alla>h be praised with an abundant beautiful blessed praise.
 He is The One Who is sufficient, feeds and is not fed, The One Who is
@@ -2655,7 +2573,6 @@ drink him who provided me with drink.’
 (184)
 
 .
-_________________________________
 longed for, along with that which is with Him and The One Who is
 needed, He is our Lord.’
 
@@ -2698,7 +2615,6 @@ him:
 ‘May Alla>h guide you and rectify your condition.’
 78. What is said to a ka>fir when he sneezes
 (189)
-_________________
 97 A s}a>’ is equivalent to four mudds and a mudd is equivalent to a dry
 measure of an average man’s two palms.
 
@@ -2741,7 +2657,6 @@ have blessed us with.’
 83. Supplication said upon seeing someone in trial
 or tribulation98
 (194)
-_________________
 98 This supplication is to be said to one’s self, not directly to the one in trial
 or tribulation.
 
@@ -2778,7 +2693,6 @@ him:
 .
 ‘May Alla>h forgive you, O Messenger of Alla>h.’
 ...he  replied:
-_________________
 99 ‘A<’ishah
 said: ‘Whenever The Messenger of Alla>h  would
 betake a seat, read Qur’a>n or pray, he would always conclude it with
@@ -2809,7 +2723,6 @@ One should also seek refuge with Alla>h from the
 tribulations of the Dajja>l after the last tashahhud of
 every prayer101.
 
-_________________
 100 See footnote 31.
 101 Refer to supplications 55 and 56.
 
@@ -2855,7 +2768,6 @@ distribution. When the servant would come back
 [from distributing it], ‘A<‘ishah would ask: ‘What
 did they say?’, he replied: ‘They would supplicate:
 .
-_________________
 102 See footnote 53.
 
 129
@@ -2873,7 +2785,6 @@ our reward remains with us.
 ‘O Alla>h, there is no omen but there is reliance on
 You, there is no good except Your good and none
 has the right to be worshipped except You.’104
-_________________
 103 This supplication is used whenever one initially thinks a casual event or
 occurrence to foretell good or evil, using it as a basis to determine which
 action he should undertake, but he then denounces such a link, relies on
@@ -2916,7 +2827,6 @@ You for birr and taqwa>105 in this journey of ours, and
 we ask You for deeds which please You. O Alla>h,
 facilitate our journey and let us cover it’s distance
 quickly. O Alla>h, You are The Companion on the
-_________________
 105 Birr and Taqwa>: Two comprehensive terms which individually, refer to
 all good actions and obedience i.e. performing the commanded actions
 and avoiding the prohibited actions. When combined together, birr refers
@@ -2939,7 +2849,6 @@ etc.
 (208)
 
 .
-_________________
 106 See footnote 92.
 
 133
@@ -2957,7 +2866,6 @@ inhabitants and from all the evil found within it.’
 (209)
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner, to Him belongs all
 sovereignty and praise. He gives life and causes
 death, and He is living and does not die. In His hand
@@ -3001,7 +2909,6 @@ Ja>bir  said: While ascending, we would say:
 
 .
 ‘May a witness, be witness to our praise of Alla>h for
-_________________
 107 See previous footnote.
 
 136
@@ -3027,7 +2934,6 @@ the greatest.’
 137
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner. To Him belong all
 sovereignty and praise, and He is over all things
 omnipotent. We return, repent, worship and praise
@@ -3190,9 +3096,7 @@ the greatest.’
 making a supplication108 after each time:
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner. To Him belong all
-sovereignty and praise and He is over all things
 omnipotent. None has the right to be worshipped
 except Alla>h alone. He fulfilled His promise, aided
 His Servant and single-handedly defeated the
@@ -3204,13 +3108,11 @@ allies.’
 day of ‘Arafah and the best which I and the
 Prophets before me have said is:
 
-_________________
 108 One should make a personal supplication.
 
 145
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner. To Him belong all praise
 and sovereignty and He is over all things
 omnipotent.’
@@ -3227,7 +3129,6 @@ Every time the Prophet  threw a pebble at any of
 the three jamara>t, he would say:
 .
 ‘Alla>h is the greatest.’
-_________________
 109 The name of the Prophet’s  camel.
 110 Stoning the three areas at Mina> during H{ajj.
 
@@ -3268,7 +3169,6 @@ something or someone with one’s eye111
 ‘If you see something from your brother, yourself or
 wealth which you find impressing, then invoke
 blessings for it, for the evil eye is indeed true’.
-_________________
 111 The Evil Eye: To look at something and be impressed with it, causing
 harm to befall it. This “looking” may or may not involve jealousy, and
 can occur unintentionally, indeed be part of a person’s nature! A person
@@ -3339,7 +3239,6 @@ is when he is prostrate, so supplicate much therein.’
 (253)
 He  also said: ‘Verily my heart becomes
 preoccupied112, and verily I seek Alla>h’s forgiveness
-_________________
 112 i.e. in a state of ‘forgetfulness’. The Prophet  always used to increase in
 his remembrance of his Lord, in attaining a nearness to Alla>h and having
 consciousness of Alla>h to the extent that if this intensity lessened in
@@ -3362,10 +3261,7 @@ Abu> Ayu>b al-Ans}a>ri  related that The Prophet 
 said: ‘Whoever says:
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone, without any partner. To Him belong all
-sovereignty and praise and He is over all things
-_________________
 113 See (91) regarding the virtue of saying this one hundred times in the
 morning and evening.
 
@@ -3389,7 +3285,6 @@ Alla>h  said: ‘Saying:
 .
 ‘How perfect Alla>h is, and all praise is for Alla>h.
 None has the right to be worshipped except Alla>h,
-_________________
 114 See (93) concerning the virtue of one who says this one hundred times a
 day.
 
@@ -3441,7 +3336,6 @@ said: ‘Say:
 155
 
 .
-‘None has the right to be worshipped except Alla>h,
 alone without any partner. Alla>h is most great and
 much praise is for Alla>h. How perfect Alla>h is, Lord
 of the worlds. There is no might nor power except
@@ -3456,7 +3350,6 @@ T{ariq al-Ashja1X  said: ‘When someone would
 embrace Isla>m, the Prophet  would teach him how
 to perform prayer and then order him to supplicate
 with the following words:
-_________________
 115 Abu> Dawu>d added: “When the Bedouin left, the Prophet  said, ‘He has
 indeed filled his hands with good’.” 1/220
 
@@ -3501,7 +3394,6 @@ O Alla>h, send peace and blessings upon our Prophet
 Muh}ammad, his companions, and his family and all
 those who follow them in righteousness till the Day
 of Reckoning.
-_________________
 116 Tasbi>h}, it means here, to say:
 .
 

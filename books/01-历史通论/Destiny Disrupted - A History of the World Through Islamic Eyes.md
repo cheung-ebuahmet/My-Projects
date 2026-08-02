@@ -1,7 +1,5 @@
 # Destiny Disrupted - A History of the World Through Islamic Eyes
 
-> 来源: Destiny Disrupted - A History of the World Through Islamic Eyes.pdf
-
 TAMIM
 
 ANSARY
@@ -67,7 +65,6 @@ events behind the modern-day hostilities wracking Western and
 Islamic societies."
 -Portland Oregonian
 
-DESTINY DISRUPTED
 
 THE ISLAMIC WORLD TODAY
 
@@ -660,7 +657,6 @@ carrying civilizational blood. Societies permeated by a network of such
 
 4
 
-DESTINY DISRUPTED
 
 capillaries are apt to become characters in one another's narratives, even if
 they disagree about who the good guys and the bad guys are.
@@ -695,7 +691,6 @@ habitable plains and can be approached from any direction. Geography
 provides no natural defenses to the people living here-unlike the Nile, for
 example, which is flanked by marshes on its eastern side, by the uninhab-
 
-THE MIDDLE WORLD
 
 5
 
@@ -731,7 +726,6 @@ smote him."
 
 6
 
-DESTINY DISRUPTED
 
 Sargon led his armies so far south they were able to wash their weapons
 in the sea. There he said, "Now, any king who wants to call himself my
@@ -765,7 +759,6 @@ But the Chaldeans followed the Assyrian strategy of uprooting whole
 populations in order to divide and rule. Their king Nebuchadnezzar was
 the one who first smashed Jerusalem and dragged the Hebrews into captivity. It was also a Chaldean king of Babylonia, Balshazzar, who, while
 
-THE MIDDLE WORLD
 
 7
 
@@ -804,7 +797,6 @@ them. They set the Hebrews free from captivity and helped them get back to
 
 8
 
-DESTINY DISRUPTED
 
 Canaan. The Persian emperors pursued a multicultural, many-peopleunder-one-big-tent strategy. They controlled their enormous realm by letting all the different constituent people live their own lives according to
 their own folkways and mores, under the rule of their own leaders, provided
@@ -835,7 +827,6 @@ growing crops, and making useful goods.
 The part of Darius's Behistun inscription written in Old Persian was
 decipherable from modern Persian, so after it was rediscovered in the nineteenth century, scholars were able to use it to unlock the other two languages and thus gain access to the cuneiform libraries of ancient
 
-THE MIDDLE WORLD
 
 9
 
@@ -872,7 +863,6 @@ their choices. The Persian Zoroastrians rejected religious statues, imagery,
 
 10
 
-DESTINY DISRUPTED
 
 and icons, laying the basis for the hostility toward representation in religious art that reemerged forcefully in Islam.
 Sometimes Zoroaster, or at least his followers, called Ahura Mazda "the
@@ -899,7 +889,6 @@ quickly forgot, however, for less than one generation later, Darius's
 dimwitted son Xerxes decided to avenge his father by repeating and compounding his mistakes. Xerxes, too, came limping home, and that was the
 end of Persia's European adventure.
 
-THE MIDDLE WORLD
 
 11
 
@@ -938,7 +927,6 @@ corps as well, lightly dad men riding naked horses. As a battle tactic, the
 
 12
 
-DESTINY DISRUPTED
 
 light cavalry sometimes pretended to have been routed; in the hot middle
 of the fighting, they would suddenly turn tail and race away. The army
@@ -971,7 +959,6 @@ Parthians were taking Babylonia. Just as Julius Caesar was tearing up Gaul,
 Parthian power was peaking in the Middle World. In 53 BCE the Parthians
 crushed the Romans in a battle, capturing thirty-four thousand legion-
 
-THE MIDDLE WORLD
 
 13
 
@@ -1006,7 +993,6 @@ services shrank, law and order broke down, and trade decayed. Schools
 
 14
 
-DESTINY DISRUPTED
 
 foundered, western Europeans stopped reading or writing much, and Europe sank into its so-called Dark Ages. Roman cities in places like Germany and France and Britain fell into ruin, and society simplified down to
 serfs, warriors, and priests. The only institution binding disparate locales
@@ -1037,7 +1023,6 @@ century, the Byzantines ruled most of Asia Minor and some of what we
 now call eastern Europe. They butted right up against Sassanid Persia, the
 region's other superpower. The Sassanids ruled a swath of land stretching
 
-THE MIDDLE WORLD
 
 15
 
@@ -1073,7 +1058,6 @@ structure resembled that of the Arabs. Some Arabs were nomadic Bedouins
 
 18
 
-DESTINY DISRUPTED
 
 who lived in the desert, but others were town dwellers. Mohammed, the
 prophet of Islam, was born and raised in the highly cosmopolitan town of
@@ -1143,7 +1127,6 @@ saw a light with something like a human shape within it, which was only
 
 20
 
-DESTINY DISRUPTED
 
 more thunderous and terrifying. At home, he told Khadija what had happened, and she assured him that he was perfectly sane, that his visitor had
 really been an angel, and that he was being called into service by God. "I
@@ -1213,7 +1196,6 @@ another town near the Red Sea coast, some 250 miles north of Mecca. It
 
 22
 
-DESTINY DISRUPTED
 
 was an agricultural rather than a commercial town and it was torn by con-
 
@@ -1283,7 +1265,6 @@ him for legislation, political direction, and social guidance. The word hijra
 
 24
 
-DESTINY DISRUPTED
 
 means "severing of ties." People who joined the community in Medina renounced tribal bonds and accepted this new group as their transcendent
 affiliation, and since this community was all about building an alternative
@@ -1354,7 +1335,6 @@ in raids on these Meccan caravans (which helped solve another problem
 
 26
 
-DESTINY DISRUPTED
 
 the Meccan emigrants faced: how to support themselves now that they had
 lost their goods and businesses.)
@@ -1423,7 +1403,6 @@ Qurayshi allies. With no battle to fight, they got restless. When a windstorm
 
 28
 
-DESTINY DISRUPTED
 
 blew up-no small matter in this landscape-they drifted off, and soon the
 Quraysh gave up and went home too.
@@ -1491,7 +1470,6 @@ which means "the realm of submission (to God)" but also, by implication,
 
 30
 
-DESTINY DISRUPTED
 
 "the realm of peace." Everyone else was living out there in Dar al-Harb,
 the realm of war. Those who joined the Umma didn't have to watch their
@@ -1577,7 +1555,6 @@ culture: men and women whose job it was to gather, remember, and retell
 
 34
 
-DESTINY DISRUPTED
 
 significant events. He was the first of his line to write the whole story
 down, but most of his book has been lost. Before it disappeared, however,
@@ -1648,7 +1625,6 @@ a single leader for the whole community. He pleaded, not a prophet, not a
 
 36
 
-DESTINY DISRUPTED
 
 king, just someone to call meetings, moderate discussions, and hold the
 community together. "Choose one of these two," he suggested, pointing to
@@ -1681,7 +1657,6 @@ But Ali was almost thirty years Mohammed's junior, and in tribal Arab
 culture a much-older brother had a near paternal status with his sibling. In
 fact, as a little boy, Ali had moved in with Mohammed and Khadija and
 
-BIRTH OF THE KHALIFATE
 
 37
 
@@ -1719,7 +1694,6 @@ from the enormity of what had happened, only to find that while he was
 
 38
 
-DESTINY DISRUPTED
 
 preparing Mohammed's body for burial, Mohammed's peer-group companions had been picking a successor for Mohammed, not only passing
 over Ali but failing even to consult him, failing even to inform him that
@@ -1754,7 +1728,6 @@ now be resolved by an appeal to evidence. It can only reflect the position
 one takes on the theological schism that developed out of the succession,
 for the disagreement between proponents of Abu Bakr and Ali eventually
 
-BIRTH OF THE KHALIFATE
 
 39
 
@@ -1790,7 +1763,6 @@ The new khalifa proved himself a formidable strategist. It took him a little ove
 
 40
 
-DESTINY DISRUPTED
 
 Arabia. At home, however, in his dealings with the Muslim community, he
 exhibited nothing but the modesty, affection, and benevolence people
@@ -1823,7 +1795,6 @@ like a man on horseback. His head was completely bald, his face ruddy, his
 whiskers huge. He was ambidextrous and strong as a bull, and he had an
 epic temper. 2
 
-BIRTH OF THE KHALIFATE
 
 41
 
@@ -1858,7 +1829,6 @@ would see the tender Omar.
 
 42
 
-DESTINY DISRUPTED
 
 The Umma soon realized their second khalifa was a towering personality, even more imposing than Abu Bakr, perhaps. Omar directed the
 Umma for ten years, and during that time he set the course oflslamic theology, he shaped Islam as a political ideology, he gave Islamic civilization
@@ -1889,7 +1859,6 @@ need. Once, somebody who saw him at this labor offered to carry the bag
 for him, but Omar said, "You can carry my burden for me here on Earth,
 but who will carry it for me on the Day ofJudgment?"
 
-BIRTH OF THE KHALIFATE
 
 43
 
@@ -1923,7 +1892,6 @@ He called on Muslims to topple the Sassanid empire, a proposal of breathtaking a
 
 44
 
-DESTINY DISRUPTED
 
 Omar's decision to call a war of conquest a "jihad" has obvious ramifications for modern times and has been much debated. In Mohammed's
 day, the word jihad did not loom large. Etymologically, as I said, it didn't
@@ -1957,7 +1925,6 @@ Sassanid army of sixty thousand crack troops. Only a river separated them.
 Several times, the Arab commander Waqqas sent envoys to negotiate with
 Rustum, the commander of the Sassanid force. As the story goes, General
 
-BIRTH OF THE KHALIFATE
 
 45
 
@@ -1997,7 +1964,6 @@ from Qadisiya.
 
 46
 
-DESTINY DISRUPTED
 
 "Yes," said the courier.
 "What's the news, then? What's the news?" the old man asked eagerly.
@@ -2032,7 +1998,6 @@ sort of thing we Muslims do. Continue to live and worship as you please;
 just know that from now on we Muslims will be living among you, worshipping in our way, and setting a better example. If you like what you see,
 join us. If not, so be it. Allah has told us: no compulsion in religion." 3
 
-BIRTH OF THE KHALIFATE
 
 47
 
@@ -2068,7 +2033,6 @@ to the world: fellowship, fairness, harmony, decency, democratic participation i
 
 48
 
-DESTINY DISRUPTED
 
 Muslim community during the early khalifate exemplified these ideals so
 much more than ordinary empires, that later Muslims could easily polish
@@ -2100,7 +2064,6 @@ fifty years, Islam expanded to the western edge of the Indian Ocean, to the
 eastern lip of the Mediterranean Sea, to the Nile, to the Caspian Sea, to the
 Persian Gul£ In this area, this intercommunicative zone so richly permeated with preexisting channels of interaction, Muslim stories and ideas
 
-BIRTH OF THE KHALIFATE
 
 49
 
@@ -2134,7 +2097,6 @@ each verse before witnesses, and these verses were organized into one comprehens
 
 50
 
-DESTINY DISRUPTED
 
 Whenever a difficult decision came up, Omar looked here for the answer. If the Qur'an didn't provide an answer, he consulted with the community to find out what the Prophet had said or done in a similar
 situation. In this case, "the community" meant the several hundred men
@@ -2162,7 +2124,6 @@ Omar's detractors charge him with misogyny, and his rulings do suggest that he h
 defuse the disruptive power of sexuality, Omar took measures to regulate
 and separate the roles of men and women, mandating, for example, that
 
-BIRTH OF THE KHALIFATE
 
 51
 
@@ -2196,7 +2157,6 @@ Ironically, Omar's own career ended when an emotionally unstable Persian slave d
 
 52
 
-DESTINY DISRUPTED
 
 some of the community's notables asked him to nominate his successor as
 Abu Bakr had done, in order to ensure a smooth transition. "How about
@@ -2238,7 +2198,6 @@ evening when he was on his way home from a successful business trip.
 
 54
 
-DESTINY DISRUPTED
 
 Reputedly, Othman had stopped someplace for the night and was lying
 under the stars, looking up at the black dome of the sky, when the immensity of the universe suddenly overwhelmed him. Along with a crushing
@@ -2306,7 +2265,6 @@ khalifate was the preparation of a definitive edition of the Qur'an. He set
 
 56
 
-DESTINY DISRUPTED
 
 scholars to work combing out redundancies among the copies that existed,
 resolving discrepancies, and evaluating passages whose authenticity was
@@ -2375,7 +2333,6 @@ Prophet, however, was never one to hold a grudge: as soon as someone
 
 58
 
-DESTINY DISRUPTED
 
 embraced Islam, he or she became part of the family, and so it was with the
 Umayyads. The Prophet thought Mu'awiya especially competent and kept
@@ -2453,7 +2410,6 @@ things had gone so off kilter that Muslims had murdered their khalifa, now
 
 60
 
-DESTINY DISRUPTED
 
 when his successor would face an impossible challenge, now the Umma
 was saying, "Take the reins, Ali."
@@ -2526,7 +2482,6 @@ too, against Ali. Both sides claimed to be fighting for truth, justice, and
 
 62
 
-DESTINY DISRUPTED
 
 the Islamic way, yet each was calling on Muslims to fight other Muslims.
 This wasn't what they called jihad back in the good old days!
@@ -2598,7 +2553,6 @@ calls that both armies pull back and let the two leaders settle the dispute
 
 64
 
-DESTINY DISRUPTED
 
 with hand-to-hand combat. Ali, who was fifty-eight years old but still a
 fearsome physical specimen, eagerly accepted the challenge. Mu'awiya,
@@ -2668,7 +2622,6 @@ some essential aspect of the project, but no one of them was big enough to
 
 66
 
-DESTINY DISRUPTED
 
 grasp the whole of it, as Mohammed had done. The Prophet's immediate
 successors were like the six blind men trying to discern whether the elephant was more like a rope, a wall, a pillar, or what. All the struggles over
@@ -2701,7 +2654,6 @@ the end they dutifully chose Yazid to be their next khalifa, and when they
 
 68
 
-DESTINY DISRUPTED
 
 went home that night, they all knew the principle of succession would
 never come up for discussion again.
@@ -2766,7 +2718,6 @@ virtue, he said, and he would not disavow that truth.
 
 70
 
-DESTINY DISRUPTED
 
 One by one, the warriors in Hussein's band sallied forth to fight Yazid's
 army. One by one they fell. The women, children, and old folks, meanwhile, all died of thirst. When the last of the party was gone, the victorious general swooped in, cut off Hussein's head, and shipped it to the
@@ -2837,7 +2788,6 @@ hope lay in the possibility of God producing a miracle-but then, the
 
 72
 
-DESTINY DISRUPTED
 
 continuing possibility of miracle was the principle he embodied. He and
 his band chose death as symbolic refusal to disavow this possibility, and, in
@@ -2905,7 +2855,6 @@ political success had functioned as Islam's core confirming miracle. Jesus may
 
 74
 
-DESTINY DISRUPTED
 
 have healed the blind and raised the dead. Moses may have turned a staff
 into a snake and led an exodus for which the Red Sea parted. Visible mirades of this ilk proved the divinity or divine sponsorship of those prophets.
@@ -2976,7 +2925,6 @@ Basra, issued by Mu'awiya's adopted brother Ziyad, whom he had appointed
 Atlantic
 Ocean
 
-DESTINY DISRUPTED
 
 Indian
 Ocean
@@ -3036,7 +2984,6 @@ times saw an Arabization and Islamification of the Muslim realm.
 
 78
 
-DESTINY DISRUPTED
 
 When I say Islamification, I mean that growing numbers of people in
 territories ruled by the khalifa abandoned their previous faiths-Zoroastrian,
@@ -3095,7 +3042,6 @@ killed by thugs.
 
 80
 
-DESTINY DISRUPTED
 
 All this came at a price however, the usual price of stability, which ensures that whatever is the case one day is even more the case the next day.
 The rich got richer. The poor increased in numbers. Cities with magnificent architecture sprang up, but so did vast slums sunk in squalid poverty.
@@ -3161,7 +3107,6 @@ fuel insurgencies.
 
 82
 
-DESTINY DISRUPTED
 
 As time went on, however, Kharijites fizzled out because they were such
 extreme purists at a time when more and more people were acquiring a
@@ -3229,7 +3174,6 @@ revolution succeeded. Those who longed for a descendant of Ali could
 
 84
 
-DESTINY DISRUPTED
 
 imagine that such a figure was waiting in the wings, anonymous for the
 moment only for security reasons.
@@ -3291,7 +3235,6 @@ weren't waiters, it turned out, but executioners. The Umayyads jumped to
 
 86
 
-DESTINY DISRUPTED
 
 their feet, but too late: the doors had all been locked. The soldiers proceeded to club the Umayyads to death. From that time on, Abbas went by
 a new title, al-Saffah, which means "the slaughterer." Apparently, he took
@@ -3364,7 +3307,6 @@ nerve center for the world's biggest empire. 1
 
 88
 
-DESTINY DISRUPTED
 
 It took five years to build the Round City. Some one hundred thousand
 designers, craftspeople, and laborers worked on it. These workers lived all
@@ -3444,7 +3386,6 @@ day;
 
 92
 
-DESTINY DISRUPTED
 
 zakat, to give a certain percentage of one's wealth to the poor each year;
 sawm (or roza), to fast &om dawn to dusk during the month of Ramadan
@@ -3516,7 +3457,6 @@ there were people, the community would fragment, and the world might
 
 94
 
-DESTINY DISRUPTED
 
 swallow up the pieces and who was to say the great revelation would not
 then vanish as if it had never been?
@@ -3547,7 +3487,6 @@ army of professional scholars (called "people of the bench'' or sometimes
 Hadith, however, proliferated faster than any small group of scholars
 could control. New ones were constantly coming to light. By Umayyad
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3586,7 +3525,6 @@ of transmission for a particular hadith. He found the first link credible; the
 
 96
 
-DESTINY DISRUPTED
 
 second man passed muster too; but when Bukhari went to interview the
 third man in the chain of transmission, he found the fellow beating his
@@ -3616,7 +3554,6 @@ or analogical reasoning, the method Khalifa Omar used to discover the
 punishment for drinking (and to make many other rulings). That is, for
 each unprecedented contemporary situation, scholars had to find an anal-
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3651,7 +3588,6 @@ such details.
 
 98
 
-DESTINY DISRUPTED
 
 The four schools of Sunni law are named for the scholars who gave
 them final shape. Thus, the Hanafi school was founded by Abu Hanifa,
@@ -3684,7 +3620,6 @@ anyone. Islam has no pope and no official clerical apparatus. How, then,
 did someone get to be a member of the ulama? By gaining the respect of
 people who were already established ulama. It was a gradual process. There
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3725,7 +3660,6 @@ Mohammed's apocalyptic insistence on the oneness of Allah. Better yet,
 
 100
 
-DESTINY DISRUPTED
 
 when they looked into Plotinus, they found that he had constructed his
 system with rigorous logic from a small number of axiomatic principles,
@@ -3764,7 +3698,6 @@ Spatial Matter
 
 J.
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3803,7 +3736,6 @@ adding a few of their own, to invent algebra and indeed to lay the foundations o
 
 102
 
-DESTINY DISRUPTED
 
 On the other hand, their interests directed the philosophers into practical concerns. By compiling, cataloging, and cross-referencing medical
 discoveries from many lands, thinkers like Ibn Sina (Avicenna to the Europeans) achieved a near-modern understanding of illness and medical
@@ -3832,7 +3764,6 @@ method for seeking truth: experimentation and reason without recourse to
 revelation. In the West, for most people, the two fields have reached a
 compromise by agreeing to distinguish their fields of inquiry: the princi-
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3867,7 +3798,6 @@ and universality of Allah. From this, they argued that the Qur'an could
 
 104
 
-DESTINY DISRUPTED
 
 not be eternal and uncreated (as the ulama proclaimed) because if it were,
 the Qur'an would constitute a second divine entity alongside Allah, and
@@ -3902,7 +3832,6 @@ The philosopher scientists generally affiliated themselves with the
 Mu'tazilite school, no doubt because it validated their mode of inquiry.
 Some of these philosophers even rated reason above revelation. The
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -3942,7 +3871,6 @@ place as a way to discover how the shari' a applied to new situations, but
 
 106
 
-DESTINY DISRUPTED
 
 Ibn Hanbal drastically demoted such methods: rely only on Qur'an and
 hadith, he said.
@@ -3973,7 +3901,6 @@ THE SUFIS
 Almost from the start, however, as the scholars were codifying the law,
 some people were asking, "Is this all the revelation comes to in the end-
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -4012,7 +3939,6 @@ her parents and sold Rabia into slavery. That's how she ended up in Basra
 
 108
 
-DESTINY DISRUPTED
 
 as a slave in some rich man's household. Her master, the stories say, kept
 noticing a luminous spirituality about her that made him wonder.... One
@@ -4048,7 +3974,6 @@ not teach. She simply radiated, and people in her vicinity changed. This
 became the pattern in Sufism: direct transmission of techniques leading to
 enlightenment from master to mureed, as would-be Sufis were called.
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -4087,7 +4012,6 @@ This was too much. The orthodox scholars demanded action. The Abbasid khalifa wa
 
 110
 
-DESTINY DISRUPTED
 
 about the philosophers. He therefore had Hallaj clapped in prison for
 eleven years, but Hallaj was so lost to the world by this time, he didn't care.
@@ -4119,7 +4043,6 @@ so they were constantly making the Asharites look confused.
 Ghazali came to their rescue. The way to beat the philosophers, he decided, was to join them enough to use their tricks against them. He
 plunged into a study of the ancients, mastered logic, and inhaled the trea-
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -4160,7 +4083,6 @@ read essentially the same argument made again by the American Zen Buddhist Alan 
 
 112
 
-DESTINY DISRUPTED
 
 forth past a narrow slit in a fence. If we're looking through the slit from the
 other side, Watts said, we keep seeing first the head of the cat and then the
@@ -4196,7 +4118,6 @@ had to follow it, but you couldn't reach Allah through book learning and
 good behavior alone. You needed to open your heart, and only the Sufis
 knew how to get the heart opened up.
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -4235,7 +4156,6 @@ followed Othman's death. She even commanded armies in the field, and
 
 114
 
-DESTINY DISRUPTED
 
 no one seemed surprised that a woman would take on this role. Women
 were present at the iconic early battles as nurses and support staff and even
@@ -4266,7 +4186,6 @@ for the sexes. Here, he says that a woman "should remain in the inner sanctum of
 excessively; she should speak infrequently with her neighbors and visit
 them only when the situation requires it; she should safeguard her hus-
 
-SCHOLARS, PHILOSOPHERS, AND
 
 SUFIS
 
@@ -4310,7 +4229,6 @@ generally moving forward. The implications of the holy miracle that blossomed in
 
 118
 
-DESTINY DISRUPTED
 
 deeply and rippled far. Even the Hindus of the Indian heartland were
 weakening. Even sub-Saharan Africa had Muslim converts now. Only
@@ -4378,7 +4296,6 @@ world countries.
 
 120
 
-DESTINY DISRUPTED
 
 The story of King Sancho illustrates how the various communities got
 along. In the late tenth century CE, Sancho inherited the throne of Leon,
@@ -4436,7 +4353,6 @@ Just like the Roman emperors, the Abbasid khalifas surrounded themselves with a 
 
 122
 
-DESTINY DISRUPTED
 
 dog. In Rome, this group was called the Praetorian Guard, and it was
 (ironically) well staffed with Germans recruited from the territories of the
@@ -4509,7 +4425,6 @@ warriors, newly converted to Islam and brutal in their simplistic fanaticism. Ac
 
 124
 
-DESTINY DISRUPTED
 
 waste to crops. The highways grew unsafe, small-time banditry became
 rife, trade declined, poverty spread. Turkish mamluks fought bitterly with
@@ -4578,7 +4493,6 @@ my day teemed with jungle cats, jackals, and wild boar.
 
 126
 
-DESTINY DISRUPTED
 
 Masud himself was a formidable specimen of a man. Too heavy for most
 horses, he customarily rode an elephant, of which he had a whole battalion
@@ -4650,7 +4564,6 @@ served both sides well. The sultans devoted themselves to conquests,
 
 128
 
-DESTINY DISRUPTED
 
 SELJUK EMPIRE: THE TURKS INVADE THE ISLAMIC WORLD
 
@@ -4711,7 +4624,6 @@ only approach to the fortress was a footpath too narrow to accommodate
 
 130
 
-DESTINY DISRUPTED
 
 an army. How Sabbah conquered it, no one knows. Some legends say
 trickery was involved, some that he used supernatural means, some that he
@@ -4779,7 +4691,6 @@ could be sure of an audience.
 
 132
 
-DESTINY DISRUPTED
 
 Then in 1092 they murdered the recently retired Nizam al-Mulk himsel£ Scarcely a month later, they dispatched his master, Sultan Malik Shah,
 son of Alp Arslan. In the space of weeks, they had eliminated the two men
@@ -4819,7 +4730,6 @@ others, it had sunk to a level of bare subsistence. Almost everybody in Europe w
 
 134
 
-DESTINY DISRUPTED
 
 dawn to dark just to scratch up enough food to keep from starving and
 support a thin upper class of military aristocrats and clerics (and since clerics couldn't marry, their ranks were replenished largely out of the military
@@ -4890,7 +4800,6 @@ to get into their own shrines. Every little thing cost money; shopkeepers
 
 136
 
-DESTINY DISRUPTED
 
 ignored them; officials treated them rudely; and petty indignities of every
 sort were piled upon them.
@@ -4961,7 +4870,6 @@ but first they intended to take possession ofNicaea. Arslan plotted out the
 
 138
 
-DESTINY DISRUPTED
 
 route they seemed to be taking, laid an ambush, and smashed them like so
 many ants, killing many, capturing many more, and chasing the rest back
@@ -5035,7 +4943,6 @@ When the Crusaders first arrived, the Egyptian vizier al-Afdal sent a letter to 
 
 140
 
-DESTINY DISRUPTED
 
 and wishing the Crusaders every success! Egypt had long been locked in a
 struggle with both the Seljuks and the Abbasids, and al-Afdal really
@@ -5108,7 +5015,6 @@ with the Crusaders. On the other side, about one third of Jawali's troops
 
 142
 
-DESTINY DISRUPTED
 
 were Franj knights on loan from King Baldwin of Edessa, who had a rivalry going with Tancred. 5 And this was typical.
 On the Muslim side, the absence of unity was breathtaking. It stemmed
@@ -5173,7 +5079,6 @@ leaders, each of whom was greater than the one before. The first of them
 
 144
 
-DESTINY DISRUPTED
 
 was the Turkish general Zangi, who governed Mosul, then took Aleppo,
 and then absorbed many other cities into his domains until he could reasonably call himself the king of a united Syria. This was the first time in
@@ -5239,7 +5144,6 @@ melancholy eyes, but when he smiled, he could light up a room. Charitable to the
 
 146
 
-DESTINY DISRUPTED
 
 with men of might. No one could intimidate him, yet he never stooped to
 intimidating anyone over whom he had power. As a military leader, he was
@@ -5307,7 +5211,6 @@ grown feeble in Europe and at last it just died away.
 
 148
 
-DESTINY DISRUPTED
 
 Historians traditionally count eight Crusades over the course of two
 hundred years, but really there was at least a trickle of crusaders arriving
@@ -5376,7 +5279,6 @@ subsiding, a second and far more catastrophic assault broke out.
 
 150
 
-DESTINY DISRUPTED
 
 ASSAULT FROM THE EAST
 
@@ -5446,7 +5348,6 @@ the envoys and sent the other two home with their beards plucked out. In
 
 152
 
-DESTINY DISRUPTED
 
 this region, one could offer a man no more grievous insult than to pluck
 out his beard. Alaudin knew this full well, but he wanted to give offense,
@@ -5518,7 +5419,6 @@ Baghdad, one in Delhi, gave almost exactly similar accounts of these
 
 154
 
-DESTINY DISRUPTED
 
 THE MONGOL INVASIONS OF THE ISLAMIC WORLD
 
@@ -5577,7 +5477,6 @@ God-fearing and God worshipping are servants of this court and soldiers
 
 156
 
-DESTINY DISRUPTED
 
 in my army? When I motion for all those who are dispersed to come together, I will deal first with Iran and then turn my attention to Turan, and
 I will put everything in its proper place." 10
@@ -5647,7 +5546,6 @@ is expedient, then let me pillage them all-there is no one with more
 
 158
 
-DESTINY DISRUPTED
 
 power to do so than I. Let us rob them together! But-if you commit extortion against the peasants, take their oxen and seed, and cause their crops
 to be consumed-what will you do in the future? You must think, too,
@@ -5687,7 +5585,6 @@ rebuilt and look at them now.
 
 160
 
-DESTINY DISRUPTED
 
 Some admiration has even accrued to Genghis Khan and his immediate successors based on the fact that they conducted mass-murder as a
 canny battle strategy and not out of sheer cruelty, destroying some cities
@@ -5757,7 +5654,6 @@ nothing wrong with Islam, nothing false about the revelations, and nothing bogus
 
 162
 
-DESTINY DISRUPTED
 
 he proposed, lay with Muslims: they had stopped practicing "true" Islam,
 and God therefore had made them weak. To get back to their victorious
@@ -5832,7 +5728,6 @@ doctrine after another, Ibn Taymiyah would not go along to get along. The
 
 164
 
-DESTINY DISRUPTED
 
 actual points disputed will strike non-Muslims as minutely technical: for
 example, was a divorce uttered three times merely final or irrevocably final?
@@ -5897,7 +5792,6 @@ where people retired to make spiritual effort their main occupation.
 
 166
 
-DESTINY DISRUPTED
 
 Yet Sufi brotherhoods also differed in crucial ways from monastic orders. For one thing, every monastic order had a set of strict rules that
 monks or nuns had to follow, under the direction of an abbot or abbess.
@@ -5976,7 +5870,6 @@ forgiveness in Islam?"
 
 168
 
-DESTINY DISRUPTED
 
 Many proponents of Sufi chivalry traced their lineage back to Ali, not
 necessarily because they were Shi'i but because Ali enjoyed legendary
@@ -6051,7 +5944,6 @@ least he didn't shout. He became the favorite Sufi of the ulama.
 
 170
 
-DESTINY DISRUPTED
 
 Then there were the Mevlevi dervishes, darlings of the intellectuals and
 cognoscenti. They sprang up around a poet named Jalaludin, who was born
@@ -6122,7 +6014,6 @@ of his own, whereupon he promptly declared himself an amir (also emir)
 
 172
 
-DESTINY DISRUPTED
 
 and his little state an emirate. ''Amir" was an Islamic title that had once
 meant "commander" but now meant something more like "prince."
@@ -6191,7 +6082,6 @@ into a warrior tougher than himself-the dreaded Timur-i-lang. Bayazid's
 
 174
 
-DESTINY DISRUPTED
 
 own feudal lieges had called Timur into Anatolia. They resented having
 lost sovereignty to the Ottomans, and so they sent a message to Timur,
@@ -6259,7 +6149,6 @@ best armed and most technologically advanced army of their time.
 
 176
 
-DESTINY DISRUPTED
 
 CONSTANT IN OPLE
 i/2 mil~
@@ -6329,7 +6218,6 @@ triumph, Islam certainly looked resurgent to the Muslim world at large.
 
 178
 
-DESTINY DISRUPTED
 
 Istanbul had only about seventy thousand people at the time of the
 conquest, so Mehmet the Conqueror launched a set of policies such as tax
@@ -6398,7 +6286,6 @@ You see how it was: check, balance, check, balance....
 
 180
 
-DESTINY DISRUPTED
 
 Another set of checks and balances built into Ottoman society involved
 the devshirme instituted by Bayazid. At first, as I mentioned, this was just
@@ -6463,7 +6350,6 @@ own the religious life of Muslims in the Ottoman empire. Sufism continued to pro
 
 182
 
-DESTINY DISRUPTED
 
 least nominal affiliation with one or another of the Sufi orders and a great
 many actively belonging to some brotherhood. This is not to say that all
@@ -6531,7 +6417,6 @@ sheikh died, his son became the new sheikh, and when he died, his son,
 
 184
 
-DESTINY DISRUPTED
 
 and after that his son, and so on. In short, leadership of the group became
 hereditary.
@@ -6600,7 +6485,6 @@ order, and not just a figurehead. They revered the boy and believed he had
 
 186
 
-DESTINY DISRUPTED
 
 the spark of divinity in him. Imagine how he must have seen the world (and
 himself) by the time he reached adolescence, having spent his whole life in
@@ -6663,7 +6547,6 @@ marked the birth of England as a nation-state. Historians usually score
 
 188
 
-DESTINY DISRUPTED
 
 Chaldiran as a victory for the Ottomans, but overall it was more of a draw,
 because Selim could not hold Tabrez. With winter coming, he fell back to
@@ -6731,7 +6614,6 @@ founded this gigantic empire was an almost exact contemporary of Shah
 
 190
 
-DESTINY DISRUPTED
 
 Ismail's named Babur, which means "tiger," and in some ways, he was even
 more remarkable than the prodigious Safavid teenager.
@@ -6803,7 +6685,6 @@ beloved wife gave birth to a boy who would become Akbar the Great, the
 
 192
 
-DESTINY DISRUPTED
 
 most remarkable monarch of his age, a contemporary and equal of England's Queen Elizabeth. His father managed to win his throne back just in
 time for Akbar to celebrate his twelfth birthday as a prince. Shortly after
@@ -6875,7 +6756,6 @@ a widowed Hindu mother but raised by a family of Muslim weavers. He
 
 194
 
-DESTINY DISRUPTED
 
 began spouting lyrics celebrating love in a spirit that smacked of both Sufism and Hinduism, and scribes recorded his utterances. The lyrics have
 survived to this day.
@@ -6944,7 +6824,6 @@ power. (Even in Safavid Persia, the ruling family was actually ethnically
 
 196
 
-DESTINY DISRUPTED
 
 THE THREE ISLAMIC EMPiRES OF THE SEVENTEENTH CENTURY
 
@@ -6999,7 +6878,6 @@ which they presumably presided, and they would know about the Mongols and the de
 
 198
 
-DESTINY DISRUPTED
 
 In 1600, in fact, ordinary folks anywhere in this world would have assumed that the Muslim empires and their adjacent frontier territories
 were in fact "the world." Or, to quote University of Chicago historian
@@ -7038,7 +6916,6 @@ last of the Muslims out of the peninsula.
 
 200
 
-DESTINY DISRUPTED
 
 The crusading spirit persisted in part because over the course of the real
 crusades, a new motivation had entered the drive to the east: an appetite
@@ -7108,7 +6985,6 @@ Moors and finding new souls to save for the one true faith. 2
 
 202
 
-DESTINY DISRUPTED
 
 Many of the new souls his sailors found were living in black-skinned
 bodies and had commercial value as slaves, it turned out, and Prince
@@ -7176,7 +7052,6 @@ language suitable only for ritual and incantatory purposes, incapable of
 
 204
 
-DESTINY DISRUPTED
 
 serving as a vehicle for discussion and thought. 3 Nonetheless, their reverence for books as artifacts meant that some churches and monasteries kept
 books tucked away in basements and back rooms.
@@ -7205,7 +7080,6 @@ rhetoric, grammar, logic, and arithmetic, for example, that were designed
 to teach students merely how to read, write, and think. Students who successfully completed this basic course were called baccalaureates, Latin for
 "beginners"; now they could begin to learn some actual subject such as the-
 
-MEANWHILE IN EUROPE
 
 205
 
@@ -7242,7 +7116,6 @@ head of the church. In the west, the very title of "emperor" dropped out of
 
 206
 
-DESTINY DISRUPTED
 
 existence. Politically, the continent fragmented into small realms ruled, essentially, by warlords. In this context, the Church emerged as the single
 source of cultural coherence and unity in western Europe, the cultural
@@ -7273,7 +7146,6 @@ officials couldn't fathom why ordinary folks would need to understand
 the Bible for themselves when they had priests to do the understanding
 for them.
 
-MEANWHILE IN EUROPE
 
 207
 
@@ -7309,7 +7181,6 @@ priest? Why was he even in the mix?
 
 208
 
-DESTINY DISRUPTED
 
 In fact, the conviction gripped Luther that salvation could not be
 earned, like a pension. It was a gift, which could only be received, and then
@@ -7343,7 +7214,6 @@ was an overnight sensation, and it sparked the Protestant Reformation.
 The Protestant Reformation was no single thing. Once Luther opened
 the gates, the passion spread in numerous directions with numerous reformers launching separate movements and many new sects springing up,
 
-MEANWHILE IN EUROPE
 
 209
 
@@ -7383,7 +7253,6 @@ pretty definite and limited idea of a person's proper relationship to God.
 
 210
 
-DESTINY DISRUPTED
 
 Probably none of the reformers thought they were encouraging people to
 think outside the box on matters of faith. And yet, calling the quest for salvation the province of the individual legitimized the authority of each individual to think what he or she wanted about God, no matter what the
@@ -7414,7 +7283,6 @@ meant that faith was one thing and explaining nature was another: they
 were two separate fields of inquiry and never did the twain have to meet.
 Separating inquiries about nature from the framework of faith enabled Europeans to come up with a dazzling array of scientific concepts and discoveries in the two centuries following the Reformation.
 
-MEANWHILE IN EUROPE
 
 211
 
@@ -7450,7 +7318,6 @@ and experiment as the basis for scientific exploration: he pretty much preNewton
 
 212
 
-DESTINY DISRUPTED
 
 elaborated the atomic view of matter, which they took from Indian scientists, and some had elaborated the mechanistic model of the universe,
 which they had gotten from the Chinese.
@@ -7479,7 +7346,6 @@ which church and state reinforced each other to promote nationalism.
 Some of the first germs of nation-states formed in England and France,
 whose monarchs had fought the sporadic Hundred Years' War from 1337
 
-MEANWHILE IN EUROPE
 
 213
 
@@ -7516,7 +7382,6 @@ battles, which meant that knights were obsolete. Feudal political organizations 
 
 214
 
-DESTINY DISRUPTED
 
 people who controlled money could organize large impersonal forces for
 war and eventually for work too. On the one hand, this transformed the
@@ -7550,7 +7415,6 @@ The European quest for a sea route to the Indies, a direct aftermath of
 the Crusades, carne to a head just as nation-states were emerging in Europe,
 just as the Protestant Reformation was turning the individual into a major
 
-MEANWHILE IN EUROPE
 
 215
 
@@ -7587,7 +7451,6 @@ and buying-ideally-nothing.
 
 216
 
-DESTINY DISRUPTED
 
 To sell a lot you have to make a lot. To buy nothing, you have to be
 self-sufficient. But how could a nation sell and sell and never buy? Where
@@ -7632,7 +7495,6 @@ and second, because they started trickling into the Muslim world just as
 
 218
 
-DESTINY DISRUPTED
 
 an ... in
 
@@ -7714,7 +7576,6 @@ had cost the Safavids the battle of Chaldiran, and now the hated Ottomans were t
 
 220
 
-DESTINY DISRUPTED
 
 weapons and consultants from some distant, insignificant speck of an island west of Europe seemed like a perfect solution. The Englishmen knew
 their stuff, and a few of them from so far away couldn't possibly do much
@@ -7782,7 +7643,6 @@ just a failure to score the usual crushing victory.
 
 222
 
-DESTINY DISRUPTED
 
 And yet historians looking back can see quite clearly that Suleiman's
 failure to take Vienna marked a watershed. At that moment the empire
@@ -7850,7 +7710,6 @@ on making shoes .... The guilds couldn't exploit their monopoly positions
 
 224
 
-DESTINY DISRUPTED
 
 to jack up prices, because the state imposed limits on how much they
 could charge. The state protected the public and the guilds protected their
@@ -7914,7 +7773,6 @@ bribe people who could bribe other people who knew people.
 
 226
 
-DESTINY DISRUPTED
 
 To combat this gumming up of the works, the state raised salaries, so
 that courtiers and bureaucrats wouldn't feel the need to take bribes. But the
@@ -7984,7 +7842,6 @@ The sultan's children, including his sons, grew up in the harem until they
 
 228
 
-DESTINY DISRUPTED
 
 were twelve, never mingling with ordinary people or taking part in the
 rough-and-tumble of ordinary life until adolescence. By the time such a
@@ -8055,7 +7912,6 @@ areas. And as Persia came apart, Sunni provinces broke away from the
 
 230
 
-DESTINY DISRUPTED
 
 kingdom, and Sunni neighbors such as the Uzbeks and the Afghans broke
 into the kingdom to wreak terrible havoc.
@@ -8120,7 +7976,6 @@ corporations.
 
 232
 
-DESTINY DISRUPTED
 
 The first such company was born in 1553, when forty English merchants ponied up twenty-five pounds apiece to finance a search for a sea
 route to India. The expedition they funded found Moscow instead of
@@ -8190,7 +8045,6 @@ to 123. The story outraged the British public. In India, a one-time company cler
 
 234
 
-DESTINY DISRUPTED
 
 army, marched to Calcutta to extract revenge. He deposed the nawab, and
 installed the nawab's uncle in his place. (The so-called battle of Plassey,
@@ -8266,7 +8120,6 @@ of Caesar, thereby claiming the imperial tradition of ancient Rome. (In
 
 236
 
-DESTINY DISRUPTED
 
 Russian, of course, his title was pronounced "czar.") Between 1682 and
 1725, one of the czars, Peter the Great, built a formidable army and began
@@ -8329,7 +8182,6 @@ pressure the shah buckled and canceled the deal. By the terms of the
 
 238
 
-DESTINY DISRUPTED
 
 contract he had signed, however, Iran now had to pay Baron Reuters a
 forty-thousand-pound penalty. Fortunately {for the shah), this didn't come
@@ -8402,7 +8254,6 @@ great deal of preparation had gone into the mutiny.
 
 240
 
-DESTINY DISRUPTED
 
 A great deal of preparation and yet not nearly enough, because British
 troops crushed the rebellion quickly and then went on a rampage of their
@@ -8474,7 +8325,6 @@ play? Did they welcome Napoleon? Help him? Did he have to conquer
 
 242
 
-DESTINY DISRUPTED
 
 them? Did they play any part in the battle between France and Britain?
 Who did they side with? What happened after the Europeans left? Western
@@ -8548,7 +8398,6 @@ world market suddenly soared. The khedive of that moment, a spendthrift playboy 
 
 244
 
-DESTINY DISRUPTED
 
 dreams of wealth for himself and his country. He borrowed enormous
 sums of money from European bankers to industrialize Egypt's cotton industry overnight: he bought cotton gins and other such machinery at
@@ -8616,7 +8465,6 @@ soil and most were the children of parents born there. Inconveniently, some
 
 246
 
-DESTINY DISRUPTED
 
 5 million Arabs happened to be living there as well and no one could
 fathom where they had come from or what they were doing there. They
@@ -8657,7 +8505,6 @@ every level agreed that "the gates of ijtihad were closed."
 
 248
 
-DESTINY DISRUPTED
 
 ljtihad, remember, means "free and independent thinking based on reason." It can't depart from scripture, but it consists of thinking through the
 implications of scripture creatively. Muslim scholars had once allowed that
@@ -8729,7 +8576,6 @@ about it?
 
 250
 
-DESTINY DISRUPTED
 
 Even if Muslim and Christian scholars had found some forum in
 which to exchange views, it would have been irrelevant to the conundrum
@@ -8761,7 +8607,6 @@ kinds of groupings. These foreigners ate pork, they drank liquor, their
 women moved about in public with their faces showing, they laughed at
 jokes that weren't funny and failed to see the humor in things that were hilarious, ate weird-tasting food, listened to music that sounded more like
 
-THE REFORM MOVEMENTS
 
 251
 
@@ -8796,7 +8641,6 @@ Muslim faith and modernization did not have to mean Westernization.
 
 252
 
-DESTINY DISRUPTED
 
 These three answers to the challenge of modernity were well-embodied
 in three seminal reformers of the eighteenth and nineteenth centuries:
@@ -8832,7 +8676,6 @@ the restoration of the original and holy community must be eliminated.
 The Ottomans considered all of Arabia their possession, but they had
 no real authority among the small Bedouin tribes who inhabited this arid
 
-THE REFORM MOVEMENTS
 
 253
 
@@ -8871,7 +8714,6 @@ anti-innovator.
 
 254
 
-DESTINY DISRUPTED
 
 People unconvinced of his views, however, saw his vision as a particular
 interpretation of Islam, not Islam itself; and they had no trouble labeling
@@ -8907,7 +8749,6 @@ with these surging Bedouins, he called on Mohammed Ali, khedive of
 Egypt, to help him out. Mohammed Ali took his disciplined modern army
 into Arabia, and in 1815-the same year that Napoleon's career was ending at Waterloo-he crushed Ibn Saud, restored Ottoman control over
 
-THE REFORM MOVEMENTS
 
 255
 
@@ -8943,7 +8784,6 @@ his followers. The sunna-the life of the Prophet as revealed through
 
 256
 
-DESTINY DISRUPTED
 
 hadith-amounted to a commentary on the Law. The Qur'an did not prescribe principles to guide human behavior but actual acts Muslims were to
 perform. It revealed not just the form but the content of human life. In the
@@ -8977,7 +8817,6 @@ killed as soon as they were unmasked. And finally, perhaps the worst offenders o
 adding to or altering any aspects of the pristine original Law. People who
 performed the rituals differently than the Pious Originals, or who performed rituals the Prophet and his companions never practiced, or who
 
-THE REFORM MOVEMENTS
 
 257
 
@@ -9013,7 +8852,6 @@ the subcontinent had been deepening for many generations and Sayyid
 
 258
 
-DESTINY DISRUPTED
 
 Ahmed's family had adapted to the new order. His grandfather served the
 East India Company in positions of responsibility, once running a school
@@ -9047,7 +8885,6 @@ Muslims as the Queen's most loyal subjects. He also argued that Muslims
 could have no jihadist sentiments toward the British and ought not to
 have, quoting scholarly religious sources to prove that jihad against the
 
-THE REFORM MOVEMENTS
 
 259
 
@@ -9083,7 +8920,6 @@ of human inquiry and achievement. It was integral to human life. It
 
 260
 
-DESTINY DISRUPTED
 
 evolved with the human community in the natural course of things-just
 like art, agriculture, and technology-growing ever more sophisticated as
@@ -9114,7 +8950,6 @@ others, those who sought justice in society, behaved responsibly in their commun
 Before he went to England, Sayyid Ahmad had founded an organization called the Scientific Society, in the northern Indian town of Aligarh.
 This organization produced lectures and made advanced European learn-
 
-THE REFORM MOVEMENTS
 
 261
 
@@ -9147,7 +8982,6 @@ royal and had to move to Iran in a hurry when Jamaluddin was a little boy.
 
 262
 
-DESTINY DISRUPTED
 
 Confusingly enough, they settled dose to an Iranian town also called
 Asadabad, which has given rise to a long-standing dispute about where Jamaluddin-i-Afghan was actually born and which country, Afghanistan or
@@ -9177,7 +9011,6 @@ age. Unfortunately, Azam succeeded his father only briefly. One of
 his cousins quickly overthrew him, with British backing. The British
 probably moved to unseat Azam in part because they didn't want any
 
-THE REFORM MOVEMENTS
 
 protege ofJamaluddin's on the Afghan throne. They sensed what he
 was up to. In any case, Azam moved to Iran, where he died in exile.
@@ -9212,7 +9045,6 @@ and consent of the community. The first shura was that small
 
 264
 
-DESTINY DISRUPTED
 
 group Khalifa Omar appointed to pick his successor. That shura
 had to present its nominee to the Muslims of Medina and get their
@@ -9244,7 +9076,6 @@ core a rational religion and that Islam had pioneered the scientific
 revolution. He went on insisting that Muslim ulama and despots
 had retarded scientific progress in the Muslim world but said cler-
 
-THE REFORM MOVEMENTS
 
 265
 
@@ -9279,7 +9110,6 @@ well as spending some time in Saint Petersburg, the capital of
 
 266
 
-DESTINY DISRUPTED
 
 Russia. Once his journal folded, he had nothing to keep him in
 Europe anymore, so he moved to ...
@@ -9314,7 +9144,6 @@ instead spin their own). Jamaluddin's oratory filled the streets of
 Iran with demonstrators protesting against the Shah, who was
 probably sorry he had ever set eyes on the Afghan (Iranian?) reformer. Jamaluddin even talked one of the grand ayatollahs into
 
-THE REFORM MOVEMENTS
 
 267
 
@@ -9349,7 +9178,6 @@ It's interesting to remember that Sayyid Jamaluddin Afghan had no official leade
 
 268
 
-DESTINY DISRUPTED
 
 an army. He had no official position in any government. He never founded
 a political party or headed up a movement. He had no employees, no
@@ -9403,7 +9231,6 @@ seductions of which affected every part of the world. In Europe, the Industrial 
 
 270
 
-DESTINY DISRUPTED
 
 year 1800 CE, beginning with the steam engine. Often, we speak of great
 inventions as if they make their own case merely by existing, but in fact,
@@ -9474,7 +9301,6 @@ Likewise, after James Watt perfected the steam engine in the late eighteenth cen
 
 272
 
-DESTINY DISRUPTED
 
 textile looms. Anyone who possessed a power loom could now outproduce
 rival cloth makers and drive them out of business-unless the rivals acquired power looms too; so they all did.
@@ -9504,7 +9330,6 @@ time markers such as the sun and the moon.
 • Large family networks dissolved, and the nuclear family-one
 man, one woman, and their children-became the universally accepted default unit of the industrial age.
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -9537,7 +9362,6 @@ hands of guilds, which were interwoven with Sufi orders, which were interwoven w
 
 274
 
-DESTINY DISRUPTED
 
 which was interwoven with a universal assumption that the public realm belonged exclusively to men and that women were properly kept sequestered in
 a private world, cut off from politics and production.
@@ -9567,7 +9391,6 @@ But also, replacing guilds with factories meant severing the connection
 between manufacturing and Sufi orders, which at some level implied severing the connection between spirituality and work. What's more, moving
 production into factories required that people start living a life regulated
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -9603,7 +9426,6 @@ you should get some," they whispered, triggering a widespread sense that
 
 276
 
-DESTINY DISRUPTED
 
 something had to change, that people living in Iran or Afghanistan or Asia
 Minor or Egypt or Morocco had to become in some way ... more Western. Thus, as awareness of the Industrial Revolution seeped through the
@@ -9665,7 +9487,6 @@ writing, but also books by European thinkers such as Charles Montesquieu
 
 278
 
-DESTINY DISRUPTED
 
 and Auguste Comte, philosophers who theorized that societies evolved
 through successively higher stages. Montesquieu categorized and ranked
@@ -9735,7 +9556,6 @@ times, in all places, civilized people who subdue their passions and let
 
 280
 
-DESTINY DISRUPTED
 
 themselves be guided solely by reason must eventually progress toward a
 single universal set oflaws and value judgments.
@@ -9801,7 +9621,6 @@ goal. His politics led him to propound that individuals could act only as
 
 282
 
-DESTINY DISRUPTED
 
 collective units, and should relinquish their individual personalities to
 their nation. "Say not /but we," he harangued his fellow revolutionaries
@@ -9870,7 +9689,6 @@ nineteenth-century European nationalisms. The Italians, Germans, Serbians,
 
 284
 
-DESTINY DISRUPTED
 
 and others claimed a nationalist right to the territory they inhabited. The
 Jewish people had no territory. They had been scattered around the globe
@@ -9936,7 +9754,6 @@ lords" and started meaning "humiliating concessions wrung out triumphantly
 
 286
 
-DESTINY DISRUPTED
 
 from Ottoman officials (by haughty European bosses)." But that's certainly
 what they meant by 1838, when the Ottomans signed the Treaty of Balta
@@ -10003,7 +9820,6 @@ reactionary dicta. When the modernists called for mechanized state-run
 
 288
 
-DESTINY DISRUPTED
 
 factories, the ulama railed against Ottoman officials using typewritersProphet Mohammed never used one, they argued.
 For a moment, the modernists gained the upper hand. In 1876, they
@@ -10068,7 +9884,6 @@ lived together peacefully, not even three generations back; the hostility
 
 290
 
-DESTINY DISRUPTED
 
 seemed like an age-old feature of the two communities' relationship. The
 Ottoman policy of dividing the population into self-governing communities was originally a way of conferring upon each a measure of cultural sovereignty. It reflected tolerance. It functioned as an instrument of harmony.
@@ -10103,7 +9918,6 @@ with a common stake in reshaping the empire. All felt like young people in
 the know aligned against clueless elders, comrades-in-arms merely because
 they all fiercely favored the "modern," whatever that was.
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -10141,7 +9955,6 @@ Turkish nationalist intellectuals began to argue that Christian minorities, espe
 
 292
 
-DESTINY DISRUPTED
 
 with the western Europeans, in league with the breakaway Slavic territories
 of Eastern Europe.
@@ -10174,7 +9987,6 @@ the CUP seized control in a coup d'etat, assassinated the incumbent vizier,
 deposed the last Ottoman sultan, ousted all other leaders from the government, declared all other parties illegal, and turned Ottoman Turkey into a
 one-party state. A triumverate of men emerged as spearheads of this single
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -10212,7 +10024,6 @@ continuation of that unstructured hatred that burst out in the 1890s as
 
 294
 
-DESTINY DISRUPTED
 
 pogroms and ethnic cleansing. (The United Nations defines "ethnic
 cleansing" as the attempt to enforce ethnic homogeneity in a given territory by driving out or killing unwanted groups, often by committing
@@ -10243,7 +10054,6 @@ they killed tens of thousands in the course of a few hours but the territory
 won or lost in these battles was often measurable in mere inches. This was
 the European theater.
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -10284,7 +10094,6 @@ kingdom stretching from Mesopotamia to the Arabian Sea, and he thought
 
 296
 
-DESTINY DISRUPTED
 
 WORLD WAR I AND THE ARAB REVOLT
 
@@ -10306,7 +10115,6 @@ As it turned out, the Hashimites led the way in helping the British.
 They fomented the Arab Revolt. Two of Hussein's sons, working with
 Lawrence, drove the Turks out of the region, clearing the way for the
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -10344,7 +10152,6 @@ also had great appeal. In Palestine and Syria, these Arab nationalists not
 
 298
 
-DESTINY DISRUPTED
 
 only demanded independence from the Ottomans and Europeans but also
 from the Hashimites and Saudis.
@@ -10373,7 +10180,6 @@ the short term worked wonderfully: the CUP lost everything the Ottomans had ever
 Greater Syria, and Mesopotamia to the British. And the war was going
 badly for their friends in Europe, as well. In 1918, Germany surrendered
 
-INDUSTRY, CONSTITUTIONS, AND
 
 NATIONALISM
 
@@ -10414,7 +10220,6 @@ the language would be Turkish. In this new country, Islam would be excluded from
 
 302
 
-DESTINY DISRUPTED
 
 where it might go on thriving as a religion like any other, so long as its adherents didn't bother the neighbors.
 Turkey was thus the first Muslim-majority country to declare itself secular and to make the separation of politics and religion an official policy.
@@ -10485,7 +10290,6 @@ Rome had been dead for centuries, but the Roman ideal of a universal state
 
 304
 
-DESTINY DISRUPTED
 
 did not fully wink out until the end ofWorld War I. The same was true of
 the khalifate. When Atatiirk abolished the khalifate, he was abolishing an
@@ -10518,7 +10322,6 @@ into power in Iran and Mghanistan, except that their dress code was the
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 305
 
@@ -10556,7 +10359,6 @@ not freedom but prosperity and self-respect.
 
 306
 
-DESTINY DISRUPTED
 
 It would be quite plausible to say that at this point, Islam as a worldhistorical narrative came to an end. Wrong but plausible. The Western
 cross-current had disrupted Muslim societies, creating the deepest angst
@@ -10589,7 +10391,6 @@ preached away in rural mosques to ill-educated and impoverished villagers.
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 307
 
@@ -10629,7 +10430,6 @@ rule but undid all of Amanullah's reforms, wrecked the city, and drained
 
 308
 
-DESTINY DISRUPTED
 
 the treasury. Anyone who knows what the Taliban did in Afghanistan at
 the end of the century will recognize an eerily precise preview of their carnage in the career of the Water Carrier's Son. By the time he was finished,
@@ -10664,7 +10464,6 @@ of the humbler classes: two worlds interwoven but entirely distinct.
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 309
 
@@ -10698,7 +10497,6 @@ poor kept proliferating. With the expansion of this class, the brotherhood
 
 310
 
-DESTINY DISRUPTED
 
 outgrew even its identity as a political movement and became more of a pandemic low-level insurgency-seething against secularism and Western influence, seething against its own modernist elite, against its own government,
 against all nationalist governments in Muslim countries, even against the apparatus of democracy to the extent that this reflected Western values.
@@ -10727,7 +10525,6 @@ people's right to self-rule must be respected and accommodated. Wilson had
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 311
 
@@ -10766,7 +10563,6 @@ with a band of religious troops, took the holy city, and ousted the
 
 312
 
-DESTINY DISRUPTED
 
 J
 
@@ -10795,7 +10591,6 @@ Egypt was to consider itself sovereign, independent, and free. Egypt
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 313
 
@@ -10832,7 +10627,6 @@ own. Besides Britain's Balfour had made them that memorable promise.
 
 314
 
-DESTINY DISRUPTED
 
 Britain decided to make no grand decision about Palestine at all, but to
 deal with events de facto as they came up and just see how things went.
@@ -10866,7 +10660,6 @@ much money Iran ever stood to make from its oil.
 
 RISE
 
-OF THE SECULAR MODERNISTS
 
 315
 
@@ -10899,7 +10692,6 @@ Shell and certain U.S. interests to form a supercompany ("the Turkish Petroleum 
 
 316
 
-DESTINY DISRUPTED
 
 bordering the Persian Gulf. By the time the supercompany was ready to
 drill, the area in question was part of the British "mandate." It was then
@@ -10957,7 +10749,6 @@ as a world-historical event. The hunger for independence, which had built
 
 318
 
-DESTINY DISRUPTED
 
 up during the war years among virtually all colonized people, both Muslim and non-Muslim, now hit the breaking point. In Egypt, rebellion
 started brewing among army officers. In China, Mao's communist insurgency began to move against Chiang Kai-shek, widely seen as a Western
@@ -11027,7 +10818,6 @@ there be such a thing as Jordanian nationalism? Was it true that people living i
 
 320
 
-DESTINY DISRUPTED
 
 The most problematic single territory for the competing claims of nationalism versus nation-statism was Palestine, soon to be known as Israel. Before and during World War II, the Nazis' genocidal attempt to exterminate
 the Jews of Europe confirmed the worst fears of Zionists and gave their argument for a sovereign Jewish homeland overwhelming moral weight, especially since the Nazis were not the only anti-Semites in Europe, only the most
@@ -11091,7 +10881,6 @@ against the well-organized mighty: hit and run raids, sabotage, random assassina
 
 322
 
-DESTINY DISRUPTED
 
 In 1946, the underground Jewish militant group Haganah bombed the King
 David Hotel in Jerusalem, killing ninety-one ordinary civilians, the most destructive single act of terrorism until 1988, when Libyan terrorists brought
@@ -11168,7 +10957,6 @@ could take its first breath. But instead, Israel did the crushing, routing the
 
 324
 
-DESTINY DISRUPTED
 
 armies of its three Arab adversaries, Syria, Jordan, and Egypt, and so it was
 Palestine, not Israel, that became the stillborn child. When the war ended,
@@ -11234,7 +11022,6 @@ press said Egyptians were too primitive to run the canal; they would disrupt
 
 326
 
-DESTINY DISRUPTED
 
 global trade and wreck the world economy. These two European countries
 colluded with Israel in a complicated scheme to bomb Cairo, kill Nasser,
@@ -11303,7 +11090,6 @@ and they were doing their best to discredit him. Ba'ath activists challenged
 
 328
 
-DESTINY DISRUPTED
 
 his status among Arabs, claiming that they were the real pan-Arab nationalists. Then there were Egypt's communists. At the height of the Cold War,
 given their pipeline to Soviet support, they no doubt seemed more dangerous than some cult organizing the Muslim rabble. And finally there
@@ -11367,7 +11153,6 @@ And maybe not, in a conflict between two monolithic sides. But in 1967,
 
 330
 
-DESTINY DISRUPTED
 
 when Israel won the most decisive victory in the history of modern warfare, it wasn't clashing with a monolith. The Arab side was a querulous
 scramble of contradictions locked in struggle with one another.
@@ -11437,7 +11222,6 @@ millions of adherents.
 
 332
 
-DESTINY DISRUPTED
 
 Then there was the Muslim Brotherhood. When Nasser lost face in
 the Six Day War, the Egyptian masses simply abandoned him. They
@@ -11508,7 +11292,6 @@ Pahlavi had blocked this project for decades, but he was gone, finally: the
 
 334
 
-DESTINY DISRUPTED
 
 Allies, the wonderful Allies, had removed him during the war for flirting
 with the Nazis. The stage was set for Iranians to restore their 1906 constitution, resurrect their parliament, and hold real elections: at last they could
@@ -11574,7 +11357,6 @@ only democratic institutions had emerged in the oil-rich nations before oil
 
 336
 
-DESTINY DISRUPTED
 
 was discovered. With power distributed throughout society in these countries, with avenues of participation available to people of all classes, the
 wealth might have empowered the creative energies of millions and
@@ -11639,7 +11421,6 @@ time was regulated by clocks, their family tended to be "nuclear," their
 
 338
 
-DESTINY DISRUPTED
 
 entertainment tastes might run to alcohol, nightclubs, opera. Their children might listen to rock and roll, date members of the opposite sex, and
 choose their own spouses.
@@ -11708,7 +11489,6 @@ democratic man with an autocratic streak, the Shah of Iran was a fundamentally a
 
 340
 
-DESTINY DISRUPTED
 
 outfit called SAVAK to consolidate his grip on the country, and as if just
 to salt his countrymen's wounds, he signed a treaty with the United States
@@ -11779,7 +11559,6 @@ on alternate days, their turn determined by whether their license plate
 
 342
 
-DESTINY DISRUPTED
 
 ended with an odd or even number. I remember getting up long before
 dawn every other day that winter to secure my place in line at a local gas
@@ -11849,7 +11628,6 @@ give the Islamic Way another try. In any case, by 1980, Khomeini had
 
 344
 
-DESTINY DISRUPTED
 
 transformed Iran into an "Islamic Republic" ruled by the most conservative clerics oflran's orthodox Shi'i ulama.
 Next to go were the secular modernists of Afghanistan. Their demise
@@ -11918,7 +11696,6 @@ Iraq from the world and reduced Iraqi citizens from a European standard of
 
 346
 
-DESTINY DISRUPTED
 
 living in 1990 to one that approached the most impoverished on Earth. Incomes dropped about 95 percent. Disease spread, and there was no medicine
 to stem it. Over two hundred thousand children-and perhaps as many as

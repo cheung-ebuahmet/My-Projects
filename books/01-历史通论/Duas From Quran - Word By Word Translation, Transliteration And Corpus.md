@@ -1,8 +1,5 @@
 # Duas From Quran - Word By Word Translation, Transliteration And Corpus
 
-> 来源: Duas From Quran - Word By Word Translation, Transliteration And Corpus.pdf
-> 提取于: iSlam/祈祷词·赞词/Duas From Quran - Word By Word Translation, Transliteration And Corpus.pdf
-
 Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 9/14/1444 AH, 16:36
@@ -135,7 +132,6 @@ our ways of worship
 
 rabbana wa-ij'alna mus'limayni laka wamin dhurriyyatina ummatan mus'limatan laka wa-arina manasikana watub alayna innaka anta
 al-tawabu al-rahimu
-— Transliteration
 
 Our Lord, and make us Muslims [in submission] to You and from our descendants a Muslim nation [in submission] to You. And
 show us our rites and accept our repentance. Indeed, You are the Accepting of repentance, the Merciful.
@@ -145,9 +141,7 @@ https://quranwbw.com/duas
 
 Page 1 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 2:201
 
@@ -236,7 +230,6 @@ Grant us
 Our Lord!
 
 rabbana atina fi al-dun'ya hasanatan wafi al-akhirati hasanatan waqina adhaba al-nari
-— Transliteration
 
 But among them is he who says, "Our Lord, give us in this world [that which is] good and in the Hereafter [that which is] good and
 protect us from the punishment of the Fire."
@@ -290,19 +283,15 @@ Pour
 Our Lord
 
 rabbana afrigh alayna sabran wathabbit aqdamana wa-unsur'na ala al-qawmi al-kafirina
-— Transliteration
 
 And when they went forth to [face] Goliath and his soldiers, they said, "Our Lord, pour upon us patience and plant firmly our feet
 and give us victory over the disbelieving people."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 2 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 ۡ
 َ
@@ -482,7 +471,6 @@ the people
 
 rabbana la tuakhidh'na in nasina aw akhtana rabbana wala tahmil alayna is'ran kama hamaltahu ala alladhina min qablina rabbana
 wala tuhammil'na ma la taqata lana bihi wa-u'fu anna wa-igh'fir lana wa-ir'hamna anta mawlana fa-unsur'na ala al-qawmi al-kafirina
-— Transliteration
 
 Allah does not charge a soul except [with that within] its capacity. It will have [the consequence of] what [good] it has gained, and
 it will bear [the consequence of] what [evil] it has earned. "Our Lord, do not impose blame upon us if we have forgotten or erred.
@@ -491,15 +479,12 @@ we have no ability to bear. And pardon us; and forgive us; and have mercy upon u
 the disbelieving people."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 3 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 3:8
 
-9/14/1444 AH, 16:36
 
 َ ۡ َ َ ََۡ َ َ ۡ َ َۡ ََ ُُ ۡ ُ َ َ$َ
 ًَۡ َ َ ُ$
@@ -570,7 +555,6 @@ You
 Indeed You
 
 rabbana la tuzigh qulubana ba'da idh hadaytana wahab lana min ladunka rahmatan innaka anta al-wahabu
-— Transliteration
 
 [Who say], "Our Lord, let not our hearts deviate after You have guided us and grant us from Yourself mercy. Indeed, You are the
 Bestower.
@@ -642,20 +626,16 @@ al-mi'ada
 the Promise
 
 rabbana innaka jami'u al-nasi liyawmin la rayba fihi inna al-laha la yukh'lifu al-mi'ada
-— Transliteration
 
 Our Lord, surely You will gather the people for a Day about which there is no doubt. Indeed, Allah does not fail in His promise."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 4 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 3:16
 
-9/14/1444 AH, 16:36
 
 َ َ َ َ ََ ُُ ََ ۡ ۡ َ $ َ َ َ $ َ$ َ
 َ
@@ -698,7 +678,6 @@ Indeed we
 Our Lord!
 
 rabbana innana amanna fa-igh'fir lana dhunubana waqina adhaba al-nari
-— Transliteration
 
 Those who say, "Our Lord, indeed we have believed, so forgive us our sins and protect us from the punishment of the Fire,"
 — Translation
@@ -755,7 +734,6 @@ we believe[d]
 Our Lord
 
 rabbana amanna bima anzalta wa-ittaba'na al-rasula fa-uk'tub'na ma'a al-shahidina
-— Transliteration
 
 Our Lord, we have believed in what You revealed and have followed the messenger Jesus, so register us among the witnesses [to
 truth]."
@@ -810,7 +788,6 @@ forgive
 
 Our Lord
 
-https://quranwbw.com/duas
 
 َ ۡ ۡ َۡ
 َ‫ك ٰ ِفرين‬
@@ -826,12 +803,9 @@ the disbelievers
 
 Page 5 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 rabbana igh'fir lana dhunubana wa-is'rafana fi amrina wathabbit aqdamana wa-unsur'na ala al-qawmi al-kafirina
-— Transliteration
 
 And their words were not but that they said, "Our Lord, forgive us our sins and the excess [committed] in our affairs and plant
 firmly our feet and give us victory over the disbelieving people."
@@ -880,7 +854,6 @@ not
 Our Lord
 
 rabbana ma khalaqta hadha batilan sub'hanaka faqina adhaba al-nari
-— Transliteration
 
 Who remember Allah while standing or sitting or [lying] on their sides and give thought to the creation of the heavens and the
 earth, [saying], "Our Lord, You did not create this aimlessly; exalted are You [above such a thing]; then protect us from the
@@ -943,18 +916,14 @@ ansarin
 helpers
 
 rabbana innaka man tud'khili al-nara faqad akhzaytahu wama lilzzalimina min ansarin
-— Transliteration
 
 Our Lord, indeed whoever You admit to the Fire - You have disgraced him, and for the wrongdoers there are no helpers.
 — Translation
 
-https://quranwbw.com/duas
 
 Page 6 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 $ َ$$
 ُ ّ َ ْ ُ َ ۡ َ َٰ ۡ
@@ -1061,7 +1030,6 @@ Our Lord
 
 rabbana innana sami'na munadiyan yunadi lil'imani an aminu birabbikum faamanna rabbana fa-igh'fir lana dhunubana wakaffir anna
 sayyiatina watawaffana ma'a al-abrari
-— Transliteration
 
 Our Lord, indeed we have heard a caller calling to faith, [saying], 'Believe in your Lord,' and we have believed. Our Lord, so forgive
 us our sins and remove from us our misdeeds and cause us to die with the righteous.
@@ -1130,21 +1098,17 @@ break
 (do) not
 
 rabbana waatina ma wa'adttana ala rusulika wala tukh'zina yawma al-qiyamati innaka la tukh'lifu al-mi'ada
-— Transliteration
 
 Our Lord, and grant us what You promised us through Your messengers and do not disgrace us on the Day of Resurrection. Indeed,
 You do not fail in [Your] promise."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 7 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 5:83
 
-9/14/1444 AH, 16:36
 
 $ َ َ َُۡ ۡ َ $َ َ َ$َ
 َ‫ٱلش ٰـهدِ ين‬
@@ -1171,7 +1135,6 @@ we have believed
 Our Lord
 
 rabbana amanna fa-uk'tub'na ma'a al-shahidina
-— Transliteration
 
 And when they hear what has been revealed to the Messenger, you see their eyes overflowing with tears because of what they
 have recognized of the truth. They say, "Our Lord, we have believed, so register us among the witnesses.
@@ -1265,21 +1228,17 @@ and a sign
 
 rabbana anzil alayna maidatan mina al-samai takunu lana idan li-awwalina waakhirina waayatan minka wa-ur'zuq'na wa-anta khayru
 al-raziqina
-— Transliteration
 
 Said Jesus, the son of Mary, "O Allah, our Lord, send down to us a table [spread with food] from the heaven to be for us a festival
 for the first of us and the last of us and a sign from You. And provide for us, and You are the best of providers."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 8 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 7:23
 
-9/14/1444 AH, 16:36
 
 َ ُ ََ َۡ َ َۡ َ ََ ۡ ۡ َ ۡ $ َ َ َ ُ َ َ ۡ َ َ َ$ َ
 َ‫ن مِن‬$ ‫ون‬
@@ -1332,7 +1291,6 @@ al-khasirina
 the losers
 
 rabbana zalamna anfusana wa-in lam taghfir lana watarhamna lanakunanna mina al-khasirina
-— Transliteration
 
 They said, "Our Lord, we have wronged ourselves, and if You do not forgive us and have mercy upon us, we will surely be among
 the losers."
@@ -1369,7 +1327,6 @@ place us
 Our Lord!
 
 rabbana la taj'alna ma'a al-qawmi al-zalimina
-— Transliteration
 
 And when their eyes are turned toward the companions of the Fire, they say, "Our Lord, do not place us with the wrongdoing
 people."
@@ -1377,7 +1334,6 @@ people."
 
 7:89
 
-https://quranwbw.com/duas
 
 َ
 ۡ
@@ -1428,12 +1384,9 @@ Our Lord
 
 Page 9 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 rabbana if'tah baynana wabayna qawmina bil-haqi wa-anta khayru al-fatihina
-— Transliteration
 
 We would have invented against Allah a lie if we returned to your religion after Allah had saved us from it. And it is not for us to
 return to it except that Allah, our Lord, should will. Our Lord has encompassed all things in knowledge. Upon Allah we have relied.
@@ -1477,7 +1430,6 @@ Pour
 Our Lord!
 
 rabbana afrigh alayna sabran watawaffana mus'limina
-— Transliteration
 
 And you do not resent us except because we believed in the signs of our Lord when they came to us. Our Lord, pour upon us
 patience and let us die as Muslims [in submission to You]."
@@ -1514,14 +1466,12 @@ make us
 Our Lord!
 
 rabbana la taj'alna fit'natan lil'qawmi al-zalimina
-— Transliteration
 
 So they said, "Upon Allah do we rely. Our Lord, make us not [objects of] trial for the wrongdoing people
 — Translation
 
 10:86
 
-https://quranwbw.com/duas
 
 َ ۡ ۡ َۡ َ َ َۡ َ ََّ َ
 َ‫كٰفِرين‬
@@ -1549,12 +1499,9 @@ And save us
 
 Page 10 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 wanajjina birahmatika mina al-qawmi al-kafirina
-— Transliteration
 
 And save us by Your mercy from the disbelieving people."
 — Translation
@@ -1651,7 +1598,6 @@ and not
 the earth
 
 rabbana innaka ta'lamu ma nukh'fi wama nu'linu wama yakhfa ala al-lahi min shayin fi al-ardi wala fi al-samai
-— Transliteration
 
 Our Lord, indeed You know what we conceal and what we declare, and nothing is hidden from Allah on the earth or in the heaven.
 — Translation
@@ -1702,20 +1648,16 @@ Make me
 My Lord!
 
 rabbi ij'alni muqima al-salati wamin dhurriyyati rabbana wataqabbal du'ai
-— Transliteration
 
 My Lord, make me an establisher of prayer, and [many] from my descendants. Our Lord, and accept my supplication.
 — Translation
 
-https://quranwbw.com/duas
 
 Page 11 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 14:41
 
-9/14/1444 AH, 16:36
 
 ۡ َ$َ
 ُ ‫ يَ ۡو َم َي ُق‬BC
@@ -1755,7 +1697,6 @@ Forgive
 Our Lord!
 
 rabbana igh'fir li waliwalidayya walil'mu'minina yawma yaqumu al-hisabu
-— Transliteration
 
 Our Lord, forgive me and my parents and the believers the Day the account is established."
 — Translation
@@ -1786,7 +1727,6 @@ Have mercy on both of them
 My Lord!
 
 rabbi ir'hamhuma kama rabbayani saghiran
-— Transliteration
 
 And lower to them the wing of humility out of mercy and say, "My Lord, have mercy upon them as they brought me up [when I was]
 small."
@@ -1838,21 +1778,17 @@ Grant us
 Our Lord!
 
 rabbana atina min ladunka rahmatan wahayyi lana min amrina rashadan
-— Transliteration
 
 [Mention] when the youths retreated to the cave and said, "Our Lord, grant us from Yourself mercy and prepare for us from our
 affair right guidance."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 12 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 18:14
 
-9/14/1444 AH, 16:36
 
 َۡ َ َ َ $ L َ َLَ
 ۡ‫ َقد‬$‫ ۡد ُع َوا ْ مِن ُدونِه ِٓۦ إ َل ٰ ٗهاۖ ل‬$‫ِ لَن ن‬
@@ -1913,7 +1849,6 @@ then
 we would have said
 
 rabbuna rabbu al-samawati wal-ardi lan nad'uwa min dunihi ilahan laqad qul'na idhan shatatan
-— Transliteration
 
 And We made firm their hearts when they stood up and said, "Our Lord is the Lord of the heavens and the earth. Never will we
 invoke besides Him any deity. We would have certainly spoken, then, an excessive transgression.
@@ -1960,14 +1895,12 @@ Indeed we
 Our Lord!
 
 rabbana innana nakhafu an yafruta alayna aw an yatgha
-— Transliteration
 
 They said, "Our Lord, indeed we are afraid that he will hasten [punishment] against us or that he will transgress."
 — Translation
 
 21:83
 
-https://quranwbw.com/duas
 
 َ َ ََ L L
 َ
@@ -2003,12 +1936,9 @@ Indeed [I]
 
 Page 13 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 anni massaniya al-duru wa-anta arhamu al-rahimina
-— Transliteration
 
 And [mention] Job, when he called to his Lord, "Indeed, adversity has touched me, and you are the Most Merciful of the merciful."
 — Translation
@@ -2056,7 +1986,6 @@ god
 (There is) no
 
 la ilaha illa anta sub'hanaka inni kuntu mina al-zalimina
-— Transliteration
 
 And [mention] the man of the fish, when he went off in anger and thought that We would not decree [anything] upon him. And he
 called out within the darknesses, "There is no deity except You; exalted are You. Indeed, I have been of the wrongdoers."
@@ -2106,7 +2035,6 @@ We believe
 Our Lord!
 
 rabbana amanna fa-igh'fir lana wa-ir'hamna wa-anta khayru al-rahimina
-— Transliteration
 
 Indeed, there was a party of My servants who said, "Our Lord, we have believed, so forgive us and have mercy upon us, and You
 are the best of the merciful."
@@ -2114,7 +2042,6 @@ are the best of the merciful."
 
 23:118
 
-https://quranwbw.com/duas
 
 ۡ ّ $
 َBCِÖ ِÜ‫ٱلر ٰـ‬
@@ -2149,12 +2076,9 @@ My Lord!
 
 Page 14 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 rabbi igh'fir wa-ir'ham wa-anta khayru al-rahimina
-— Transliteration
 
 And, [O Muhammad], say, "My Lord, forgive and have mercy, and You are the best of the merciful."
 — Translation
@@ -2201,7 +2125,6 @@ Avert
 Our Lord!
 
 rabbana is'rif anna adhaba jahannama inna adhabaha kana gharaman
-— Transliteration
 
 And those who say, "Our Lord, avert from us the punishment of Hell. Indeed, its punishment is ever adhering;
 — Translation
@@ -2228,7 +2151,6 @@ abode
 Indeed it
 
 innaha saat mus'taqarran wamuqaman
-— Transliteration
 
 Indeed, it is evil as a settlement and residence."
 — Translation
@@ -2286,16 +2208,12 @@ Grant
 
 Our Lord!
 
-https://quranwbw.com/duas
 
 Page 15 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 rabbana hab lana min azwajina wadhurriyyatina qurrata a'yunin wa-ij'alna lil'muttaqina imaman
-— Transliteration
 
 And those who say, "Our Lord, grant us from among our wives and offspring comfort to our eyes and make us an example for the
 righteous."
@@ -2343,7 +2261,6 @@ Indeed I am
 My Lord!
 
 rabbi inni lima anzalta ilayya min khayrin faqirun
-— Transliteration
 
 So he watered [their flocks] for them; then he went back to the shade and said, "My Lord, indeed I am, for whatever good You
 would send down to me, in need."
@@ -2413,22 +2330,18 @@ and save them (from)
 Your Way
 
 rabbana wasi'ta kulla shayin rahmatan wa'il'man fa-igh'fir lilladhina tabu wa-ittaba'u sabilaka waqihim adhaba al-jahimi
-— Transliteration
 
 Those [angels] who carry the Throne and those around it exalt [Allah] with praise of their Lord and believe in Him and ask
 forgiveness for those who have believed, [saying], "Our Lord, You have encompassed all things in mercy and knowledge, so forgive
 those who have repented and followed Your way and protect them from the punishment of Hellfire.
 — Translation
 
-https://quranwbw.com/duas
 
 Page 16 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 40:8
 
-9/14/1444 AH, 16:36
 
 $ َ َ $ ۡ َ ٰ$ َ ۡ ُۡ ََۡ
 ۡ‫دت ُه ۡم َو َمن َصلَ َح م ِۡن َءابَآئهم‬
@@ -2504,7 +2417,6 @@ and their offspring
 and their spouses
 
 wa-adkhil'hum jannati adnin allati wa'adttahum waman salaha min abaihim wa-azwajihim wadhurriyyatihim innaka anta al-'azizu alhakimu
-— Transliteration
 
 Our Lord, and admit them to gardens of perpetual residence which You have promised them and whoever was righteous among
 their fathers, their spouses and their offspring. Indeed, it is You who is the Exalted in Might, the Wise.
@@ -2560,19 +2472,15 @@ al-'azimu
 the great
 
 waman taqi al-sayiati yawma-idhin faqad rahim'tahu wadhalika huwa al-fawzu al-'azimu
-— Transliteration
 
 And protect them from the evil consequences [of their deeds]. And he whom You protect from evil consequences that Day - You
 will have given him mercy. And that is the great attainment."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 17 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 ۡ َ َ $ َ َٰ َٰ َ َ $َ َ َ ۡ َ ۡ َ ٓ $ َ َ َ ۡ َ ُ ۡ َ ۡ َ ٓ ۡ ۡ َ ّ َ
 ‫ و^ ِ]ي وأن‬opq‫ و‬opq ‫ أنعمت‬Œِ”‫ أن أشكر ن ِعمتك ٱل‬Œِ“‫ب أوزِع‬
@@ -2684,7 +2592,6 @@ of
 
 rabbi awzi'ni an ashkura ni'mataka allati an'amta alayya wa'ala walidayya wa-an a'mala salihan tardahu wa-aslih li fi dhurriyyati inni
 tub'tu ilayka wa-inni mina al-mus'limina
-— Transliteration
 
 And We have enjoined upon man, to his parents, good treatment. His mother carried him with hardship and gave birth to him with
 hardship, and his gestation and weaning [period] is thirty months. [He grows] until, when he reaches maturity and reaches [the age
@@ -2705,7 +2612,6 @@ in
 
 put
 
-https://quranwbw.com/duas
 
 wala
 
@@ -2786,13 +2692,10 @@ our hearts
 
 Page 18 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
-9/14/1444 AH, 16:36
 
 rabbana igh'fir lana wali-ikh'wanina alladhina sabaquna bil-imani wala taj'al fi qulubina ghillan lilladhina amanu rabbana innaka
 raufun rahimun
-— Transliteration
 
 And [there is a share for] those who came after them, saying, "Our Lord, forgive us and our brothers who preceded us in faith and
 put not in our hearts [any] resentment toward those who have believed. Our Lord, indeed You are Kind and Merciful."
@@ -2837,7 +2740,6 @@ upon You
 Our Lord
 
 rabbana alayka tawakkalna wa-ilayka anabna wa-ilayka al-masiru
-— Transliteration
 
 There has already been for you an excellent pattern in Abraham and those with him, when they said to their people, "Indeed, we
 are disassociated from you and from whatever you worship other than Allah. We have denied you, and there has appeared between
@@ -2908,21 +2810,17 @@ the All-Wise
 (are) the All-Mighty
 
 rabbana la taj'alna fit'natan lilladhina kafaru wa-igh'fir lana rabbana innaka anta al-'azizu al-hakimu
-— Transliteration
 
 Our Lord, make us not [objects of] torment for the disbelievers and forgive us, our Lord. Indeed, it is You who is the Exalted in
 Might, the Wise."
 — Translation
 
-https://quranwbw.com/duas
 
 Page 19 of 20
 
-Duas From Quran - Word By Word Translation, Transliteration And Corpus In English, Urdu, Hindi, Indonesian, Bangla, Turkish and Tamil
 
 66:8
 
-9/14/1444 AH, 16:36
 
 َ $ ََۖ ۡ ۡ َ َ َ ُ ََ ۡ َۡ َ$ َ
 ٞ‫ءٖ قَدِ ير‬Œۡ œَ Âّ ‚ُ oٰ َ pَq ‫ك‬
@@ -2982,6 +2880,5 @@ admit you into gardens beneath which rivers flow [on] the Day when Allah will no
 with him. Their light will proceed before them and on their right; they will say, "Our Lord, perfect for us our light and forgive us.
 Indeed, You are over all things competent."
 
-https://quranwbw.com/duas
 
 Page 20 of 20

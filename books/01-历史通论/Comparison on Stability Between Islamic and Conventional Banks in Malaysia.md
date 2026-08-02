@@ -1,8 +1,5 @@
 # Comparison on Stability Between Islamic and Conventional Banks in Malaysia
 
-> 来源: Comparison on Stability Between Islamic and Conventional Banks in Malaysia.pdf
-> 提取于: iSlam/伊斯兰金融/Comparison on Stability Between Islamic and Conventional Banks in Malaysia.pdf
-
 Comparison on Stability Between Islamic and
 Conventional Banks in Malaysia
 Siti Rohaya Mat Rahim1
@@ -136,7 +133,6 @@ impacts on financial stability.
 
 134
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 Internal factors such as loan asset ratio (LAR),cost income ratio (CIR), log total
 assets (LTA), and Herfindahl Index (HI). Bank liquidity is measured as loan assets
@@ -193,7 +189,6 @@ reluctance for the banks to provide credit. High level of NPL requires banks to 
 provision for loan loss. Action of this bank decreases banks revenue by cutting down
 the funds for new lending.
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 135
 
@@ -288,7 +283,6 @@ Islamic banking operations.
 
 136
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 4.0
 
@@ -326,7 +320,6 @@ and Levin, Lin & Chu (2002) at level except for cost income ratio, In (total ass
 income diversity and Herfindahl Index. We conclude that ADF unit root tests in first
 differences show all variables are stationary.
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 137
 
@@ -760,7 +753,6 @@ Table 3.0: Correlation Matrix
 
 138
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 UNIT ROOT TESTS (LEVIN, LIN & CHU) AND (ADF TEST)
 1ST DIFFERENCES
@@ -983,7 +975,6 @@ Table 4.0: Unit Root tests and ADF test
 values in parentheses.
 significant level at 10% (*), 5% (**), 1% (***)
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 4.4
 
@@ -1061,7 +1052,6 @@ Table 5.0: Correlated Fixed Effect: Hausman Test
 
 140
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 STEP 1: Pool vs. FE
 Econometrics Estimation
@@ -1102,7 +1092,6 @@ Fixed Effect (FE)
 
 Figure 1.0: Selection Procedures for Best Model
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 Independent Variables
 
 Z-score (Panel A)
@@ -1375,7 +1364,6 @@ Table 6.0: Fixed Effects Panel Model, 2005-2010
 
 142
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 The regression results of Z-score and NPL have been identified as the dependent
 variable as a proxy of measuring risk shown in Table 6.0. The diagnostics test
@@ -1409,7 +1397,6 @@ macroeconomic variable contributing to financial stability. Our result is in lin
 the previous research which claims, during economic boom, higher real GDP lead to
 higher Z-score and a more stable Islamic bank.
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 4.5
 
@@ -1490,7 +1477,6 @@ Chart 1.0: Average Z-score and NPL, 2005-2010
 
 144
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 Higher Z-score obtained for Islamic banks is mainly due to higher return and equity
 of Islamic banks as compared to those of conventional banks. Higher Z-score
@@ -1522,7 +1508,6 @@ conventional banks from Malaysia banking landscape after financial crisis 2008.
 Large pools of secondary data should be collected from all Islamic and conventional
 banks in Malaysia in order to have a better representative of our conclusions.
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 145
 
@@ -1560,7 +1545,6 @@ Working Papers, No.09/272, 2009. International Monetary Fund, Washington.
 
 146
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 Demirguc-Kunt, Asli, Detragiache, E., Thierry Tressel, T. Banking on the Principles:
 Compliance with Basel Core Principles and Bank Soundness . Journal of Financial
@@ -1593,7 +1577,6 @@ Loghod, H.A. Kuwait Do Islamic Banks Perform Better than Conventional Banks? Evi
 from Gulf Cooperation Council countries . API Working Paper Series, No. 1011, 2010.
 Arab Planning Institute, Saudi Arabia.
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 147
 
@@ -1617,7 +1600,6 @@ Warsaw.
 
 148
 
-Journal of Islamic Economics, Banking and Finance, Vol. 9 No. 3, July - Sep 2013
 
 APPENDIX
 1.0
@@ -1737,7 +1719,6 @@ Foreign
 
 Sources: Bank Negara Malaysia (2011)
 
-Islamic Finance in India: A Study on the Perception of College Teachers in Chennai
 
 2.0
 

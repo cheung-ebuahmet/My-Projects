@@ -1,7 +1,5 @@
 # Zakaah And Fasting
 
-> 来源: Zakaah And Fasting.pdf
-
 In the Name of Allah,
 the Most Gracious, the Most Merciful.
 All the praises and thanks are due to Allah (S.W.T),
@@ -67,7 +65,6 @@ tremendous bounties. It is a means to enter Paradise, and a deed that allows one
 the sweetness of Iman (Faith). Giving this obligatory charity does not decrease a
 person's wealth, as some stingy people may think.
 Whoever refuses to pay Zakat, while rejecting its necessity in Islam, is a disbeliever. On
-http://www.islambasics.com
 
 the other hand, whoever refuses to pay the required Zakat on his wealth due to
 stinginess or laziness, while he still believes that it is a necessary act in Islam, is a
@@ -110,11 +107,9 @@ not been paid) and spend them not in the way of Allah, announce unto them a
 painful torment,"
 (9:34)
 
-http://www.islambasics.com
 
 Also, the Prophet (Peace be upon Him), said:
 "There is no charity on what is less than five Uqiyyah (of silver),"
-(Al-Bukhari and Muslim)
 (Note: One Uqiyyah of silver is 147 grams, thus five Uqiyyahis equal to 735 grams.)
 * Women's Jewelry That is made of Gold or Silver and is Used for Beautification
 Purposes
@@ -142,7 +137,6 @@ buried treasures or mines) When they are found, 1/5th (20%) Zakat is due upon th
 The Prophet (Peace be upon Him) said:
 "There is no compensation for one killed or wounded by an animal, or by falling in a
 well, or due to working in mines: and one-fifth (Zakat) is compulsory on Rikaz,"
-(Al-Bukhari and Muslim)
 * Livestock Animals: Camels, Cows, and Sheep
 Allah's Messenger (Peace be upon Him) said:
 "Whoever had camels or cows or sheep, and did not pay their Zakat those animals
@@ -150,8 +144,6 @@ will be brought on the Day of Resurrection far bigger and fatter than before, Th
 trample him with their hooves and butt him with their horns, When the last has its
 turn, the first will start again, and this punishment will go on until Allah has finished
 the judgements amongst the people,"
-(Al-Bukhari and Muslim)
-http://www.islambasics.com
 
 * Food Grains and Fruit
 Certain crops and grains that could be kept or stored require Zakat to be paid on them.
@@ -167,10 +159,8 @@ Allah's Messenger (Peace be upon Him) said:
 to a nearby water channel. One-tenth (10%) is compulsory (as Zakat); on the land
 irrigated by a well. half of a tenth (5%) is compulsory (as Zakat on the yield of the
 land).”
-(Al-Bukhari and Muslim)
 He (Peace be upon Him) also said:
 "There is no Zakat due on what is less than five Wasqs (of grains or vegetation)."
-(Al-Bukhari and Muslim)
 (Note: Five Wasqs are approximately 900 kg; One Wasq = 60 Sa` of measured grain.)
 
 Types of Wealth That do not Require Zakat
@@ -185,18 +175,15 @@ that which We have produced from the earth for you..."
 *Servants, Horses, Mules and Donkeys
 Allah's Messenger (Peace be upon Him) said:
 "There is no charity required from the Muslim regarding his horse or servant."
-(Al-Bukhari and Muslim)
 Further, it has not been reported that the Prophet (Peace be upon Him) ever collected
 charity on mules or donkeys.
 
-http://www.islambasics.com
 
 *The Money that does not Reach the Amount of Nisab
 Allah's Messenger (Peace be upon Him) said:
 "There is no Zakat on less than five Wasqs (approximately 900 kilograms of grain). There is
 no Zakat on less than five Uqiyyah of silver (735 grams). And there is no Zakat on less than
 five camels
-(Al-Bukhari and Muslim)
 
 *The Property That is not Used for Commercial Purposes
 These include rugs, homes, cars, furniture, precious stones, pearls, and diamonds that are
@@ -229,7 +216,6 @@ year without decreasing below the Nisab amount. The minimum amount of the value 
 business merchandise that requires Zakat to be paid is the same as gold and silver, and
 the merchant could use either standard to estimate how much Zakat he should pay.
 
-http://www.islambasics.com
 
 *Treasures
 When the Muslim finds any treasures hidden in his land, he is required to give a fifth
@@ -274,13 +260,11 @@ for every five Wasqs. If such produce is watered with effort. such as from wells
 irrigation channels, it requires a half of a tenth (5%) as Zakat payment. This means for
 every five Wasqs, there is a quarter of a Wasq (45 kg) due for Zakat.
 
-http://www.islambasics.com
 
 Allah's Messenger (Peace be upon Him) said:
 "On a land irrigated by rain water, or by natural water channels, or if the land is wet due
 to a nearby water channel, one-tenth is compulsory (as Zakat). On the land irrigated by a
 well. half of one tenth is compulsory (as Zakat on the yield of the land),"
-(Al-Bukhari and Muslim)
 
 The Recipients of Zakat
 Zakat is spent on eight groups of people, as mentioned in the Qur'an:
@@ -313,7 +297,6 @@ In a non-Muslim society, no Muslim (individual or group) has the right to demand
 from others by force, violence or any such threats. This is a right that is specifically for
 the Muslim rulers in the lands of the Muslims.
 
-http://www.islambasics.com
 
 Zakatul-Fitr
 There is a Zakat payment due at the end of the month of fasting, called Ramadhan. The
@@ -323,7 +306,6 @@ both, said:
 "Allah's Messenger (Peace be upon Him) enjoined the payment of one Sa' of dates or one
 Sa' of barley as Zakatul-Fitr on every Muslim, slave or free, male or female, young or
 old, and he ordered that it be paid before the people went out to offer the 'Eid prayer."
-(Al-Bukhari and Muslim)
 The best time to pay Zakatul-Fitr is the time from dawn on 'Eid Day (the first day of the
 month following Ramadhan) until just before the 'Eid prayer. However, those who give it
 before the morning of the 'Eid (i.e. a day or two before the 'Eid) have properly fulfilled
@@ -347,7 +329,6 @@ Prophet's Companions named Ibn 'Abbas, may Allah be pleased with them both, said
 from unnecessary or foul speech and as a food for the poor."
 (Abu Dawud and Ibn Majah)
 
-http://www.islambasics.com
 
 The Recipients of Zakatul-Fitr
 Zakatul-Fitr is paid to the same eight categories of people who are eligible to receive the
@@ -358,7 +339,6 @@ unnecessary and foul speech, and as food for the poor,"
 (Abu Dawud and Ibn Majah)
 
 Fasting
-http://www.islambasics.com
 
 In
 Ramadhan
@@ -379,7 +359,6 @@ closed. All the devils are chained during this month. At the end of every night 
 Ramadhan, Allah(S.W.T)will forgive all the sins of those who really observed fasting in a
 proper manner, and rid them of every act of disobedience, The angels will continue to
 
-http://www.islambasics.com
 
 seek mercy and forgiveness for those who observe fasting until they break their fast, The
 smell coming from the mouth of a fasting person is better with Allah (S.W.T) than the
@@ -405,7 +384,6 @@ It is mandatory for every Muslim to fast during Ramadhan and it is one of the we
 are not found in any of the other months. Allah's Messenger (Peace be upon Him) said:
 "Whoever fasts Ramadhan with firm belief and hope of a reward (from Allah(S.W.T)),
 his past sins will be forgiven."
-(Al-Bukhari and Muslim)
 Allah (S.W.T) multiplies the reward for the good deeds performed during certain special
 occasions, such as during the month of Ramadhan. There are also some specific good
 deeds that are highly recommended during Ramadhan. Performing voluntary prayers at
@@ -416,11 +394,9 @@ enter through it on the Day of Resurrection and none except them will enter thro
 will be said, 'Where are those who used to observe fasting?' They will stand up, and none
 except them will enter through it. After their entry, the gate will be closed and no one else
 will enter through it."
-(Al-Bukhari and Muslim)
 
 *When to Begin Fasting
 The first day of Ramadhan can be confirmed by one of the following:
-http://www.islambasics.com
 
 1. By sighting the moon on the night of the 29th of Sha'ban (the month which
 precedes Ramadhan) , When the new crescent is sighted, the fast becomes an
@@ -472,7 +448,6 @@ from fasting and is required to make up for missed days. Allah(S.W.T) said: "...
 but if any of you is ill or on a journey, the same number (should be made up)
 from other days." (2:184)
 
-http://www.islambasics.com
 
 •
 •
@@ -524,7 +499,6 @@ Hastening to break the fast at sunset and breaking it by eating some dates or
 sipping water.
 Invoking Allah while fasting, especially when breaking the fast.
 
-http://www.islambasics.com
 
 *Acts Disliked During the Fast
 
@@ -578,7 +552,6 @@ that none of it is swallowed.
 
 Fasting person must abstain from the following evil deeds and speech:
 
-http://www.islambasics.com
 
 •
 •
@@ -638,7 +611,6 @@ fasting.
 Fasting everyday without any break.
 Intentionally fasting two or more days continuously without breaking the fast.
 
-http://www.islambasics.com
 
 •
 
@@ -684,7 +656,6 @@ Majesty of Allah (S.W.T).
 *Seclusion in the Mosque (I`tikaf)
 One of the special deeds of Ramadhan is I`tikaf. Performing I`tikaf means to confine
 oneself in seclusion in a mosque for the purpose of worshipping Allah alone, leaving
-http://www.islambasics.com
 
 every worldly and personal affair. The mind of the person who observes I`tikaf
 concentrates exclusively on the goal of pleasing Allah (S.W.T). He is engaged in various
@@ -711,7 +682,6 @@ odd numbered nights so as to attain all the rich reward and virtue of that treme
 time. Allah's Messenger (Peace be upon Him) has described its superiority and said:
 "Whoever prays during the Night of Decree, with firm belief and expecting a reward for
 it, his previous sins are forgiven."
-(Al-Bukhari and Muslim)
 In other words, whenever you endeavor in worshipping in the odd nights of the last ten
 nights, then you will definitely attain the virtues of the Night of Decree.
 
@@ -721,8 +691,5 @@ because it is equal in reward to Hajj (the major pilgrimage to Makkah). The Prop
 (Peace be upon Him) said:
 "Umrah in Ramadhan is equal (in reward) to Hajj -or he said "equal to (performing) Hajj
 with me."
-(Al-Bukhari and Muslim)
 
-http://www.islambasics.com
 
-http://www.islambasics.com

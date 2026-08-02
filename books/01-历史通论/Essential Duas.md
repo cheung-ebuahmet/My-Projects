@@ -1,7 +1,5 @@
 # Essential Duas
 
-> 来源: Essential Duas.pdf
-
 www.minsid.com - Essential Duas in the Life of a Muslim
 
 Essential Duas
@@ -13,7 +11,6 @@ Prepared by:
 Jamiatul Ulama (KZN)
 Ta’limi Board
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Title:
 
@@ -50,7 +47,6 @@ E-mail:
 +27-31 902 9268
 talimiboard@webmail.co.za
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Contents
 
@@ -256,7 +252,6 @@ Grade Three
 
 Tick
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Contents
 46. Dua after Durood-e-
@@ -447,7 +442,6 @@ Grade Four
 
 Tick
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Contents
 
@@ -621,14 +615,12 @@ Grade 4 Advanced Syllabus
 
 Tick
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 1
 
 2
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 1.
 
@@ -650,7 +642,6 @@ messenger.
 
 3
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 3.
 
@@ -677,7 +668,6 @@ power over everything.
 
 4
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 5.
 
@@ -698,7 +688,6 @@ Muhammad j is the Messenger of Allah 
 
 5
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 6.
 
@@ -723,7 +712,6 @@ the Last Day, and in Taqdîr, that all good and bad is from Allah
 
 6
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 7.
 
@@ -747,7 +735,6 @@ In the name of Allah  in the beginning and the end.
 
 7
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 9.
 
@@ -773,7 +760,6 @@ O Allah , with Your name do I die and live.
 
 8
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 11.
 
@@ -805,7 +791,6 @@ me discomfort and gave me relief.
 
 9
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 14.
 
@@ -835,7 +820,6 @@ May Allah  guide you.
 
 10
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 17.
 
@@ -851,14 +835,12 @@ Insha Allah.
 
 11
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 2
 
 12
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 18.
 
@@ -882,7 +864,6 @@ home and blessings in my livelihood.
 
 13
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 20.
 
@@ -911,7 +892,6 @@ O Allah , open for me the doors of Your mercy.
 
 14
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 22.
 
@@ -941,7 +921,6 @@ wrongdoings.
 
 15
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 24.
 
@@ -974,7 +953,6 @@ character.
 
 16
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 27.
 
@@ -1002,7 +980,6 @@ except with the help of Allah .
 
 17
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Virtue
 1. When a person recites this dua, it is said to him,
@@ -1033,7 +1010,6 @@ O Allah , do send upon us beneficial rain.
 
 18
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 31.
 
@@ -1066,7 +1042,6 @@ what I feel and fear.
 
 19
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 34.
 
@@ -1079,14 +1054,12 @@ upon Allah  do we rely.
 
 20
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 3
 
 21
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Salaah Duas
 35.
@@ -1115,7 +1088,6 @@ Ta'awwuz
 I seek protection in Allah  from shaytaan, the rejected.
 22
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 38.
 
@@ -1141,7 +1113,6 @@ Allah  hears the one who praises Him.
 
 23
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 41.
 
@@ -1171,7 +1142,6 @@ guide me and provide me with sustenance.
 
 24
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 44.
 
@@ -1191,7 +1161,6 @@ Muhammad j is His servant and messenger.
 
 25
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 45.
 
@@ -1214,7 +1183,6 @@ You are Praiseworthy and Most High.
 
 26
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 46.
 
@@ -1230,7 +1198,6 @@ on me. Surely, You are The Forgiver and The Merciful.
 
 27
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 47.
 
@@ -1270,7 +1237,6 @@ There is no God besides Allah .
 
 28
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 48.
 
@@ -1314,7 +1280,6 @@ There is no God besides Allah .
 
 29
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 49.
 
@@ -1338,14 +1303,12 @@ recites this dua after hearing the adhân.”
 
 30
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 4
 
 31
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 50.
 
@@ -1369,7 +1332,6 @@ certainly, my Lord is Oft-Forgiving, Most Merciful.
 
 32
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 52.
 
@@ -1397,7 +1359,6 @@ the good people of this place.
 
 33
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 54.
 
@@ -1421,7 +1382,6 @@ overtakes the unbelievers.
 
 34
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 55.
 
@@ -1450,7 +1410,6 @@ which You would like and approve of. My Lord and Your Lord
 
 35
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 57.
 
@@ -1478,7 +1437,6 @@ provision (food) do I break my fast.
 
 36
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 59.
 
@@ -1506,14 +1464,12 @@ eat.
 
 37
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 5
 
 38
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 61
 
@@ -1540,7 +1496,6 @@ favors above a great part of His creation.
 
 39
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 63.
 
@@ -1565,7 +1520,6 @@ Allah , grant him cure and peace.
 
 40
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 65.
 
@@ -1591,7 +1545,6 @@ praise, and there is no God besides You.
 
 41
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 67.
 
@@ -1611,7 +1564,6 @@ caused to die, let him die upon imaan.
 
 42
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 68.
 
@@ -1636,7 +1588,6 @@ whose plea has been accepted.
 
 43
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 70.
 
@@ -1661,7 +1612,6 @@ we lay this body to rest.
 
 44
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 72.
 
@@ -1694,14 +1644,12 @@ me when I was small.
 
 45
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 6
 
 46
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 74.
 
@@ -1733,7 +1681,6 @@ O Allah , quench our thirst, O Allah , send us rain.
 
 47
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 77.
 
@@ -1760,7 +1707,6 @@ You. I beg Your forgiveness and repent to You.
 
 48
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Virtue
 Whosoever recites the following dua after sitting in a
@@ -1792,7 +1738,6 @@ shopping centers”
 (Mishkaat)
 49
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 80.
 
@@ -1842,7 +1787,6 @@ Yu
 
  ,F Q"
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 6  ,* }  6i  ,
 
@@ -1907,14 +1851,12 @@ names. Whosoever memorises them will enter Jannah
 
 51
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE
 7
 
 52
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 81.
 
@@ -1934,7 +1876,6 @@ Mushrikeen.
 < 0 0E +:) <,)R < ";
 53
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 Verily, my Salaah, my sacrifice, my life and my death are for
 Allah , Lord of the worlds. He has no partner, with this I have
 been commanded and I am among the Muslimeem. O Allah !
@@ -1957,7 +1898,6 @@ In the name of Allah , Allah  is the greatest.
 
 54
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 83.
 
@@ -1984,7 +1924,6 @@ the people of Jannah. (Bukhaari)
 
 55
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 84.
 
@@ -2006,7 +1945,6 @@ none. You know everything and I know not. You are the Great
 Knower of all things. O Allah , if, in Your sublime knowledge,
 56
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 this matter is good for my Faith (Deen), for my livelihood and
 for the consequences of my affairs, then ordain it for me and
 make it easy for me and bless me therein. But if, in Your
@@ -2030,7 +1968,6 @@ times.
 6 %CN 6 %N +:)
 57
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 85.
 
@@ -2051,7 +1988,6 @@ encompass all of it.” Rasulullah j said: Recite...
 
 58
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 ADVANCED
 
@@ -2059,7 +1995,6 @@ SYLLABUS
 
 59
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE 1: ADVANCED SYLLABUS
 
@@ -2090,7 +2025,6 @@ comfortable, and welcome (to you).
 
 60
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 90.
 
@@ -2114,7 +2048,6 @@ our rising.
 
 61
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 92.
 
@@ -2145,7 +2078,6 @@ humbly trusting Him.
 
 62
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE 3: ADVANCED SYLLABUS
 95.
@@ -2169,7 +2101,6 @@ believe in Allah  and His messengers.
 
 63
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 97.
 
@@ -2198,7 +2129,6 @@ granted us guidance, and grant us mercy from Your side.
 Verily You are The Great Giver of favours
 64
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 99.
 
@@ -2221,7 +2151,6 @@ and has not destroyed us because of our sins.
 
 65
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE 4: ADVANCED SYLLABUS
 
@@ -2247,7 +2176,6 @@ my shame and adorn myself during my life.
 
 66
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Virtue
 It is mentioned in the Hadith that if a person recites this
@@ -2267,7 +2195,6 @@ with you.
 
 67
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 104.
 
@@ -2284,7 +2211,6 @@ XOC % V7 ";%A 6\ 0{R; "; +:)
   57
 68
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 Allah  is the Greatest! Allah  is the Greatest! Allah  is the
 Greatest! O Allah , we ask You to grant us, in this journey of
 ours, piety, abstinence (from sin) and the ability to do actions
@@ -2310,7 +2236,6 @@ life, children, family and wealth.
 
 69
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Virtue
 Hadhrat Ma’qal bin Yasaar  narrates: “Once I
@@ -2336,7 +2261,6 @@ heavens or earth can cause any harm. And He is the One who
 hears and knows everything. (Abu Dawood, Vol. 2, Pg. 346)
 70
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Virtue
 Whosoever recites these words three times in the
@@ -2360,7 +2284,6 @@ Whosoever recites these words in the evening Allâh
 
 71
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 108.
 
@@ -2378,7 +2301,6 @@ protection from the burden of debt and the anger of men.
 
 72
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE 6: ADVANCED SYLLABUS
 109.
@@ -2401,7 +2323,6 @@ recite the above dua. (Bukhaari)
 
 73
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 110.
 
@@ -2431,7 +2352,6 @@ greatest.
 
 74
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 GRADE 7: ADVANCED SYLLABUS
 113.
@@ -2452,7 +2372,6 @@ Mighty Throne. Whatever Allah  has wished has happened
 and whatever He has not wished will certainly not happen.
 75
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 Without the assistance of Allah , we cannot save ourselves
 from any evil nor can we acquire any good. I am sure that Allah
  has power over everything and verily the knowledge of Allah
@@ -2481,7 +2400,6 @@ safe and sound. (Al-Azkaar-Nawawi, Pg. 79)
 
 76
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 114.
 
@@ -2497,7 +2415,6 @@ Friend Ibraheem 
 
 77
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 115.
 
@@ -2522,7 +2439,6 @@ worlds.
 
 78
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Jan
 Grade
@@ -2922,7 +2838,6 @@ Revision
 
 79
 
-www.minsid.com - Essential Duas in the Life of a Muslim
 
 Notes
 

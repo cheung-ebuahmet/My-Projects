@@ -1,8 +1,5 @@
 # Actions For Performing Wudu
 
-> 来源: Actions For Performing Wudu.pdf
-> 提取于: iSlam/伊斯兰概论·入门/Actions For Performing Wudu.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

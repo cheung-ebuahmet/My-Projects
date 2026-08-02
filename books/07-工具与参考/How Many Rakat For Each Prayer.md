@@ -1,8 +1,5 @@
 # How Many Rakat For Each Prayer
 
-> 来源: How Many Rakat For Each Prayer.pdf
-> 提取于: iSlam/伊斯兰概论·入门/How Many Rakat For Each Prayer.pdf
-
 The Islamic Champer
 Articles -Islamic Information and Free material
 

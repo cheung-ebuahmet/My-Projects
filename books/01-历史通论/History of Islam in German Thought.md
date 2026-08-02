@@ -1,7 +1,5 @@
 # History of Islam in German Thought
 
-> 来源: History of Islam in German Thought.pdf
-
 The History of Islam
 in German Thought
 
@@ -64,7 +62,6 @@ David Allan
 
 Almond 3rd pages.indd ii
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:02 AM
 
@@ -80,9 +77,7 @@ Almond 3rd pages.indd iii
 
 London
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 First published 2010
 by Routledge
@@ -103,12 +98,9 @@ Trademark Notice: Product or corporate names may be trademarks or registered tra
 Library of Congress Cataloging in Publication Data
 A catalog record has been requested for this book.
 
-
 Almond 3rd pages.indd iv
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Contents
 
@@ -197,9 +189,7 @@ Schlegel the Historian: Islam as Significant Variable
 
 Almond 3rd pages.indd v
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 vi Contents
 6
@@ -271,9 +261,7 @@ Index
 
 Almond 3rd pages.indd vi
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Acknowledgments
 
@@ -292,15 +280,11 @@ Baudrillard to Foucault (I. B. Tauris, 2007).
 
 Almond 3rd pages.indd vii
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Almond 3rd pages.indd viii
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Introduction
 
@@ -338,9 +322,7 @@ coherent, gradually self-modifying beliefs and opinions, located around a
 
 Almond 3rd pages.indd 1
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 2
 
@@ -384,9 +366,7 @@ a Satanic phenomenon. Rather than seeing a prejudiced and biased Orientalist tra
 
 Almond 3rd pages.indd 2
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Introduction 3
 intellectual mainstream with its own store of images and clichés, what was
@@ -428,13 +408,10 @@ more ease and freedom than Christians do”.3
 
 Almond 3rd pages.indd 3
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 4
 
-The History of Islam in German Thought
 
 In the German-speaking lands at that time, contact with and awareness
 of Ottoman culture was certainly greater than one might think. As the
@@ -478,9 +455,7 @@ concerned many German thinkers was the emergence of ‘the Eastern Question’, 
 
 Almond 3rd pages.indd 4
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:02 AM
 
 Introduction 5
 of Christians (Greek Orthodox and Armenian) living under Ottoman rule,
@@ -517,7 +492,6 @@ the driving force behind the writing of this melancholy book.
 
 Almond 3rd pages.indd 5
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:03 AM
 
@@ -558,9 +532,7 @@ of this chapter will try to show how the agreements, tensions and confl icts
 
 Almond 3rd pages.indd 6
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 Leibniz, Historicism and the Plague of Islam 7
 between these three identities are reflected in (at times, even initiated by)
@@ -605,13 +577,10 @@ problematic counterpoints. The fi rst of these is Leibniz’s epistemological
 
 Almond 3rd pages.indd 7
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 8
 
-The History of Islam in German Thought
 
 subtlety—a sophisticated awareness of the extent to which human beings
 will modify information to suit their own political/doctrinal intentions. A
@@ -651,9 +620,7 @@ spend a moment briefly considering each one in turn.
 
 Almond 3rd pages.indd 8
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 Leibniz, Historicism and the Plague of Islam 9
 The fi rst context would be that of Leibniz’s more illustrious contemporaries. Franklin Perkins, in his excellent Leibniz and China, sees Leibniz
@@ -698,13 +665,10 @@ Amongst the Oxford/Cambridge renaissance of Arabic studies in the
 
 Almond 3rd pages.indd 9
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 10
 
-The History of Islam in German Thought
 
 seventeenth century, the figure of Edward Pococke (1604–1691) emerges as
 an interesting precursor to Leibniz’s own historicism. Not simply because
@@ -744,9 +708,7 @@ Van Helmont, not to mention Leibniz’s faintly Rosicrucian belief that the
 
 Almond 3rd pages.indd 10
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 Leibniz, Historicism and the Plague of Islam 11
 wisdom inherent in the mystery of the numbers “came from the Orient to
@@ -789,13 +751,10 @@ apples taste much sweeter than any India could send us. Mixed in with a
 
 Almond 3rd pages.indd 11
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 12
 
-The History of Islam in German Thought
 
 slightly trivial nationalism, however, is a more serious affi rmation on Leibniz’s part on what it means to belong to a nation. Beneath a shallow preference for homegrown vegetables and German linen, a much more earnest
 analysis of the naturalness and necessity of patriotism is offered:
@@ -836,9 +795,7 @@ is an expression of intelligence, not a subjugation of it. In this national
 
 Almond 3rd pages.indd 12
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 Leibniz, Historicism and the Plague of Islam 13
 becoming-aware of responsibility (the unpatriotic for Leibniz are literally
@@ -883,13 +840,10 @@ we fi nd the author of the Egyptian Plan, bereft of the Lutheran consolation
 
 Almond 3rd pages.indd 13
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 14
 
-The History of Islam in German Thought
 
 of a Hidden Hand, trying to understand ten years later how such Turkish
 success was possible:
@@ -929,9 +883,7 @@ see” and deems all “histories to be the same as fairytales” (p. 84), Leibn
 
 Almond 3rd pages.indd 14
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:03 AM
 
 Leibniz, Historicism and the Plague of Islam 15
 historically challenged, trapped in an idiot stupor by an epistemological
@@ -971,13 +923,11 @@ enemy—Leibniz’s Turks, one almost feels, could quite easily be replaced by
 
 Almond 3rd pages.indd 15
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:04 AM
 
 16
 
-The History of Islam in German Thought
 
 Visigoths or barbarians with no great disturbance to the text, so little does
 the faith of Köprülü’s soldiers impinge upon the general narrative. Perhaps
@@ -1017,9 +967,7 @@ always been attractive to the greatest and wisest men as the sole means of
 
 Almond 3rd pages.indd 16
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 Leibniz, Historicism and the Plague of Islam 17
 re-establishing [restaurandum] the interests of Christianity in the Orient”.56
@@ -1062,9 +1010,7 @@ culture to be the expansion of consciousness.
 
 Almond 3rd pages.indd 17
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 18 The History of Islam in German Thought
 Any part the Muslim Orient played in this process of “expansion” would
@@ -1107,9 +1053,7 @@ Other was either demonized or, at the very best, transformed into a qualityless,
 
 Almond 3rd pages.indd 18
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 Leibniz, Historicism and the Plague of Islam 19
 porous Leibniz’s political and religious identities were—how easily the enemies of the Habsburgs could become the enemies of Christ, how explicitly
@@ -1153,13 +1097,10 @@ that they may give praise to Our Lord God . . . I . . . wish to exert myself to 
 
 Almond 3rd pages.indd 19
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 20
 
-The History of Islam in German Thought
 those in error might be shown the path to glory without end and avoid
 infi nite suffering.
 Every science requires words by which it can best be presented, and
@@ -1199,9 +1140,7 @@ small part to medieval Christendom’s most renowned anti-Islamic apologist, it 
 
 Almond 3rd pages.indd 20
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 Leibniz, Historicism and the Plague of Islam 21
 of the Turks, as playing a significant part in Leibniz’s plan for a universal
@@ -1246,13 +1185,10 @@ pastors than any love of Mahomet”81). This reluctance to acknowledge
 
 Almond 3rd pages.indd 21
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 22
 
-The History of Islam in German Thought
 
 anything remotely good about Islam—and the consequent decision to
 attribute its successes to the deficiencies of the Catholic/Orthodox church
@@ -1296,9 +1232,7 @@ Leibniz’s approach is generally more positive, although the clause-inducing �
 
 Almond 3rd pages.indd 22
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:04 AM
 
 Leibniz, Historicism and the Plague of Islam 23
 Even Mahomet in time did not stray from these important teachings of
@@ -1340,13 +1274,11 @@ discoveries and the process by which they arrive at them.90
 
 Almond 3rd pages.indd 23
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:05 AM
 
 24
 
-The History of Islam in German Thought
 
 History, Leibniz once remarked, is the mother of observation.91 In three
 quests—Leibniz’s search for a reliable translation of the Koran, his linguistic investigations into the fi rst ‘Adamic’ language and the related ethnological inquiry into what he called “the origin of nations”92 —historicism
@@ -1386,9 +1318,7 @@ the genealogy of Mohammed and the identity of Ibn Khallikan become
 
 Almond 3rd pages.indd 24
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 Leibniz, Historicism and the Plague of Islam 25
 more important than the Sultan’s intent in Transylvania or the size of his
@@ -1431,9 +1361,7 @@ in the verification of the past, a supplier of “powerful evidence of truth”
 
 Almond 3rd pages.indd 25
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 26 The History of Islam in German Thought
 and not by a priest, is also significant in this respect. When Leibniz writes
@@ -1478,9 +1406,7 @@ well the nations of Scythia from Poland up to China, and in order to do
 
 Almond 3rd pages.indd 26
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 Leibniz, Historicism and the Plague of Islam 27
 this, I propose, that we try to obtain the pater noster, in the languages
@@ -1523,13 +1449,10 @@ to German, but also to the hypothetical primordial tongue. This movement
 
 Almond 3rd pages.indd 27
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 28
 
-The History of Islam in German Thought
 
 from eternal foe to philological source is no sea-change, nor does it represent an unbroken, continuous movement. What it does suggest, however,
 is the gradual primacy of Leibniz’s philological identity over his political/
@@ -1543,9 +1466,7 @@ scripture, would ultimately problematize Leibniz’s simplistic picture of the
 
 Almond 3rd pages.indd 28
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 2
 
@@ -1584,13 +1505,10 @@ this upsetting of what Kant calls “a certain order” in the communication
 
 Almond 3rd pages.indd 29
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:05 AM
 
 30
 
-The History of Islam in German Thought
 
 of thoughts, lies a genuine fear of displacement, an unease concerning the
 kinds of directions words like “Turkey” can take us. The questions Kant
@@ -1634,7 +1552,6 @@ the reader to his project for a new “critical inquiry into the faculty of reas
 
 Almond 3rd pages.indd 30
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:06 AM
 
@@ -1682,13 +1599,11 @@ work of scholarship and reason juxtaposed against the mystical ease of the
 
 Almond 3rd pages.indd 31
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:06 AM
 
 32
 
-The History of Islam in German Thought
 
 pseudo-philosophers’ inspiration. The pride of the Arab, like that of the
 enthusiast or mystagogue, is an essentially groundless one; the visionary
@@ -1730,7 +1645,6 @@ inspiration and a great understanding with the divine forces. Human
 
 Almond 3rd pages.indd 32
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:06 AM
 
@@ -1774,13 +1688,11 @@ Kant would later attribute to the dynamical sublime.
 
 Almond 3rd pages.indd 33
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:06 AM
 
 34
 
-The History of Islam in German Thought
 
 There is certainly a question of pride here. Not simply the Stolz the
 Critique of Judgment is willing to attribute to “Mohammedans”, but also
@@ -1821,7 +1733,6 @@ Beautiful and the Sublime, we are assured that “the inhabitant of the Orient .
 
 Almond 3rd pages.indd 34
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:07 AM
 
@@ -1864,13 +1775,10 @@ would impose upon reason. The description Kant offers for such mystical
 
 Almond 3rd pages.indd 35
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 36
 
-The History of Islam in German Thought
 
 de-selving (“melting union”) is already sexually charged. “Mohammed’s
 paradise”, with its blasphemous transplanting of the sexual into the realm
@@ -1909,9 +1817,7 @@ undermined elsewhere by a very different version of Islam—one more to do
 
 Almond 3rd pages.indd 36
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 Kant, Islam and the Preservation of Boundaries 37
 with harsh severity and “devotional practices . . . of a fierce kind” (6:184)
@@ -1951,13 +1857,10 @@ produces the same kind of ‘almost’ (fast) Luther had to fi nd in dealing
 
 Almond 3rd pages.indd 37
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 38
 
-The History of Islam in German Thought
 
 with the ‘Mohammedans’ predestination and iconoclasm: Islam momentarily escapes the slightly Papist (Pfaffentum) label of “fetish-faith” in this
 spiritual obligation which also leads to a moral good. This could almost be
@@ -1996,9 +1899,7 @@ is generally understood to be problematic to some varying degree. However, what 
 
 Almond 3rd pages.indd 38
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 Kant, Islam and the Preservation of Boundaries 39
 amongst the various reworkings of these crucial two dozen pages in the
@@ -2041,13 +1942,10 @@ all the judgement of a sensation—and between reason and the imagination.
 
 Almond 3rd pages.indd 39
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 40
 
-The History of Islam in German Thought
 
 This tension explains the agonistic tone which pervades Sections 23 to 29,
 the constant, stifled sense of strife with which Kant narrates the struggle
@@ -2085,9 +1983,7 @@ apprehension from the base to the peak, but during that time some of
 
 Almond 3rd pages.indd 40
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 Kant, Islam and the Preservation of Boundaries 41
 the earlier parts are inevitably extinguished in the imagination before it
@@ -2133,13 +2029,10 @@ following the example of the pyramids, Kant writes: “An object is monstrous (U
 
 Almond 3rd pages.indd 41
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:07 AM
 
 42
 
-The History of Islam in German Thought
 
 purpose and being, between Zweck and Sein, lie at the heart of Kant’s
 abyssal anxiety concerning that which has no apparent raison d’être. The
@@ -2182,7 +2075,6 @@ of the subject—they do not stop at the merely sensible. Otherwise such agitati
 
 Almond 3rd pages.indd 42
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:08 AM
 
@@ -2226,13 +2118,10 @@ overactive imagination, but rather check and moderate the enthusiasm it
 
 Almond 3rd pages.indd 43
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 44
 
-The History of Islam in German Thought
 
 arouses—does suggest that this control of the “unbounded imagination” is
 something neither Jews nor Muslims have succeeded in doing.
@@ -2275,9 +2164,7 @@ PHYSICAL GEOGRAPHY AS A MERE APPENDIX
 
 Almond 3rd pages.indd 44
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 Kant, Islam and the Preservation of Boundaries 45
 In this chapter, we have been trying to defamiliarize a latent topography
@@ -2322,13 +2209,10 @@ wall of Kant’s abstract prose in minor allusions or incidental footnotes. In
 
 Almond 3rd pages.indd 45
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 46
 
-The History of Islam in German Thought
 
 comparison with the rest of Kant’s critical project—which “abstracts from
 all content of the knowledge of understanding . . . and deals with nothing
@@ -2363,9 +2247,7 @@ after showing the imperfections in their characters:
 
 Almond 3rd pages.indd 46
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 Kant, Islam and the Preservation of Boundaries 47
 1. Land of fashions (France) 2. Land of moods (England) 3. Land
@@ -2405,13 +2287,10 @@ Montesquieu’s Persian Letters and others. Moreover, the examples Kant
 
 Almond 3rd pages.indd 47
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 48
 
-The History of Islam in German Thought
 
 gives for his fictitious Turkish traveller suggest that even if there were such
 a thing as Turkish anthropology, it would be a superficial, vague, inaccurate affair, another example of how the Mohammedan is unable to grasp
@@ -2455,9 +2334,7 @@ and England, it constitutes one of the few moments in Kant’s oeuvre where
 
 Almond 3rd pages.indd 48
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 Kant, Islam and the Preservation of Boundaries 49
 the Orient is allowed to gaze back, and indeed name what it gazes upon.
@@ -2502,9 +2379,7 @@ seven heavens. The people of Medina began to follow him, and he fled
 
 Almond 3rd pages.indd 49
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:08 AM
 
 50 The History of Islam in German Thought
 there from persecution, which he suffered from the government of Mekka. This flight of his forms a special era for Mohammedans, which
@@ -2542,7 +2417,6 @@ small, feudal cult, engineered by a gifted, charismatic leader with delusions
 
 Almond 3rd pages.indd 50
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:09 AM
 
@@ -2588,9 +2462,7 @@ of remarking, once again, how the eighteenth-century project of modernity
 
 Almond 3rd pages.indd 51
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
 52 The History of Islam in German Thought
 had its origins in a very European desire for separation, had its conditions
@@ -2607,13 +2479,10 @@ rational space of his philosophy.
 
 Almond 3rd pages.indd 52
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
 3
 
-Herder’s Arab Fantasies
 Alas, the claims Kalligone had to unjustly struggle with! This stuff
 nowadays is called in so many journals Kritik, and is the order of the
 day. All the young Kantians, Fichtians, Schellingians, etc, etc, recite
@@ -2650,13 +2519,10 @@ the history of a familiar rivalry. Herder’s two Prophets point the way to
 
 Almond 3rd pages.indd 53
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
 54
 
-The History of Islam in German Thought
 
 something much more serious and much more complex in the thinker’s own
 attitudes towards Islam, and the peoples and cultures he understood to be
@@ -2697,11 +2563,8 @@ had to rely on ranged quite widely from the blatantly biased ‘travellers’ ta
 
 Almond 3rd pages.indd 54
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
-Herder’s Arab Fantasies
 
 55
 
@@ -2748,13 +2611,10 @@ he calls himself a Turkish camel driver, or addresses the Orientalist Carsten
 
 Almond 3rd pages.indd 55
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
 56
 
-The History of Islam in German Thought
 
 Niebuhr in another correspondence as his ‘Hadschi’ (fellow Muslim
 pilgrim)19; at other times Herder can sound conventionally Christian (in
@@ -2795,11 +2655,8 @@ respect what a blessing the Christian religion is for the state and sciences, fo
 
 Almond 3rd pages.indd 56
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
-Herder’s Arab Fantasies
 
 57
 
@@ -2842,13 +2699,10 @@ basis and challenged all to competition: because he excelled [all around
 
 Almond 3rd pages.indd 57
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
 58
 
-The History of Islam in German Thought
 him] in poetry, he also became triumphant in religion, so strong was
 his belief in the divinity of poetry.32
 
@@ -2887,11 +2741,8 @@ somehow wrong. When we follow the two-page description of Mohammed in the Ideen,
 
 Almond 3rd pages.indd 58
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:09 AM
 
-Herder’s Arab Fantasies
 
 59
 
@@ -2931,13 +2782,11 @@ very Protestant Distanzierung from the abuses of an increasingly Catholic/Orthod
 
 Almond 3rd pages.indd 59
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:10 AM
 
 60
 
-The History of Islam in German Thought
 
 victories as having competed against “the corrupted traditions of Christianity” (p. 421). In the familiar praises sung of Herder’s willingness
 to critique the cruel histories of Christian nations, his denunciation of
@@ -2976,11 +2825,8 @@ of Papal Rome, which is held almost single-handedly responsible for the
 
 Almond 3rd pages.indd 60
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
-Herder’s Arab Fantasies
 
 61
 
@@ -3023,13 +2869,10 @@ neighbour.
 
 Almond 3rd pages.indd 61
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
 62
 
-The History of Islam in German Thought
 
 HERDER THE POET: FANTASIST, IDEALIST
 AND SEEKER OF RENEWAL
@@ -3073,11 +2916,8 @@ noses and begin to speak in couplets.
 
 Almond 3rd pages.indd 62
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
-Herder’s Arab Fantasies
 
 63
 
@@ -3117,9 +2957,7 @@ critique of European inwardness Herder expressed in his regular references
 
 Almond 3rd pages.indd 63
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
 64 The History of Islam in German Thought
 to ‘this corner of the world’ or ‘our little continent’, coupled with his cynicism concerning the ‘abstracted name’ of European culture (“where does it
@@ -3165,11 +3003,8 @@ the same”63), his emphasis on the Heraclitean nature of the timeline and
 
 Almond 3rd pages.indd 64
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
-Herder’s Arab Fantasies
 
 65
 
@@ -3210,13 +3045,10 @@ In the rather Leibnizian Idea for the First Patriotic Institute (1788), we are
 
 Almond 3rd pages.indd 65
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
 66
 
-The History of Islam in German Thought
 
 told how “Greek, Latin and Arabic” offered excellent examples of “what
 secret dominance a nation achieves” when it learns how to manipulate and
@@ -3255,11 +3087,8 @@ the contemporary political hope of Europe in the example of Islam and the
 
 Almond 3rd pages.indd 66
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:10 AM
 
-Herder’s Arab Fantasies
 
 67
 
@@ -3303,7 +3132,6 @@ the Turks:
 
 Almond 3rd pages.indd 67
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:11 AM
 
@@ -3346,11 +3174,8 @@ resolve as Luther had, with an appeal to apocalyptic hermeneutics and a
 
 Almond 3rd pages.indd 68
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
-Herder’s Arab Fantasies
 
 69
 
@@ -3397,9 +3222,7 @@ of Herder also reveals, however, is exactly how ambiguous the benefits of
 
 Almond 3rd pages.indd 69
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 70 The History of Islam in German Thought
 an empirically grounded historicism was for the non-European. If Kant’s
@@ -3438,9 +3261,7 @@ distinctive, ultimately discordant voices.
 
 Almond 3rd pages.indd 70
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 4 Keeping the Turks Out of Islam
 Goethe’s Ottoman Plan
@@ -3480,13 +3301,10 @@ contribute to the more familiar debates concerning the essence of Goethe’s
 
 Almond 3rd pages.indd 71
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 72
 
-The History of Islam in German Thought
 
 conservatism, the nature of his own Christian faith and his relationship to
 the whole question of colonialism.
@@ -3531,9 +3349,7 @@ in Goethe’s work.11 Although there is a general sense of terrible Turks
 
 Almond 3rd pages.indd 72
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 Keeping the Turks Out of Islam 73
 and noble Arabs in Goethe’s writings, such remarks, however infrequent,
@@ -3576,13 +3392,10 @@ Ottoman oppression of Greeks and other insurgents are not sufficient in
 
 Almond 3rd pages.indd 73
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 74
 
-The History of Islam in German Thought
 
 themselves to explain Goethe’s overwhelmingly negative picture of the
 Turk. The fi rst reason, obviously enough, is that a number of favourable
@@ -3627,9 +3440,7 @@ in the Notes, nor in the desire to “drive the Turks out of Europe”, which
 
 Almond 3rd pages.indd 74
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 Keeping the Turks Out of Islam 75
 Goethe expressed in letters and in conversation many times in later life.23 It
@@ -3676,13 +3487,10 @@ may have been just as much due to embarrassment as consternation.
 
 Almond 3rd pages.indd 75
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:11 AM
 
 76
 
-The History of Islam in German Thought
 
 And so the question arises: what maneuvers did Goethe’s love of the Orient and devotion to Islam follow, whenever it came across the occupiers of
 Constantinople and the oppressors of the Balkans? How did Goethe handle
@@ -3726,7 +3534,6 @@ end of any Aristotelian ladder. This fi nitude and quotidian triviality of
 
 Almond 3rd pages.indd 76
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:12 AM
 
@@ -3771,13 +3578,10 @@ limited degree, this colloquial semantic ubiquity of the Turk would in part
 
 Almond 3rd pages.indd 77
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 78
 
-The History of Islam in German Thought
 
 explain why the aura of the sublime, which Goethe was happy to throw
 around the Arab and the Persian, was never quite extended to an image as
@@ -3818,9 +3622,7 @@ falling in their thousands were Unchristen, and yet something made
 
 Almond 3rd pages.indd 78
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 Keeping the Turks Out of Islam 79
 Goethe choose the word gebildet—cultured, erudite, literally ‘shaped’.
@@ -3863,13 +3665,10 @@ November 18, 1824
 
 Almond 3rd pages.indd 79
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 80
 
-The History of Islam in German Thought
 
 This acknowledgment of Islam not just as a civilization but also as a civilizing force was simply not allowed to interfere with Goethe’s treatment of the
 Ottomans. Instead, Goethe’s de-Islamified Turks appeared strangely free of
@@ -3912,9 +3711,7 @@ concerning the “Battle of Cesme”, taking from the biography of the painter
 
 Almond 3rd pages.indd 80
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 Keeping the Turks Out of Islam 81
 Philipp Hackert, were written in 1811, a good three years before that fateful day in May when Goethe fi rst began to read the book of Persian poetry,
@@ -3960,13 +3757,10 @@ apophatically absent from the text. Equally absent is religion; the Heldenlieder
 
 Almond 3rd pages.indd 81
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 82
 
-The History of Islam in German Thought
 
 Islamic or Christian colouring—a single “Allah! Allah!” from a Turk about
 to be slain is the only inkling we receive of the Turk’s faith.47 To fill in
@@ -4011,9 +3805,7 @@ read “from beginning to end” (von Anfang bis zu Ende durch52), he would
 
 Almond 3rd pages.indd 82
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 Keeping the Turks Out of Islam 83
 have repeatedly encountered emphasis after emphasis on the humanity of
@@ -4056,13 +3848,10 @@ Fanariots demanded.
 
 Almond 3rd pages.indd 83
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:12 AM
 
 84
 
-The History of Islam in German Thought
 
 In one sense, the increase in sophistication of Goethe’s treatment of the
 Ottomans in this late text is extraordinary. Banished is any talk of faceless
@@ -4103,7 +3892,6 @@ made poetic use of Diez’s Turkish writings, whilst never allowing them
 
 Almond 3rd pages.indd 84
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:13 AM
 
@@ -4146,13 +3934,10 @@ from the perspective of love”61—that is to say, we are required to love our
 
 Almond 3rd pages.indd 85
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 86
 
-The History of Islam in German Thought
 
 enemies as we love God—then with Aquinas the New Testament obligation
 to love our Feind is privatised within an internal sphere, a notion of perfect
@@ -4198,9 +3983,7 @@ wouldn’t have said anything”.65 Clearly, the separation of these spiritual
 
 Almond 3rd pages.indd 86
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 Keeping the Turks Out of Islam 87
 and political vocabularies in Goethe, a separation which would decide
@@ -4242,13 +4025,10 @@ examples made any impression on the poet, they certainly had no effect;
 
 Almond 3rd pages.indd 87
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 88
 
-The History of Islam in German Thought
 
 Goethe’s “terrible” (furchtbaren) Turks, and all their later appearances in
 his work, seem to have enjoyed little modification from his encounter with
@@ -4267,9 +4047,7 @@ to no one but himself.
 
 Almond 3rd pages.indd 88
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 5
 
@@ -4309,13 +4087,10 @@ his references to it did not disappear, but rather mutated and developed
 
 Almond 3rd pages.indd 89
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 90
 
-The History of Islam in German Thought
 
 along a bewildering array of different trajectories—race, literature, history, empire, apocalypse. The aim of our chapter on Schlegel will be to
 try and give some meaning to these sprawling trajectories, to try and show
@@ -4355,9 +4130,7 @@ the fragment—as modern lament for a lost whole or proto-deconstructive
 
 Almond 3rd pages.indd 90
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 Friedrich Schlegel and the Emptying of Islam 91
 affi rmation of irony12— the fact remains that Schlegel’s dedication to them
@@ -4399,13 +4172,10 @@ new Bible, and to walk in the footsteps of Mohammed and Luther.
 
 Almond 3rd pages.indd 91
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 92
 
-The History of Islam in German Thought
 
 At fi rst glance, Schlegel’s responses to the Muslim Orient before 1804
 do not seem too different from the standard Romantic features already
@@ -4448,9 +4218,7 @@ still refer to the persistence of Arabic words in Spanish as similar to those of
 
 Almond 3rd pages.indd 92
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:13 AM
 
 Friedrich Schlegel and the Emptying of Islam 93
 Latin in Italian, and was still able to argue for Arab fairy tales as the most
@@ -4495,13 +4263,11 @@ After all, had not Goethe defi ned the arabesque as the “tasteful bringing tog
 
 Almond 3rd pages.indd 93
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:14 AM
 
 94
 
-The History of Islam in German Thought
 
 building”?29 Schlegel’s own significant association of wit (Witz) with ‘bonding’ (Verbindung), the bringing together of different elements to produce an
 “explosion of bound spirit”, 30 certainly helps us to understand the attention the thinker devoted to the term ‘arabesque’—variously defi ned as the
@@ -4541,9 +4307,7 @@ Keim (seed) and Race, he also appeared to follow Herder’s notion of Völker
 
 Almond 3rd pages.indd 94
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:14 AM
 
 Friedrich Schlegel and the Emptying of Islam 95
 or tribes as having particular, inherent characteristics which their customs,
@@ -4587,13 +4351,10 @@ slightest worth”, have their love of poetry reattributed to a “Persian or
 
 Almond 3rd pages.indd 95
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:14 AM
 
 96
 
-The History of Islam in German Thought
 
 even Gothic origin”; by 1811 the “Uzens” and “Pechens” are declared to
 be “not Turkish but Finnish-Hungarian”, whilst Schlegel (quite correctly)
@@ -4635,9 +4396,7 @@ to be truly “cleansed of any nationalism”, a kind of anonymous, untitled
 
 Almond 3rd pages.indd 96
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:14 AM
 
 Friedrich Schlegel and the Emptying of Islam 97
 program which the Arabs merely installed, without ever colouring or influencing its enigmatically vapid nothingness in any way.
@@ -4681,13 +4440,10 @@ the world”49 —it is difficult not to see Schlegel’s doubt in the existence
 
 Almond 3rd pages.indd 97
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:14 AM
 
 98
 
-The History of Islam in German Thought
 
 philologist’s ideological settings being disturbed by the implications of
 his own research, by the products of his own fervour. In this respect, the
@@ -4725,9 +4481,7 @@ accounts for some of the reductions, adjustments and omissions the Muslim world 
 
 Almond 3rd pages.indd 98
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:14 AM
 
 Friedrich Schlegel and the Emptying of Islam 99
 in moments where “Mohammedan” history came too close to its Christian counterpart—either literally, in terms of an alliance or collaboration,
@@ -4771,7 +4525,6 @@ interest in Islam as a possibly incomplete and unactualized “progressive
 
 Almond 3rd pages.indd 99
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:15 AM
 
@@ -4813,9 +4566,7 @@ be. Unsurprisingly, Schlegel’s later remarks tend to link together Mohammed, L
 
 Almond 3rd pages.indd 100
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 Friedrich Schlegel and the Emptying of Islam 101
 cumulative subversion of the one true order. His description of Napoleon’s
@@ -4857,13 +4608,10 @@ once praised Lessing’s “infinite contempt for the letter”,71 was now devot
 
 Almond 3rd pages.indd 101
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 102
 
-The History of Islam in German Thought
 
 himself to an equally infinite worship of the number. The medieval echo of
 Schlegel’s maneuvers is striking; just as figures such as Alexander Minorita
@@ -4905,9 +4653,7 @@ Schlegel’s otherwise wholly Christian calculations to fi nd the beginning of
 
 Almond 3rd pages.indd 102
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 Friedrich Schlegel and the Emptying of Islam 103
 the new Christian epoch, a gesture which seems to suggest something far
@@ -4946,13 +4692,10 @@ the Arabic term nabi—more so than its Hebrew equivalent, na’vim—may
 
 Almond 3rd pages.indd 103
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 104
 
-The History of Islam in German Thought
 
 explain (erklären) for us more fully the mission of Christ does bring Christianity into an historically dependent relationship to Islam. Although the
 positivity of this gesture should not be exaggerated—Islam is still, in the
@@ -4993,9 +4736,7 @@ mere loans,82 an absence of “originality”. Suggesting the Koran may help
 
 Almond 3rd pages.indd 104
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 Friedrich Schlegel and the Emptying of Islam 105
 us better understand the Bible certainly upsets this one-way relationship
@@ -5034,9 +4775,7 @@ Christianity than [simply] being based on the oneness of God and a
 
 Almond 3rd pages.indd 105
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 106 The History of Islam in German Thought
 pagan anti-Christianity. The nearer, the more similar, the more closelyrelated something is, the more fatal is the poison.87
@@ -5076,9 +4815,7 @@ the larger question of how much influence an epoch’s scholarship can have
 
 Almond 3rd pages.indd 106
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 Friedrich Schlegel and the Emptying of Islam 107
 on its intellectual mainstream. Schlegel’s conviction of the worthlessness
@@ -5121,13 +4858,10 @@ scholar’s keener philological suspicions in check.
 
 Almond 3rd pages.indd 107
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 6
 
-Hegel and the Disappearance of Islam
 and so Goethe turned to the Orient and with his Divan delivered a
 string of pearls [eine Perlenschnur], which in its sincerity and rapture
 of the imagination surpasses everything else.
@@ -5164,11 +4898,8 @@ The classic image of Hegel as an infi nitely systematic philosopher, sweeping up
 
 Almond 3rd pages.indd 108
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
-Hegel and the Disappearance of Islam
 
 109
 
@@ -5209,9 +4940,7 @@ thinker’s admiration for Persian poetry a form of compromise, as Hegel
 
 Almond 3rd pages.indd 109
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
 110 The History of Islam in German Thought
 allows poets such as Rumi and Hafi z a tentative place alongside Goethe on
@@ -5258,11 +4987,8 @@ lapse of an otherwise commendable thinker—a failure on Hegel’s part, so
 
 Almond 3rd pages.indd 110
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:15 AM
 
-Hegel and the Disappearance of Islam
 
 111
 
@@ -5307,7 +5033,6 @@ on the State’s attitude towards that crucial word for Hegel, Bildung. Hegel’
 
 Almond 3rd pages.indd 111
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:16 AM
 
@@ -5354,11 +5079,8 @@ it sat on his library shelf for an uncertain number of years.
 
 Almond 3rd pages.indd 112
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
-Hegel and the Disappearance of Islam
 
 113
 
@@ -5405,13 +5127,10 @@ left out the minutiae.
 
 Almond 3rd pages.indd 113
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
 114
 
-The History of Islam in German Thought
 
 Out of fairness to Hegel, this picture of a thinker who only selected the
 nuggets of negativity he needed from his reading of the Muslim world,
@@ -5458,11 +5177,8 @@ editorship to events in the Ottoman world. In some issues—such as April
 
 Almond 3rd pages.indd 114
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
-Hegel and the Disappearance of Islam
 
 115
 
@@ -5505,13 +5221,10 @@ contrary, some of the articles Hegel chose to reproduce in the Bamberger
 
 Almond 3rd pages.indd 115
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
 116
 
-The History of Islam in German Thought
 
 Zeitung were actually quite pro-Turkish. Amongst the reports Hegel culled
 and inserted during his editorship, we fi nd criticism of the “deceitful proposals” (hinterlistige Vorschläge) the English cabinet made to the Turks in
@@ -5553,11 +5266,8 @@ that “even the Turks have mostly allowed their Christian/Armenian/Jewish
 
 Almond 3rd pages.indd 116
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
-Hegel and the Disappearance of Islam
 
 117
 
@@ -5597,13 +5307,10 @@ Goethe’s Koranic categorical imperative) Kant and Islam are brought
 
 Almond 3rd pages.indd 117
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
 118
 
-The History of Islam in German Thought
 
 together—this time not to decry a besotted readership or emphasize a universal ethic, but to express frustration at a certain epistemological renunciation. At times, Hegel makes the point quite explicitly; in one 1824 lecture,
 we are told how Islam “is the religion of the Enlightenment, of reflection, of
@@ -5644,11 +5351,8 @@ was like producing wine in the Arabian desert46). However, for all his critique
 
 Almond 3rd pages.indd 118
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
-Hegel and the Disappearance of Islam
 
 119
 
@@ -5691,13 +5395,10 @@ it was seeking was to be looked for in subjective consciousness alone, and in
 
 Almond 3rd pages.indd 119
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
 120
 
-The History of Islam in German Thought
 
 no external object” (ibid.). Hegel’s Crusaders, effectively, were looking for
 Truth in a tomb, instead of in themselves. For all the Enlightenment thinker’s genuine disgust at the sanguinity of the ‘Holy Wars’, their blindness
@@ -5736,11 +5437,8 @@ of wild soldiers, Cossacks, Prussians, all mixed together. She was ter-
 
 Almond 3rd pages.indd 120
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
-Hegel and the Disappearance of Islam
 
 121
 
@@ -5787,13 +5485,10 @@ Islam, he gave a political twist to the Islamic version of Kantian formalism
 
 Almond 3rd pages.indd 121
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:16 AM
 
 122
 
-The History of Islam in German Thought
 
 and abstraction he had already formulated, radicalizing it further still and
 ultimately seeing in the emptiness of Islam a kind of socio-political vacuum
@@ -5834,11 +5529,9 @@ fortune . . . on this boundless sea there is a continual onward movement; nothin
 
 Almond 3rd pages.indd 122
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:17 AM
 
-Hegel and the Disappearance of Islam
 
 123
 
@@ -5883,13 +5576,10 @@ Hegel. For Hegel, the doctrine of the Trinity was itself a moment of progress in
 
 Almond 3rd pages.indd 123
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
 124
 
-The History of Islam in German Thought
 
 the universal places itself over and against itself”.71 It is in this sense that
 Islam’s rejection of the divinity of Christ as the embodiment of the universal in the particular was both a denial of Christian doctrine and a refusal
@@ -5930,11 +5620,8 @@ an awareness of how “Christian chivalry” was responsible for “driving out
 
 Almond 3rd pages.indd 124
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
-Hegel and the Disappearance of Islam
 
 125
 
@@ -5981,13 +5668,10 @@ The One of the Orient is much more the One of Judaism, which, completed in Islam
 
 Almond 3rd pages.indd 125
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
 126
 
-The History of Islam in German Thought
 Known as this One, as inwardly determining itself in Christianity, it is
 the other means of completion. This Oneness fi nds its fulfilment and
 determination ultimately in Christianity.81
@@ -6028,11 +5712,8 @@ world was in convergence with his other discursive identities—those of
 
 Almond 3rd pages.indd 126
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
-Hegel and the Disappearance of Islam
 
 127
 
@@ -6076,9 +5757,7 @@ to take place, as a whole variety of different adjectives—“monstrous”
 
 Almond 3rd pages.indd 127
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
 128 The History of Islam in German Thought
 moment, we have a religion whose “energy . . . enters into secular life
@@ -6123,11 +5802,8 @@ appreciation of the Persian poets Rumi and Hafi z, Hegel follows Goethe
 
 Almond 3rd pages.indd 128
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
-Hegel and the Disappearance of Islam
 
 129
 
@@ -6170,9 +5846,7 @@ problematic implications.
 
 Almond 3rd pages.indd 129
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:17 AM
 
 130 The History of Islam in German Thought
 HEGEL AND RACE: ISLAM AS CAUCASIAN
@@ -6217,11 +5891,9 @@ is internal is most visible, the colour which is determined outwards,
 
 Almond 3rd pages.indd 130
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:18 AM
 
-Hegel and the Disappearance of Islam
 
 131
 
@@ -6266,13 +5938,10 @@ which Hegel had notoriously placed it. As we saw in the fi rst chapter, this
 
 Almond 3rd pages.indd 131
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 132
 
-The History of Islam in German Thought
 
 gesture is also Leibniz’s—the Leibniz who could acknowledge Islam’s help
 in the abolition of Africa’s idolatrous, animistic practices—and yet the keywords of Bildung and Kultur in the passage suggest an Islam which is not
@@ -6314,11 +5983,8 @@ of the organic and non-organic in art, a line from Firdusi is quoted in the
 
 Almond 3rd pages.indd 132
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
-Hegel and the Disappearance of Islam
 
 133
 
@@ -6361,9 +6027,7 @@ with them. A thinker is never, of course, merely the sum of what s/he reads,
 
 Almond 3rd pages.indd 133
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 134 The History of Islam in German Thought
 nor are philosophers ever simply steered mnemonically by their libraries.
@@ -6373,9 +6037,7 @@ around in his head might help us understand how he could write such different th
 
 Almond 3rd pages.indd 134
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 7
 
@@ -6413,13 +6075,10 @@ case of Marx, who could call Turkey “a compact . . . mass of Mussulman
 
 Almond 3rd pages.indd 135
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 136
 
-The History of Islam in German Thought
 
 fanaticism” one year and praise its “great development of communal
 and provincial life” the very next, 2 this Heraclitean nature of a thinker’s
@@ -6459,9 +6118,7 @@ is “complete Greek to me [ist mir Spanisch]”, but promises at the end to
 
 Almond 3rd pages.indd 136
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 Marx the Moor 137
 “have a look at a couple more books about Turkey, there’s a whole stack of
@@ -6500,9 +6157,7 @@ and worthy earnestness and dignity.11
 
 Almond 3rd pages.indd 137
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 138 The History of Islam in German Thought
 Of course, the risk of monodimensionality which all depiction of innocence runs coincided with Marx’s own low estimation of Turkey’s cultural
@@ -6548,9 +6203,7 @@ frustration with the false European conviction of their savagery, a distaste tow
 
 Almond 3rd pages.indd 138
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 Marx the Moor 139
 legitimator of rule—also comes to the fore. Whether it is in both Russia
@@ -6591,13 +6244,10 @@ and even sought to combat Western charges of primitivism in his own
 
 Almond 3rd pages.indd 139
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 140
 
-The History of Islam in German Thought
 
 critique of the ‘civilizing mission’, Marx’s teleology took a much less positive view of the Muslim world (and Ottoman Turkey in particular), seeing both the chronos and topos of Islam not so much as something to be
 defended, but rather as something to be overcome.
@@ -6637,9 +6287,7 @@ in shameless arrogance, pretentiousness, and cruel Moloch-propitiation-rage agai
 
 Almond 3rd pages.indd 140
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:18 AM
 
 Marx the Moor 141
 Marx’s indignation is very much the anger we have just been examining—a
@@ -6678,13 +6326,11 @@ victims of “arrogance”, the latter saw them as “degenerate”, childlike a
 
 Almond 3rd pages.indd 141
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:19 AM
 
 142
 
-The History of Islam in German Thought
 
 in evident need of civilization. If the voice of Marx’s anti-imperialism was
 an early nineteenth-century Romantic one, privileging individual freedom
@@ -6722,9 +6368,7 @@ of Turkish prisoners of war, his moral indignation of the British/French
 
 Almond 3rd pages.indd 142
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 Marx the Moor 143
 betrayal of their Ottoman allies) to the ‘bigger picture’ of the wider aims
@@ -6770,13 +6414,10 @@ credibility of various institutional mouthpieces—British newspapers/German aca
 
 Almond 3rd pages.indd 143
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 144
 
-The History of Islam in German Thought
 
 interest in the economic and social structures both of Islam, and of Muslim
 countries such as Algeria.
@@ -6814,9 +6455,7 @@ knowledge of Muslim culture and history—not to mention Christianity’s
 
 Almond 3rd pages.indd 144
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 Marx the Moor 145
 interaction with it—was an essential part of Marx’s strategy in this respect,
@@ -6859,13 +6498,10 @@ as Foucault’s celebration of Shi’ia Islam as a “political spirituality”)
 
 Almond 3rd pages.indd 145
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 146
 
-The History of Islam in German Thought
 
 Nevertheless, the remarks infuse Marx’s Islam with an air of opportunity and possibility—even if it is ultimately a missed opportunity. In one
 of his last letters from Algeria, Marx observed “the absolute equality in
@@ -6904,9 +6540,7 @@ obstacles to those real sources of civilization and progress in Ottoman Turkey, 
 
 Almond 3rd pages.indd 146
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 Marx the Moor 147
 the Ottoman Turk simply being a fusion of Turkish tradition and “Byzantine theocracy”, both of which had to go (müssen caput gehn).52 Without
@@ -6947,9 +6581,7 @@ infamous associations in the exoticising of a certain target.
 
 Almond 3rd pages.indd 147
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 148 The History of Islam in German Thought
 To perform such a gesture—to call an enemy “Mohammed”, to call
@@ -6994,9 +6626,7 @@ of social inequity, Marx might critically reconsider what kind of ‘injustice�
 
 Almond 3rd pages.indd 148
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:19 AM
 
 Marx the Moor 149
 own notion of what is ‘just’. Among the oscillations between these two
@@ -7036,13 +6666,11 @@ that in certain moments at least, even an “Arab by birth” could become a
 
 Almond 3rd pages.indd 149
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:20 AM
 
 150
 
-The History of Islam in German Thought
 
 which could only teach Europe as a passive object of study, through what
 it was (and if Marx the teleologist saw little to be learnt from it at all), the
@@ -7073,9 +6701,7 @@ one’s enemy—resembled Nietzsche’s own collections of sympathies, prejudice
 
 Almond 3rd pages.indd 150
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 8
 
@@ -7114,13 +6740,10 @@ interest in Islam: Palgrave’s “Reise in Arabien” in German translation
 
 Almond 3rd pages.indd 151
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 152
 
-The History of Islam in German Thought
 
 Islam in Morgen- und Abendland, Benfrey’s Geschichte der Sprachwissenschaft und orientalischen Philologie (1869)5 . . . even when we encounter
 books in his notes which have no immediate relevance to anything Muslim—such as Schack’s book on Spanish theatre—we fi nd an interrogative
@@ -7161,9 +6784,7 @@ into a longing for the Orient:
 
 Almond 3rd pages.indd 152
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 Nietzsche’s Peace with Islam 153
 I fi nd all things German to be repulsive . . . everything German feels to
@@ -7205,13 +6826,10 @@ Nietzsche’s history of ressentiment—where the weaker, life-denying, non-
 
 Almond 3rd pages.indd 153
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 154
 
-The History of Islam in German Thought
 
 Aryan values of chastity, meekness, equality, etc. were successfully substituted by the “rabble” in place of the stronger aristocratic (vornehmen) values
 of aggression, sexuality and hierarchy. Islamic societies, lumped together
@@ -7253,9 +6871,7 @@ surprisingly, “Mohammedanism” is also praised for knowing the true position 
 
 Almond 3rd pages.indd 154
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 Nietzsche’s Peace with Islam 155
 Mohammedanism, as a religion for men, is deeply contemptuous of the
@@ -7301,9 +6917,7 @@ sect, the “Wahhabis”:
 
 Almond 3rd pages.indd 155
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 156 The History of Islam in German Thought
 Thus the Wahhabis know only two mortal sins: having a god other
@@ -7345,9 +6959,7 @@ advantages of the Muslim faith at the expense of Christianity culminates
 
 Almond 3rd pages.indd 156
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 Nietzsche’s Peace with Islam 157
 in probably the most significant passage on Islam Nietzsche ever wrote—
@@ -7389,13 +7001,10 @@ probably because Nietzsche says very little about what Islam is, but only
 
 Almond 3rd pages.indd 157
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:20 AM
 
 158
 
-The History of Islam in German Thought
 
 what it is not. Nietzsche’s Islam is ultimately vacuous: a constructed antiChristianity, admittedly associated with some figures and places, but fundamentally built on a certain Gefühl, one which feeds on anecdotes lifted
 out of Orientalist texts or gropes for symbolic figures like the Assassins or
@@ -7435,7 +7044,6 @@ does in Islam and Christianity. This idea of a common, unquestionable
 
 Almond 3rd pages.indd 158
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:21 AM
 
@@ -7479,13 +7087,10 @@ always depicted Christianity as the fons et origo of Islam—the only difference
 
 Almond 3rd pages.indd 159
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 160
 
-The History of Islam in German Thought
 
 on Islam, Nietzsche blames it. Which suggests, secondly, that Nietzsche
 believed in the existence of an Ur-Islam which was originally uncontaminated by the ‘womanish’ (weibliche) metaphysics of Christianity and its
@@ -7523,9 +7128,7 @@ and the pupil of Socrates both achieve success (like all “great reformers”42
 
 Almond 3rd pages.indd 160
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 Nietzsche’s Peace with Islam 161
 by a certain understanding of the world as a constantly describable collection of circumstances. Secondly, both figures are interested in power—in
@@ -7573,13 +7176,10 @@ his world”.45 Nevertheless, as late as 1886 we fi nd Nietzsche discerning
 
 Almond 3rd pages.indd 161
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 162
 
-The History of Islam in German Thought
 
 two ambiguous elements within Romanticism—a desire for destruction
 and change, and a parallel desire for eternity and being. To this second
@@ -7604,9 +7204,7 @@ expressed in his own unique and ultimately self-serving terms.
 
 Almond 3rd pages.indd 162
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 Conclusion
 
@@ -7641,13 +7239,10 @@ as spaces in which discourses happen.
 
 Almond 3rd pages.indd 163
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 164
 
-The History of Islam in German Thought
 
 A second, less theoretical point has to do with the whole idea of how
 knowledge of a foreign culture actually resides in a society, and how holistic such a society is in the permeation of this knowledge. To lose oneself
@@ -7692,9 +7287,7 @@ and sophistication, abiding in blissful denial of an Ottoman world on
 
 Almond 3rd pages.indd 164
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 Conclusion 165
 its borders every bit as complex and tolerant as its European neighbours.
@@ -7738,13 +7331,10 @@ do, following Kant’s own imaginary Turkish visitor to Europe, is to provide an
 
 Almond 3rd pages.indd 165
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 166
 
-The History of Islam in German Thought
 
 observer—more specifically, to an observer who was only interested in how
 their own culture and faith influenced, featured in and interacted with
@@ -7759,9 +7349,7 @@ most part, tried hard not to think about Muslims at all.
 
 Almond 3rd pages.indd 166
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:21 AM
 
 Notes
 
@@ -7801,7 +7389,6 @@ Philosophy 119 (May/June 2003).
 
 Almond 3rd pages.indd 167
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:22 AM
 
@@ -7861,9 +7448,7 @@ world”. Alison P. Coudert, Leibniz and the Kabbalah (Dordrecht: Kluwer,
 
 Almond 3rd pages.indd 168
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 Notes
 
@@ -7923,9 +7508,7 @@ became “a kind of literary genre”. More importantly, she examines how the
 
 Almond 3rd pages.indd 169
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 170 Notes
 Venetian representation of Ottoman rule mutated from a strong, legitimate,
@@ -7983,9 +7566,7 @@ and Theology 3, no. 2 (July 1989): 188–218.
 
 Almond 3rd pages.indd 170
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 Notes
 
@@ -8043,9 +7624,7 @@ Goldthwait (London: University of California Press, 1991), p. 109.
 
 Almond 3rd pages.indd 171
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 172
 
@@ -8104,9 +7683,7 @@ Regained”, Studies in Romanticism 42, no. 3 (2003): 194.
 
 Almond 3rd pages.indd 172
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 Notes
 
@@ -8163,9 +7740,7 @@ und Aufklaerungskritik in Herders Ideen, ed. R. Otto and J. Zammito
 
 Almond 3rd pages.indd 173
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:22 AM
 
 174
 
@@ -8221,7 +7796,6 @@ H. Adler and W. Koepke (Stuttgart: J. B. Metzler, 1998), p. 129; E. Adler,
 
 Almond 3rd pages.indd 174
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:23 AM
 
@@ -8281,9 +7855,7 @@ der Menscheit (Berlin: Aufbau Verlag, 1965), II:420—hereafter Ideen.
 
 Almond 3rd pages.indd 175
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:23 AM
 
 176
 
@@ -8343,9 +7915,7 @@ Revival in the Eighteenth Century”, Journal of Popular Culture 6, no. 4
 
 Almond 3rd pages.indd 176
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:23 AM
 
 Notes
 
@@ -8398,9 +7968,7 @@ Divan as indirectly collaborating in the whole machine of imperialism (pp.
 
 Almond 3rd pages.indd 177
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:23 AM
 
 178
 
@@ -8458,9 +8026,7 @@ drawing my attention to this source.
 
 Almond 3rd pages.indd 178
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:23 AM
 
 Notes
 
@@ -8519,9 +8085,7 @@ II, stanza 79, line 749.
 
 Almond 3rd pages.indd 179
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:23 AM
 
 180 Notes
 70. Diez, Denkwürdigkeiten, II:105.
@@ -8574,7 +8138,6 @@ Arabeske, p. 18.
 
 Almond 3rd pages.indd 180
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:24 AM
 
@@ -8635,9 +8198,7 @@ itself (p. 16).
 
 Almond 3rd pages.indd 181
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:24 AM
 
 182 Notes
 67. Ibid., 22:213.
@@ -8688,9 +8249,7 @@ Hegel, Werke (Frankfurt am Main: Suhrkamp, 1970), 15:405—hereafter Werke.
 
 Almond 3rd pages.indd 182
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:24 AM
 
 Notes
 
@@ -8745,9 +8304,7 @@ Menschheit (Stuttgart: J. G. Cotta’scher Verlag, 1839), pp. 418, 541.
 
 Almond 3rd pages.indd 183
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:24 AM
 
 184 Notes
 27. W. R. Beyer, Zwischen Phänomenologie und Logik: Hegel als Redakteur
@@ -8803,9 +8360,7 @@ the chapter on Hegel in Calvin Thomas’s Male Matters: Masculinity, Anxiety, an
 
 Almond 3rd pages.indd 184
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:24 AM
 
 Notes
 
@@ -8861,9 +8416,7 @@ Hegel Myths and Legends, ed. J. Stewart (Evanston: Northwestern Univer-
 
 Almond 3rd pages.indd 185
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:24 AM
 
 186 Notes
 sity Press, 1996), pp. 109–29. For a contrary example of quite a Germancentred text, see Hegel’s opening lecture “Hegels Anrede an Seine Zuhörer
@@ -8916,7 +8469,6 @@ later, more mature scientific works—Marx and the End of Orientalism
 
 Almond 3rd pages.indd 186
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:25 AM
 
@@ -8977,9 +8529,7 @@ p. 20.
 
 Almond 3rd pages.indd 187
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 188 Notes
 41. Eastern Question, p. 129.
@@ -9030,9 +8580,7 @@ europaischen Weltbild (Berlin: de Gruyter, 1996).
 
 Almond 3rd pages.indd 188
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 Notes
 
@@ -9089,9 +8637,7 @@ I, p. 10.
 
 Almond 3rd pages.indd 189
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 190 Notes
 Grade in einem Gerhorsame lebten, wie einen gleichen kein Mönchsorden
@@ -9145,9 +8691,7 @@ Literature (London: Picador, 2001).
 
 Almond 3rd pages.indd 190
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 Bibliography
 
@@ -9187,9 +8731,7 @@ Middle East 24, no 2 (2004): 12–28.
 
 Almond 3rd pages.indd 191
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 192 Bibliography
 Benjamin, W. Walter Benjamin: Selected Writings Volume Two.Edited by M. W.
@@ -9241,9 +8783,7 @@ Yakira, 387–409.Tel Aviv: University Publishing Projects, 1993.
 
 Almond 3rd pages.indd 192
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 Bibliography 193
 Dascal, M., and E. Yakira, eds. Leibniz and Adam. Tel Aviv: University Publishing
@@ -9296,9 +8836,7 @@ deutschen Denkens im 19. Jahrhundert. Frankfurt am Main: Peter Lang,
 
 Almond 3rd pages.indd 193
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 194 Bibliography
 Hegel, G.W.F. Briefe von und an Hegel. Edited by J. Hoffmeister. Hamburg:
@@ -9351,9 +8889,7 @@ Dover, 1954.
 
 Almond 3rd pages.indd 194
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:25 AM
 
 Bibliography 195
 . Gesammelte Schriften. Berlin: Prussian Academy, 1900.
@@ -9407,7 +8943,6 @@ Librett, J. S. “Figuralizing the Oriental, Literalizing the Jew”. German Qua
 
 Almond 3rd pages.indd 195
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:26 AM
 
@@ -9459,7 +8994,6 @@ Neocleous, M. “Let the Dead Bury the Dead: Marxism and the Politics of Redempt
 
 Almond 3rd pages.indd 196
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:26 AM
 
@@ -9512,7 +9046,6 @@ Schlegel, Friedrich von. Friedrich Schlegel and Novalis. Edited by M. Preitz. Da
 
 Almond 3rd pages.indd 197
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:26 AM
 
@@ -9572,7 +9105,6 @@ von Diez, H. F. Denkwürdigkeiten von Asien. Berlin/Halle: Hallesche Waisenhaus-
 
 Almond 3rd pages.indd 198
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:26 AM
 
@@ -9602,15 +9134,12 @@ Verso, 1999.
 
 Almond 3rd pages.indd 199
 
-T&F Proofs: Not For Distribution
 
 8/13/2009 11:34:27 AM
 
 Almond 3rd pages.indd 200
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 About the Author
 
@@ -9619,15 +9148,11 @@ Atlanta. He is the author of three other books: Sufi sm and Deconstruction (Rout
 
 Almond 3rd pages.indd 201
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 Almond 3rd pages.indd 202
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 Index
 
@@ -9713,9 +9238,7 @@ Buhle, J.G. 114
 Bullock,M.P. 180
 Bulgaria 4, 24
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 204
 
@@ -9833,9 +9356,7 @@ Hardiyanto, S. 109
 al-Hariri 149
 Hasselquist 39
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 Index
 Haydn, J. 77
@@ -9952,9 +9473,7 @@ Linker,D. 175
 Lithuania 26
 Yu Liu, 38, 42
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 206
 
@@ -10072,9 +9591,7 @@ Poland 26, 47–8, 146, 153
 Polheim,K. K. 93
 Popkin, R. 167
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 Index
 Portugal 49, 54, 100
@@ -10191,9 +9708,7 @@ Turkish (language) 3, 24, 26–7, 76, 84,
 96, 112, 115, 131
 Turner ,B.S. 186
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM
 
 208 Index
 U
@@ -10244,6 +9759,4 @@ Download more eBooks here: http://avaxhm.com/blogs/ChrisRedfield
 
 Almond 3rd pages.indd 208
 
-T&F Proofs: Not For Distribution
 
-8/13/2009 11:34:27 AM

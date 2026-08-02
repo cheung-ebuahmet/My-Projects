@@ -1,7 +1,5 @@
 # Crossroads - Studies on the History of Exchange Relations in the East Asian World
 
-> 来源: Crossroads - Studies on the History of Exchange Relations in the East Asian World.pdf
-
 Crossroads
 
 Studies on the History of Exchange Relations
@@ -137,7 +135,6 @@ countries and cultures. Above all, our thoughts and feelings of
 deepest sympathy go out to her family.
 Laurence Cole
 
-Crossroads 17/18 (2018)
 
 Table of Contents
 Angela SCHOTTENHAMMER 蕭婷
@@ -193,7 +190,6 @@ Abstracts (in English, Chinese, Korean , Japanese, Russian and Persian)
 
 207
 
-Crossroads 17/18 (2018)
 
 Eulogy for Our Dear Friend
 and (Fellow) Student, Chen Zhenxiu 陳朕秀!
@@ -223,7 +219,6 @@ June of last year we went to Napoli in Italy together, to attend a workshop
 and Summer School organized by my colleague Patrizia Carioti (“Frontiers in
 Asia”). At the end of 2018, in November, we all went on an excursion to Uzbekistan, with students of Salzburg University, exploring traces and relics of the
 former Silk Road through Central Asia, and visiting various cities, including
-Crossroads 17/18 (2018)
 
 2
 
@@ -346,7 +341,6 @@ their locations […]. Now the number of surrendered states is listed here in or
 circuits inside the borders (關內道), such as the Tujue 突厥 (Gök Turks), Huihe 回紇 (Uighurs), Dangxiang 黨項 (Tanguts) and Tuyuhun 吐谷渾 (a Särbi-Xianbei nomadic tribe), in total amounting to 29 fu 府 and 90 zhou 州; subordinates [residing in] Hebei 河北, including special tribes of the Tujue, Xi 奚 (Qay or Tatabi), Khitan 契丹, “surrendered Hu” (jianghu 降胡),
 Gaoli 高麗 (Korean) amounting to 14 fu, 46 zhou; subordinates such as special tribes of the
 
-Crossroads 17/18 (2018)
 
 6
 
@@ -442,7 +436,6 @@ Perdue 2005, 41.
 
 8
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 tinental and maritime border regions. And we have migrations both into and
 from China; not only foreigners, but also Chinese migrated beyond their original homelands and explored new regions. Most well-known is the gradual
@@ -480,7 +473,6 @@ of what is today Guangdong (with its main port Guangzhou), part of Guangxi, and 
 Vietnam – lay in the hands of influential local families. It was not until 622 that the Lingnan
 area was officially incorporated into the Tang Empire.
 
-Tang Local Migratory Patterns
 
 9
 
@@ -516,7 +508,6 @@ relied on local militarily-powerful families, such as the Feng family, to stabil
 
 10
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 the social order of Lingnan, and not rebel, as in this case. This policy seemed to
 have worked very well and can perhaps be considered a variation to the principle
@@ -554,7 +545,6 @@ themselves without intervention of Chinese troops.
 15 Zizhi tongjian 195.6153.
 16 Suishu 80.1801.
 
-Tang Local Migratory Patterns
 
 11
 
@@ -567,7 +557,6 @@ have different opinions mainly owing to the different names appearing in several
 
 12
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 As we can see from Figure 1, it took until the sixth generation before members of
 Feng Ang’s descendants were able to earn a name as representatives of the Feng
@@ -604,7 +593,6 @@ dynasty requested vassals and subdued peoples to send their direct relatives, no
 sons, sometimes also their parents and brothers, to the court as hostages.
 25 Zizhi tongjian 202.6369, Guangdongsheng bowuguan u. a. 1990.
 
-Tang Local Migratory Patterns
 
 13
 
@@ -643,7 +631,6 @@ entertained and received financial support from Feng Xiaoquan’s brothers and
 
 14
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 their wives (復蒙使君命往崗州，重為檀主。及弟孝誕使君、孝軫使君、
 郡君寧氏、郡君彭氏等合門眷屬，咸見資贈，爭抽上賄，各捨奇飡).32
@@ -678,7 +665,6 @@ of Feng Ang and Feng Shihui; but it is undoubtable that the Hainan Feng family
 33 Tang daheshang dongzheng zhuan 唐大和上東征傳 (779), 67-68.
 34 Wong 2014, 70, with reference to Tang daheshang dongzheng zhuan [Tō Daiwajō tōseiden].
 
-Tang Local Migratory Patterns
 
 15
 
@@ -715,7 +701,6 @@ politics.
 
 16
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 With respect to Feng Ruofang, it is said: “Ruofang every year robs two to
 three Persian ships, takes the goods for himself, and takes the robbed ones as
@@ -748,7 +733,6 @@ complex civil administration and bureaucracy there with all its rules and regula
 that make life more restricted and difficult for the people in China. See Wu zazu 五雜俎 4.80
 and 86.
 
-Tang Local Migratory Patterns
 
 17
 
@@ -784,7 +768,6 @@ inscriptions discovered locally. The branch of the Zhang Family in Gaochang
 
 18
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 originally immigrated from Dunhuang 敦煌, and the Dunhuang branch, in
 turn, had come from inland China, normally either from Baishui 白水, which
@@ -806,7 +789,6 @@ not a coincidence that Zhang Xiong’s wife was a member of the Qu 麹 family
 name is Xiong and his style name Taihuan, originally from Baishui of Nanyang. His zodiac belongings are star Yi and Zhen, his earthly locality lies at Dunhuang prefecture... Because they
 settle here for long, not going back for generations, they became Gaochang locals.”
 
-Tang Local Migratory Patterns
 
 19
 
@@ -841,7 +823,6 @@ Xiong,zuowei dajiangjun 左衛大將軍, du wancao langzhong 都綰曹郎中.”
 
 20
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 Gaochang (Gaochang lingyin 高昌令尹).52 This position was the highest administrative one in the government, equal to a Prime Minister today. Therefore,
 as a Chief Administrative Director, Zhang was approximately at the same level
@@ -874,7 +855,6 @@ south, and the non-Chinese (Hu 胡) peoples in the north. Both Qu and Zhang
 were Han Chinese families, but members of the Qu family, as the last royal fami52 Meng Xianshi 2004, 99.
 53 Tulufan chutu zhuanzhi jizhu, 262.
 
-Tang Local Migratory Patterns
 
 21
 
@@ -911,7 +891,6 @@ for safety. His advices are not accepted, and his worries finally took him down 
 
 22
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 Conclusion
 China was definitely the political, economic, and cultural centre of the macroregion during much of the Tang period. Although it was undoubtedly primarily a continental power, starting in the Tang dynasty at the latest, China also
@@ -943,7 +922,6 @@ year after the Battle (752), the Caliph sent a diplomatic delegation to China, a
 57 Wang Zhenping 2013, 310. For the term “soft power” and its application to modern China,
 see Nye 2012.
 
-Tang Local Migratory Patterns
 
 23
 
@@ -981,7 +959,6 @@ Li Juexun 李爵勛. Xian Furen jiqi houyi yanjiu wenji 冼夫人及其後裔研
 
 24
 
-CHEN Zhenxiu, Angela SCHOTTENHAMMER, and LI Man
 
 Meng Xianshi 孟憲實. Han Tang wenhua yu gaochang lishi 漢唐文化與高
 昌歷史. Jinan: Qilu, 2004.
@@ -1017,7 +994,6 @@ Early Sung Relations with Its Neighbors”, in: Rossabi 1983, 47-65.
 Wang Su 王素. Gaochang shigao. Tongzhi bian 高昌史稿. 統治編. Beijing:
 Wenwu, 1998.
 
-Tang Local Migratory Patterns
 
 25
 
@@ -1043,7 +1019,6 @@ Zhonghua, 1976.渾
 Some Aspects of the Relations
 between the Chile 敕勒 and the Northern Dynasties
 (Fifth to Seventh Century)
-Maddalena BARENGHI
 Several nomadic and seminomadic groups dwelled in the Mongolian steppe
 during the early medieval period. The Chinese traditional sources differentiate
 these groups in terms that define them as biologically related and sharing a
@@ -1078,11 +1053,9 @@ term see also Pulleyblank 1990, 22. On the Tiele see also: Hamilton 1962, 25-26.
 identified the Tiele with the Toquz-Oghuz of the Orkhon inscriptions. See Pulleyblank 1956,
 35-39; Golden 1972. For a general study on the Tiele see also Golden 1992, 132ff.
 
-Crossroads 17/18 (2018)
 
 28
 
-Maddalena BARENGHI
 
 consistently over the centuries. The names of the clans and ruling elites associated with the confederacy also changed significantly over time.
 This paper presents a preliminary survey of the early relations between this
@@ -1173,7 +1146,6 @@ chapter 98.
 
 30
 
-Maddalena BARENGHI
 
 During the fifth and sixth centuries, units of this nomadic confederacy established patron-client relations with the Rouran 柔然 khanate (402–552)12 and
 the Tuoba 拓跋 northern dynasties: the Northern Wei 北魏 (386–535), Eastern Wei 東魏 (534–550), Northern Qi 北齊 (550–77), and Northern Zhou
@@ -1207,7 +1179,6 @@ the Mongolian steppe from the fifth to the first half of the sixth century.
 17 The six garrisons are Woye 沃野, Huaishuo 懷朔, Wuchuan 武川, Wumin 撫冥, Rouxuan
 柔玄, and Huaihuang 懷荒. The garrisons were located just north of the Great Wall. The gar-
 
-Relations between the Chile and the Northern Dynasties
 
 31
 
@@ -1254,7 +1225,6 @@ Wei rulers paid regular visits to it. See Wei Jian 2019.
 
 32
 
-Maddalena BARENGHI
 
 sumably in the borderland.23 The Tuoba court divided the newly relocated
 population into units according to their geographical location: “Western tribes”
@@ -1293,7 +1263,6 @@ use of the term xinmin in the early Northern Wei period see Zhang Weixun 1993.
 五原郡 (in Tang times called Wuyuan Prefecture 五原縣) in present-day Shaanxi (Yuanhe
 junxian tuzhi 4.6). Hence Hexi in this case is not used for the area west of the Ordos, but it refers to an area west of the eastern arm of the Yellow River within Guannei.
 
-Relations between the Chile and the Northern Dynasties
 
 33
 
@@ -1338,7 +1307,6 @@ three prefectures of Ji, Ding, and Xiang as guarding households.” Weishu 7a.13
 
 34
 
-Maddalena BARENGHI
 
 Taiwu organized a great hunt and celebrated the event by having a stone stele
 engraved.31
@@ -1377,7 +1345,6 @@ present-day eastern Xinjiang. See also Xin Tangshu 43B.1130.
 98.3270). According to Ma Chi 1999, 94, Jiepi 解批 is an early variant of Qibi 契苾.
 35 Beishi 98.3272; Bei Qi shu 17.219-222; Beishi 17.219.
 
-Relations between the Chile and the Northern Dynasties
 
 35
 
@@ -1417,7 +1384,6 @@ from Huaishuo garrison 懷朔鎮 (see Kang Le 1990). Tang wen shiyi 唐文拾遺
 
 36
 
-Maddalena BARENGHI
 
 阿史那 clan, the family to which the qaghans of the First Türk Empire (552–
 630) belonged. In the second decade of the seventh century, some of the Tiele
@@ -1456,7 +1422,6 @@ other Xue Yantuo dignitaries in Ling Prefecture 靈州, at the western border of
 The gathering would have sealed Yinan’s patron-client relationship with Taizong through a
 marriage with a Chinese princess. On this event see Skaff 2012, 200.
 
-Relations between the Chile and the Northern Dynasties
 
 37
 
@@ -1500,7 +1465,6 @@ see Eisenberg 2002–2003.
 
 38
 
-Maddalena BARENGHI
 
 were settled into the “loose rein” (jimi 羈縻) system of protected prefectures and
 area commands.54 The account of the gathering in Xin Tangshu goes as follows:
@@ -1543,7 +1507,6 @@ supplied with horses, milk and meat (Xin Tangshu 217A.6113; Zizhi tongjian 198.6
 Chavannes 1900, 90-91. According to Bao Hongbiao (2015, 90), the road followed the ancient Qin Direct Road (zhidao 直道) to Fengzhou 豐州, passing by the “Western Fortress to
 Receive the Surrendered” 西受降城, and it extended to Yizhou 伊州 and Gaochang 高昌.
 
-Relations between the Chile and the Northern Dynasties
 
 39
 
@@ -1584,7 +1547,6 @@ English translation of the “Zhenzhong ji 枕中記 (Record Within a Pillow) by
 
 40
 
-Maddalena BARENGHI
 
 these clans would eventually migrate east and relocate to the regions of Guannei
 關内 and northern Hedong 河東, where they would go on to become part of
@@ -1613,7 +1575,6 @@ Golden, Peter. “The Migration of the Oghuz”, Archivum Ottomanicum 4
 
 63 On the migration to Hedong see Nishimura Yōko 2016.
 
-Relations between the Chile and the Northern Dynasties
 
 41
 
@@ -1653,7 +1614,6 @@ University, 1972.
 
 42
 
-Maddalena BARENGHI
 
 Müller, Shing, Thomas O. Höllmann, and Sonja Filip (eds.). Early Medieval
 North China: Archaeological and Textual Evidence / Cong kaogu yu wenxian
@@ -1688,7 +1648,6 @@ Skaff, Jonathan. Sui-Tang China and its Turko-Mongol Neighbors: Culture,
 Power, and Connections, 580–800. Oxford: Oxford University, 2012.
 Suishu 隋書, ed. by Wei Zheng 魏徵 (580–643) et al. Beijing: Zhonghua, 1973.
 
-Relations between the Chile and the Northern Dynasties
 
 43
 
@@ -1751,7 +1710,6 @@ The Siku quanshu comment and preface were translated using Yang Bowen’s editio
 See, for example Wang 1971, Fracasso 1982, Liu Yingsheng and Lapian 1991, Liu Yingsheng
 1994, Church 2011, Ghosh 2014, Huei-Ying Kuo 2018.
 
-Crossroads 17/18 (2018)
 
 Ilya S. KOLNIN
 
@@ -1875,7 +1833,6 @@ Rugua’s funerary inscription (which will be discussed below) under the followi
 12 Yang Wenxin 2014, 51.
 13 Wyatt 2010, 47-48.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 49
 
@@ -1960,7 +1917,6 @@ Zhufan zhi in two juan (edition in Yongle dadian 永樂大典 [Great Canon of
 Yongle], compiled between 1403 and 1408), compiled by Song dynasty’s Zhao Rugua. Rugua’s birth and death are not studied, only by relying on the “Genealogical
 Table of the Ruling House” from Songshi can we know that he was the great-great-
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 51
 
@@ -2039,7 +1995,6 @@ used by Hirth and Rockhill for their translation.
 daida, which includes the translation of Guihai yuheng zhi 桂海虞衡志 (Well-Balanced Records of Guihai, 1175) as a supplement. See Ulyanov 2001.
 22 See Hirth and Rockhill 1911, 36-38. There is an especially useful table comparing the level of correspondence between similar entries in Lingwai daida and Zhufan zhi in Almonte 2017, 27-28.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 53
 
@@ -2117,7 +2072,6 @@ of Diverse Matters). A four-character division into four segments resembles clas
 poetry, especially taking into consideration the rhyme between zhi 知 and chi 恥 characters.
 This is a clear evidence of that Zhao Rugua had literary talent.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 55
 
@@ -2161,7 +2115,6 @@ Ilya S. KOLNIN
 
 Fig. 1: The tombstone image taken from Xu Sanjian 1987, 957.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 57
 
@@ -2240,7 +2193,6 @@ Reports. In the 7th month, he fell ill and asked for retirement. On the day bing
 
 31 It is unclear what those “several positions” imply. It could mean that he was governing Quanzhou together with being Maritime Superintendent. See Su Tie 2016, 30.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 59
 
@@ -2312,7 +2264,6 @@ simultaneously held the post of the governor of Southern Office of Imperial
 Clan Affairs (Nanwai zongzheng si 南外宗正事司) while being a Superintendent of Maritime trade in Quanzhou and probably governing Quanzhou as
 well. It is recorded that in the beginning of Southern Song this institution was
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 61
 
@@ -2388,7 +2339,6 @@ conclusion that few traders from there reached Qinzhou and also that Quanzhou’
 discussed in Anderson 2014, 34-36.
 40 Yang Wuquan 1999, 37.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 63
 
@@ -2462,7 +2412,6 @@ foreign’ in general and maritime space in particular.” We can, thus, observe
 maps and accounts solely of foreign countries.” Schottenhammer 2017, 154.
 46 For example, see the map in Ptak 1998, 270.
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 65
 
@@ -2534,7 +2483,6 @@ along the Silk Roads”, Surabaya, Indonesia (1991), 1-19.
 ———. “A Study on the Name of Nan Bi (南毗) Kingdom of South India in
 the Zhu Fan Zhi (诸蕃志)”, China and the Maritime Silk Route: Unesco
 
-Some Thoughts on Zhao Rugua’s Biography and Zhufan zhi
 
 67
 
@@ -2646,7 +2594,6 @@ Ditmanson 2015.
 2 For a collection of Chinese writings on Siam, see Huang Zhongyan and Yu Dingbang 2016.
 3 Daoyi zhilüe, 114, 154-155. The identification of Xian is controversial. Pelliot supposed that
 Xian is Sukhothai, but newer research suggests it to be Ayutthaya (Pelliot 1904, 235f, 244;
-Crossroads 17/18 (2018)
 
 70
 
@@ -3711,7 +3658,6 @@ and is then discussed collectively, with Hans Ulrich Vogel and Cao Jin responsib
 revision and editing of the translation and with important inputs by Sabine Kink and Alexander
 Jost, the latter responsible for searching for origins of relevant information in Western sources.
 
-Crossroads 17/18 (2018)
 
 94
 
@@ -5429,7 +5375,6 @@ Gunn 2018.
 Rossabi 1985; Israeli 2002; Park 2012. See also Biran 2005, 97; Miquel 1985.
 Rossabi 1985, 277.
 
-Crossroads 17/18 (2018)
 
 140
 
@@ -5547,7 +5492,6 @@ have been impressed with the level of civilian craftsmanship shown by the Chi16 
 20 Leslie 1986, 21; Park 2012, 23-24.
 21 Perdue 2009, 5-32; Park 2012, 23-24.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 143
 
@@ -5621,7 +5565,6 @@ government bureaucracy.36
 35 Osterhammel 2018, 342-386.
 36 Lunde and Stone 1989, 104.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 145
 
@@ -5691,7 +5634,6 @@ historical evolution: his was the first Chinese source to clearly distinguish be
 43 Abu Lughod 1991, 112.
 44 Sen 2006.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 147
 
@@ -5768,7 +5710,6 @@ maritime Silk Road. By the mid-twe3lfth century, the Mongol Empire had split
 60 Jaubert 1836–1840, 91, 101, 187.
 61 Duara 1996, 57; Lewis 2002.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 149
 
@@ -5841,7 +5782,6 @@ had in fact descended from an ancient pan-Turkic race, which itself had descende
 72 Jahn 1984.
 73 Thackston 1998–1999, vol. 1, 18-19.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 151
 
@@ -5911,7 +5851,6 @@ part of a broader Confucian intellectual realm. Mosques built in China at that
 78 Dillon 2013, 28-31; Benite 2005, 23.
 79 Marks 2007, 46-48; Dreyer 2007; Tan 2009.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 153
 
@@ -5984,7 +5923,6 @@ Asia.
 87 Mills and Feng 1970, 167-176.
 88 Fletcher 1968.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 155
 
@@ -6056,7 +5994,6 @@ local Muslim community, suggesting the Hui were visible to the embassy.101
 100 Maitra 1934, 22.
 101 Maitra 1934, 78-79.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 157
 
@@ -6129,7 +6066,6 @@ however not likely to have visited China himself. Some of his impressions faint1
 113 Schefer 1883; Mazahéri 1983.
 114 Mazahéri 1983, 117-120; Schefer 1883, 46, 63.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 159
 
@@ -6198,7 +6134,6 @@ Early Islamic portrayals were somewhat more complimentary but not wholly
 123 Jahn 2002, 177; Horowitz 2004; Esenbel 2017, “Introduction”.
 124 Lach 1965–1993, vol. 3, 1579; Mackerras 1989, 25.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 161
 
@@ -6268,7 +6203,6 @@ Muḥammad ibn Aḥmad ibn Jubayr (1145–1217). London: Cape, 1954
 [rpt. 2003].
 Brophy, David John. Uyghur Nation: Reform and Revolution on the RussiaChina Frontier. Cambridge, MA: Harvard University, 2016.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 163
 
@@ -6351,7 +6285,6 @@ China. Seattle: University of Washington, 1997 [rpt. 2011].
 Lunde, Paul, and Caroline Stone (trs.). The Meadows of Gold [Murudsch adhDhahab], by Abu al-Hasan Ali ibn al-Husain al-Masʿūdī. London: Kegan
 Paul, 1989.
 
-Re-Examining the Premodern Chinese-Muslim Encounter
 
 165
 
@@ -6426,7 +6359,6 @@ Notices of China. London: Hakluyt Society, 1866 [rpt. 1913].
 Xiamen at the Crossroads of Sino-Foreign Linguistic
 Interaction during the Late Qing and Republican
 Periods: The Issue of Hokkien Phoneticization
-Sebestyén HOMPOT
 
 Origins of Hokkien phoneticization
 The Works of Philippines-based Spanish Dominican Missionaries
@@ -6459,11 +6391,9 @@ Sangley was a term commonly used for Chinese people in the Philippines during th
 colonial period. There are various theories on the origin of the name, of which according to
 Hong (2014) the most likely is the Hokkien word seng-lí 生理 (business), referring to the occupational background of most Chinese people residing in the Philippines at that time.
 
-Crossroads 17/18 (2018)
 
 168
 
-Sebestyén HOMPOT
 
 ABC) published around 1617 as the earliest example of a Hokkien grammar
 featuring systematic Hokkien Romanization. Klöter (2016) also mentions the
@@ -6499,7 +6429,6 @@ and understanding sounds) published in 1800 and the Huiji ya su tong shiwu yin
 Generally considered part of the Southern Min group of Chinese language varieties, but not
 part of Hokkien (or “Minnan proper”).
 
-The Issue of Hokkien Phoneticization
 
 169
 
@@ -6537,7 +6466,6 @@ combining gāo 高 and dōng 東 (公: 高東切) when using the fanqie method.
 
 170
 
-Sebestyén HOMPOT
 
 Picture 1 [left]. The san tui cheng zi fa (forming characters in three steps) phoneticization method
 in Huiyin miaowu (Huang 1905 [1800], VII) (Xiamen University Libraries). The application of
@@ -6556,7 +6484,6 @@ word tuyin 土音 (colloquial sound) below colloquial pronunciations. In Shiwu
 yin, the distinction is made more visible by using red and black ink colors for
 literary and colloquial readings respectively. In the decades following its publication, the Shiwu yin became a popular work within Hokkien-speaking communities around the South China Sea, serving as a reference work for foreign missionaries compiling new Romanization methods for Hokkien.
 
-The Issue of Hokkien Phoneticization
 
 171
 
@@ -6596,7 +6523,6 @@ All volumes are available in digitized format at https://catalog.hathitrust.org/
 
 172
 
-Sebestyén HOMPOT
 
 148). In Vol. 13 (1844) a translation and Romanization of one of Aesop’s tales
 (The snake and the file) is published in the Zhangzhou and Chaozhou dialects
@@ -6630,7 +6556,6 @@ the only one among the three authors who had personal contact with the Zheng rul
 other two authors apparently retold his account in their more general description of China’s
 contemporary affairs.
 
-The Issue of Hokkien Phoneticization
 
 173
 
@@ -6669,7 +6594,6 @@ and churches, it was not until 1903 that the island became officially recognized
 
 174
 
-Sebestyén HOMPOT
 
 as a “joint concession” (gonggong zujie 公共租界).11 Between the First Opium
 War and World War II, 12 educational institutions on Gulangyu (Zhu 1997,
@@ -6699,7 +6623,6 @@ started at the missionary schools of Xiamen according to Pitcher (1912):
 at the same time. In Chinese history the only other example of a jointly administered foreign
 concession territory was the Shanghai International Settlement.
 
-The Issue of Hokkien Phoneticization
 
 175
 
@@ -6738,7 +6661,6 @@ the introduction of his dictionary Schlegel claims to have contacted Douglas
 
 176
 
-Sebestyén HOMPOT
 
 before his return to the Netherlands in 1872. However, the orthography used
 in both Dutch dictionaries is markedly different from Peh-oe-ji promoted by
@@ -6775,7 +6697,6 @@ account of Pitcher written in 1912
 [Peh-oe-ji] is taught in all our primary schools, in the churches and chapels on Sundays, and in the homes on week-days. It is difficult to estimate accurately the num12 Located north of the Xiamen main island, independent county until 1997, today part of
 mainland Xiamen (Tong’an District 同安區).
 
-The Issue of Hokkien Phoneticization
 
 177
 
@@ -6816,7 +6737,6 @@ notes that its publication was necessary since
 
 178
 
-Sebestyén HOMPOT
 
 During that time a great change has come over China. Western civilization, to an increasing extent, has been welcomed, and new ideas in every department of thought
 and action have filled the minds of the people. […] Accordingly some ten years ago I
@@ -6845,7 +6765,6 @@ most suitable choice. This way of reasoning appears in the seminal work Nittai
 Daijiten (Comprehensive Japanese-Taiwanese Dictionary, 1907, V-VI) compiled by Japanese linguist Ogawa Naoyoshi 小川尚義 (1869–1947), also
 13 http://www.ndl.go.jp/ (acc. on 2018-07-12)
 
-The Issue of Hokkien Phoneticization
 
 179
 
@@ -6881,7 +6800,6 @@ each other right-to-left.
 
 180
 
-Sebestyén HOMPOT
 
 parison tables indicate the correspondences between Taiwanese Kana and Pehoe-ji (Kanematsu 1900 in Li 2015, 21243).
 
@@ -6907,7 +6825,6 @@ Police Association); also Taiwan Nichiyō Dogoshū 台湾日用土語集 (Compil
 2015, Vol. 41, pp. 20011-20130); Matano Wakichi 俣野和吉 Gunjin-yō Taiwango 軍人用台
 湾語 (Taiwanese for military personnel, 1897) published by Gunjin Kyōikukai 軍人教育会
 
-The Issue of Hokkien Phoneticization
 
 181
 
@@ -6945,7 +6862,6 @@ begin the study of Hokkien, except the Revd. J. McGowan’s Beginner (Hare 1904,
 
 182
 
-Sebestyén HOMPOT
 
 Hare refers to Douglas while introducing the orthography of his work (1904,
 III). However, contrary to Douglas, Hare defends the usage of Chinese characters stating that
@@ -6981,7 +6897,6 @@ over to Spanish Dominicans and came to include the Quanzhou, Longyan 龍
 1914, the center of the vicariate was moved to Gulangyu were a new church was
 built in 1917 (operating until the present day) (Lin 2002). A primary school
 
-The Issue of Hokkien Phoneticization
 
 183
 
@@ -7015,7 +6930,6 @@ twentieth centuries. At the present day, no digitalization of the material is av
 
 184
 
-Sebestyén HOMPOT
 
 able to obtain access to the works of Francisco Piñol y Andreu in either printed
 or digitized format, therefore cannot state anything with certainty about their
@@ -7048,7 +6962,6 @@ quoted in Ma (2016) appears. According to this, Li Dingchen was
 […] also known as Meisheng 梅生, a man of letters, a native of Tong’an, he was teaching in Xiamen, his home was there. […] He put a huge effort into studying phonology,
 not only carefully investigating the ancient rime books, but also thoroughly examining
 
-The Issue of Hokkien Phoneticization
 
 185
 
@@ -7091,7 +7004,6 @@ parts, most often (e.g. in the case of Bopomofo) the glides (i, u, ü in Mandari
 
 186
 
-Sebestyén HOMPOT
 
 imperial examinations of 1875, Lu moved to Singapore where he studied English for four years. Upon his return to Xiamen, Lu settled down on Gulangyu
 where he started teaching English for locals and Hokkien for foreigners. During
@@ -7115,7 +7027,6 @@ three to six letters.26
 
 26 Take the example of the Mandarin syllables zhuang or chuang transcribed by using six letters.
 
-The Issue of Hokkien Phoneticization
 
 187
 
@@ -7132,7 +7043,6 @@ shorthand (suji 速記) versions of Chinese characters and 4 were numerical syst
 
 188
 
-Sebestyén HOMPOT
 
 Picture 6. Numbers written in Zhongguo qieyin xinzi (p. 66.) and comparison table of Zhongguo
 qieyin xinzi and Peh-oe-ji (p. 67) (Lu 1956 [1892], Xiamen University Libraries)
@@ -7147,7 +7057,6 @@ yin are included as well. Writing directions in Lu’s earliest work show a some
 reason why the scheme failed to gain widespread popularity. The general direction of texts is left-to-right horizontal, but within each syllable rime characters
 are written first (on the left) and onset characters second (on the right). Morphemes of a single word are separated by hyphens, clearly an influence of Pehoe-ji (Lu 1956 [1892], see Pictures 4-6).
 
-The Issue of Hokkien Phoneticization
 
 189
 
@@ -7172,7 +7081,6 @@ twenty-six, the Germans, French and Dutch use twenty-five […] Hence, in the ci
 
 190
 
-Sebestyén HOMPOT
 
 villages there is no one above the age of ten who cannot read books. According to
 the Western newspapers of last year, in Germany in every one hundred person there
@@ -7196,7 +7104,6 @@ scheme was published in the reformist magazine Wanguo Gongbao 萬國公報
 1896. It should not be confused with Wan Kuo Kung Pao 萬國公報 (The Globe Magazine)
 run by Christian missionaries between 1868 and 1907.
 
-The Issue of Hokkien Phoneticization
 
 191
 
@@ -7224,7 +7131,6 @@ characters. In an innovative but rather complicated manner, every syllable is ma
 
 192
 
-Sebestyén HOMPOT
 
 up from a larger character denoting its rime placed in the middle and from a
 smaller character denoting its onset located at a certain point of the four sides of
@@ -7246,7 +7152,6 @@ accompanied by its Zhongguo qieyin zimu transcription in the lower part.
 
 In 1912 the newly established Republican government convened the Commission on the Unification of Pronunciation (duyin tongyi hui 讀音統一會). Lu
 
-The Issue of Hokkien Phoneticization
 
 193
 
@@ -7282,7 +7187,6 @@ and six of its private secondary schools were established and/or administered by
 
 194
 
-Sebestyén HOMPOT
 
 overseas Chinese (Zhu 1997, 81, 136-139). Some of these secondary schools,
 such as the Anglo-Chinese College (英華書院)30 on Gulangyu and the Tongwen Institute (同文書院) on the main island became well-known and attracted
@@ -7313,7 +7217,6 @@ the LMS’s school of the same name established by Robert Morrison in Malacca in
 31 Tan Kah Kee was born in the present-day Jimei District 集美區 of mainland Xiamen, part of
 Tong’an County during the late Qing dynasty.
 
-The Issue of Hokkien Phoneticization
 
 195
 
@@ -7350,7 +7253,6 @@ vowels and adding silent consonants, e.g. the four tone of the Mandarin syllable
 
 196
 
-Sebestyén HOMPOT
 
 “Tonal Spelling”, whereby tones are expressed by means of letters woven into the
 texture of the spelling of the written word. It would be as if in English: mai, mae,
@@ -7382,7 +7284,6 @@ mainland China until today.
 Peh-oe-ji remains popular in Taiwan among promoters of Taiwanese Hokkien as an official language of the country. New phoneticization schemes for the
 language were also introduced in post-WWII Taiwan, such as an extended ver34 Originally written in English.
 
-The Issue of Hokkien Phoneticization
 
 197
 
@@ -7421,7 +7322,6 @@ for Taiwan, where most of the population speaks a mixture of the two. During
 
 198
 
-Sebestyén HOMPOT
 
 the Japanese colonial period, although Japanese authors primarily used Taiwanese Kana instead of Peh-oe-ji for the phoneticization of Hokkien, they used
 Xiamen dialect as a standard in their works due to its combination of Quanzhou
@@ -7444,7 +7344,6 @@ of language and script reform known as the ‘National Language Romanization
 Movement’. Textbooks of the tonal spelling-based Mandarin Romanization
 known as Gwoyeuh Romatzyh were published and tonal spelling-based Romanization for Hokkien were devised at the university during this period. The Xiamen University has remained an important center of Hokkien linguistic research in mainland China until today.
 
-The Issue of Hokkien Phoneticization
 
 199
 
@@ -7673,7 +7572,6 @@ mainland China since 1982).
 36 Tonal spelling-based method developed by Zhou Bianming (1934).
 37 Devised by Zhu Zhaoxiang 朱兆祥 in 1946, used in some publications in Taiwan since the 1990s.
 
-Sebestyén HOMPOT
 
 200
 Tone 1
@@ -7911,7 +7809,6 @@ Table 8. Tone marks in Taiwanese Kana39
 38 For the full chart see https://en.wikipedia.org/wiki/Taiwanese_kana (acc. on 2018-11-23).
 39 Tone diacritics are written on the right side of the syllable. See also Picture 4.
 
-The Issue of Hokkien Phoneticization
 
 A3
 
@@ -7940,7 +7837,6 @@ Picture 12. Example of the application of san tui cheng zi fa (Huang 2003, 260)
 
 202
 
-Sebestyén HOMPOT
 
 BIBLIOGRAPHY
 Barclay, Thomas. Supplement to Dictionary of the Vernacular or Spoken Language of Amoy. Shanghai: Commercial, 1923.
@@ -7978,7 +7874,6 @@ hku.hk/CADAL/B33651309V1/ [acc. on 2018-07-05].
 Hare, George Thompson. The Hokkien Vernacular, Part II: English Text with
 English Notes and Chinese Romanized Version. Kuala Lumpur: Straits Settle-
 
-The Issue of Hokkien Phoneticization
 
 203
 
@@ -8021,7 +7916,6 @@ chuantong: Malixun, Wei Sanwei, Zhailisi han-ying cidian de puxi yanjiu 19
 
 204
 
-Sebestyén HOMPOT
 
 世紀漢英詞典傳統—馬禮遜，衛三畏，翟里斯漢英詞典的譜系研究.
 
@@ -8059,7 +7953,6 @@ Madrid, 1670, digitized at https://books.google.de/books/ucm? id=lGLwh
 WQECM8C&printsec=frontcover&source=gbs_ge_summary_r&cad=0
 #v=onepage&q&f=false [acc. on 2018-07-04].
 
-The Issue of Hokkien Phoneticization
 
 205
 

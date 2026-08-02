@@ -1,8 +1,5 @@
 # The book of Prayer
 
-> 来源: The book of Prayer.pdf
-> 提取于: iSlam/伊斯兰概论·入门/The book of Prayer.pdf
-
 Kitab Al-Salaah
 (The book of Prayer)
 Compiled by: Nathif Jama Adam.
@@ -56,7 +53,6 @@ Performance of the Maghrib Prayer
 Performance of the Isha Prayer
 Forgetfulness Prostrations (Sujuud Sahw)
 
-www.islambasics.com
 
 Various Instances Where "Sujuud Sahw" Becomes Apparent
 Private Supplications Recited Upon completing Prayers
@@ -81,7 +77,6 @@ Salatul-Isstikhara (Prayer To Seek Allah's Guidance) Salatul-Janaza (Funeral Pra
 How the Funeral Prayer is Performed
 A Summary Of The Different Types Of Prayers
 
-www.islambasics.com
 
 Preface
 !!!!!!!!!!! PRAISE be to Allah (subhanahu wa ta'ala1) who ordained As-alaat (Prayer) as an
@@ -133,7 +128,6 @@ but which, lnsha - Allah, shall be taken into account in the next reproduction.
 
 Subhanahu wa ta'ala inserted after the name of Allah which means " The Glorified, the Most High ".
 
-www.islambasics.com
 
 !!!!!!!!!!! How far I have succeeded in this work is not for me to say but it is my sincere
 hope that it will, InshaAllah, go a long way in fulfilling the gaps and shortcomings found
@@ -154,7 +148,6 @@ not only did the system data entering but even helped so much in the final proof
 NATHIF J. ADAM.
 Riyadh, 21st May, 1991.
 
-www.islambasics.com
 
 Introduction
 !!!!!!!!!!! Salaat (Prayer) is one of the main obligations which Allah (subhanahu wa ta'ala)
@@ -179,7 +172,6 @@ honored sayings of the Prophet (peace be upon him) clearly indicate the importan
 Salaat such that it is unanimously agreed by all Muslim scholars that renouncing it is
 regarded an act of disbelief (Kufr).
 
-www.islambasics.com
 
 The Virtues Of Prayer
 !!!!!!!!!!! Salaat (Prayer) performed genuinely with humility and submission to Allah
@@ -199,7 +191,6 @@ falsehood and from all forbidden actions as is categorically confirmed by the fo
 verse of the Holy Qur'an:“ Verily, prayer refrains from indecency and evil” (Qur'an
 29:45).
 
-www.islambasics.com
 
 Wudhu (Ablution)
 !!!!!!!!!!! Prior to entering Salaat, the person is required to undertake a certain purification
@@ -262,7 +253,6 @@ Ensuring that the above 4 acts are performed in the given sequence.
 Performing the Wudhu acts continuously and without unnecessary let-ups until
 completion.
 
-www.islambasics.com
 
 Voluntary Acts of Wudhu
 !!!!!!!!!!! Besides the above essential acts of Wudhu, there are also some voluntary but
@@ -328,7 +318,6 @@ to above the forehead.
 From the head, without wetting the hands again, the person wipes the earlobes, using
 the fore fingers to wipe the inner part of the lobes and the thumbs for the outside part.
 
-www.islambasics.com
 
 10.
 
@@ -383,7 +372,6 @@ meritorious than that whenever I performed Wudhu (purification) during the day o
 night, each time I offered a prayer as much as Allah has destined for me” (Reported by
 Imams Bukhari and Muslim).
 
-www.islambasics.com
 
 Wiping Over the Socks
 1.
@@ -434,7 +422,6 @@ or clothes. However, in the case of persons afflicted with permanent wetting or
 permanent passing of wind, or of women who are suffering from prolonged flows of
 blood, such persons are required to perform Wudhu only once before the start of each
 
-www.islambasics.com
 
 prayer and their Wudhu would remain valid even if the above problems may occur later
 in the course of the prayer.
@@ -458,7 +445,6 @@ Touching of the sexual organs intentionally, directly and unclothed.
 
 Renouncing of Islamic Faith.
 
-www.islambasics.com
 
 Ghusl (Total Bath)
 !!!!!!!!!!! Ghusl in Islam means the bathing of the entire body with water. Proof of its
@@ -517,7 +503,6 @@ Essential Requirements of Ghusl
 !!!!!!!!!!! There are two essential requirements which need to be fulfilled for Ghusl to be
 valid. These are as follows:
 
-www.islambasics.com
 
 1.
 
@@ -583,7 +568,6 @@ The person may after completing the Ghusl recite the supplication for concluding
 which should be recited outside the toilet/bathroom and which is the same as the one
 recited after completing Wudhu.
 
-www.islambasics.com
 
 Acts Forbidden to Persons who are required to Perform Ghusl
 !!!!!!!!!!! Persons required to perform Ghusl are forbidden to undertake certain acts. These
@@ -610,7 +594,6 @@ Reciting the Holy Qur'an.
 
 Staying Inside the Mosque.
 
-www.islambasics.com
 
 Haidh (Menstruation)
 !!!!!!!!!!! This refers to the periodical discharge of blood by women in their state of health
@@ -641,7 +624,6 @@ wife's body above the navel and/or below the knees. This fact, is based on the
 confirmations of the Prophet's wives, that when the Prophet (peace be upon him) wished
 to be with them during their periods, they would put something over their private parts.
 
-www.islambasics.com
 
 At-Tayammum (Ablution Using The Earth)
 !!!!!!!!!!! "At-Tayammum" is a means of using the soil to wipe one's face and hands with
@@ -685,7 +667,6 @@ The Earth (Soil) to be used for At-Tayammaum
 !!!!!!!!!!! This should be pure earth or soil and can be sand, stone or gypsum which produce
 dust when hit with the hands.
 
-www.islambasics.com
 
 How to Perform At-Tayammum
 A.
@@ -731,7 +712,6 @@ All actions and conditions that nullify Wudhu also nullify At-Tayammum.
 
 If after performing At-Tayammum, water is found for Wudhu or Ghusl.
 
-www.islambasics.com
 
 The Timings Of The Obligatory Prayers
 !!!!!!!!!!! Islam has prescribed specified time limits for each of prayer as can be noted from
@@ -775,7 +755,6 @@ up to mid-night. Mid-night in this case may not necessarily be interpreted to me
 o'clock but may be construed as the mid-time between sunset and the appearance of the
 true dawn.
 
-www.islambasics.com
 
 Adhaan (Call To Prayer)
 !!!!!!!!!!! The "Adhaan" is a call to inform others in specific words that the time for a
@@ -821,7 +800,6 @@ Muhammad is Allah's messenger. (to be repeated 2 times).
 HAYYAA LAS SALAAT - Come fast to prayer. (to be repeated 2 times). The
 Muadhin, when reciting this turns the face slightly to the right side.
 
-www.islambasics.com
 
 5.
 
@@ -876,7 +854,6 @@ iv.
 
 HA YYA ALAS-SALAA T, (once).
 
-www.islambasics.com
 
 v.
 
@@ -939,7 +916,6 @@ It is not obligatory on women to perform the Adhaan and Iqamah but if they wish 
 perform the same there is no harm on them to perform Iqamah only but they must lower
 their voice.
 
-www.islambasics.com
 
 Performance Of The Salaat
 !!!!!!!!!!! After introducing the Salaat and discussing its pre-requisites, we shall now turn to
@@ -1004,7 +980,6 @@ awakens in them the presence of Allah (subhanahu wa ta'ala) and inculcates in th
 habit of praying as an act of worship and love for 'Allah (subhanahu wa ta'ala). A child at
 the age of 10 is made to understand that prayer is necessarily a part of the person's daily
 
-www.islambasics.com
 
 life and is a solemn duty ordained by Allah (subhanahu wa ta'ala) on all Muslims, and
 that failure to perform it is an act of disbelief (Kufr). Therefore, parents are required to
@@ -1070,7 +1045,6 @@ same level and both hands are rested on the knees with the fingers spread apart.
 
 A requirement to raise the head up from the Rukuu position.
 
-www.islambasics.com
 
 6.
 
@@ -1156,7 +1130,6 @@ Taking a sitting position for the recitation of At-Tashahud after the first two 
 Reciting the At-Tashahud (words of witness) after the first two rakaats (units) of
 Dhuhr, Asr, Maghrib and Isha prayers.
 
-www.islambasics.com
 
 9.
 
@@ -1232,7 +1205,6 @@ person does not relax on his left foot.
 Reciting the following supplication, when sitting for At-Tashahud, in between the
 supplication for the Prophet (peace be upon him) and the final words of peace:
 
-www.islambasics.com
 
 "Allahumma inii audhu bika min adha bi jahanama, wa min a dhabiil qabr wamin fitnatil
 mahyaa wal- ma-mati, wamin fitnatil masihid-dajaal " which means: "O Lord I seek your
@@ -1243,7 +1215,6 @@ encouraged to preserve these practices because their observance entities the per
 rewards from Allah (subhanahu wa ta'ala). However, missing any of them does neither
 invalidate the Salaat nor require the two prostration of forgetfulness.
 
-www.islambasics.com
 
 How The Salaat Is Performed
 !!!!!!!!!!! Having known in detail all the different acts of the prayer, i.e. its pillars,
@@ -1349,7 +1320,6 @@ to Thee, forgive me my sins ".
 Then, the person raises from the "Rukuu" position lifting both hands up to the level of
 the shoulders or near the lobes of the ears saying: "SAMI AALLAHU LIMAN
 HAMIDAH", which means "Allah listens to him who praises Him". The person then,
-www.islambasics.com
 
 immediately recites the following supplication while still standing: "RABBANA WA
 LAKA AL HAMDU HAMDAN KATHEER'AN TAYYIBAN MOBARAKAN FEEHIY
@@ -1401,7 +1371,6 @@ and to Thee I submit: My face prostrates to He Who created and fashioned it and 
 form good and provided it with hearing and sight,- praise be to Allah, the most excellent
 of creators".
 
-www.islambasics.com
 
 •
 
@@ -1460,7 +1429,6 @@ as follows: "AT TAHIYYATU LILAHI WASALAWATU WATAYYIBATU
 ASSALAMU ALAYKA AYUHAN-NABIYU WA RAHMATULLAHI WA BARAKATUHU ASALAMU ALAYNA WA ALA IBADI-L-LAHI-S-SALIHIYN. ASH-HADU
 ANLA ILAHA ILA LAHU WAHDAHU LA SHARIKA LAHU WA ASH-HADUANNA MUHAMMADAN ABDUHU WA RASUULUH. ALLAHUMMA SALLIY
 ALA MUHAMMAD WA ALA AALI - MUHAMMAD, KAMA SALAYTA ALA
-www.islambasics.com
 
 IBRAHIMA, WA AALA AALI IBRAHIM. INAKA HAMIDON MAJID. WA BARIK
 ALAA MUHAMMAD WA ALAA AALI MUHAMMAD KAMA BARAKTA ALA
@@ -1507,7 +1475,6 @@ ANNA MUHAMMADAN ABDUHU WA RASUULUHU". Meanwhile, it is preferred
 that, for the Dhuhr prayer, the Qur'anic recitations after the Al-Fatihah are of medium
 length (i.e. neither too short nor too long).
 
-www.islambasics.com
 
 2.
 
@@ -1560,7 +1527,6 @@ to .... WA ASHADUANNA MUHAMMADAN ABDUHU WA - RASUULUHU).
 The person thereafter stands up for the performance of the third and last Rakaat of the
 Maghrib prayer and upon raising the head from the second prostration of this third
 
-www.islambasics.com
 
 Rakaat, the person sits down for the final At-Tashahud and recites the words of witness in
 full.
@@ -1583,7 +1549,6 @@ congregation and then recites Al-Fatihah silently by himself. The person thereaf
 not need to recite Qur'anic passages himself but should pay attention to the Imam's
 recitation.
 
-www.islambasics.com
 
 Forgetfulness Prostrations (Sujuud Sahw)
 !!!!!!!!!!! As human beings we are by nature subject to mistakes and errors and as
@@ -1630,7 +1595,6 @@ The above are some examples where errors are committed in performing FARAIDH (i.
 Pillars) of the Salaat, wherein, the person is not only required to repeat the missed act, but
 also, to come up with the two prostration of forgetfulness.
 
-www.islambasics.com
 
 B.
 
@@ -1648,7 +1612,6 @@ Where a Preferred Act is Omitted: As for SUNNANS (Preferred Acts) of the prayer
 which may be missed, neither is it a requirement to repeat them nor is the forgetfulness
 prostration needed.
 
-www.islambasics.com
 
 Private Supplications Recited Upon completing Prayers
 !!!!!!!!!!! In accordance with the teachings of the Prophet (peace be upon him), there are
@@ -1703,7 +1666,6 @@ THANAA AL-HASSAN" which means: "There is no god but Allah (subhanahu wa
 ta'ala) and we worship none but Him, to Him belongs prosperity, and to Him belongs
 favors and to Him belongs all good praises".
 
-www.islambasics.com
 
 7.
 
@@ -1773,7 +1735,6 @@ Fajr (Dawn) and Maghrib (Sunset) prayers; while, each chapter may be recited onl
 at the end of the other obligatory prayers namely, Dhuhr (Noon), Asr (Afternoon) and
 Isha (Evening) prayers.
 
-www.islambasics.com
 
 Things Which Invalidate The Prayer (Mubdilatu-Salaat)
 !!!!!!!!!!! Prayer if performed well with due regard to its conditions, pillars, duties and
@@ -1819,7 +1780,6 @@ o
 
 Turning oneself away from the direction of the Qiblah also invalidates the prayer.
 
-www.islambasics.com
 
 Things Which Are Not Preferred In The Prayer
 ß
@@ -1865,7 +1825,6 @@ warned persons doing this as can be noted from the following saying: “Doesn't 
 person who raises up his head before the Imam fear that Allah will turn his head to
 that of a donkey or make his face look like a donkey” (Reported by Imam Bukhari).
 
-www.islambasics.com
 
 Other Important Notes Regarding Prayer
 ß
@@ -1919,7 +1878,6 @@ count the second rakaat as his first rakaat. Thereafter, the congregation sits f
 the fourth rakaat up to the second and final "At-Tashahud". After the Imam reads the
 words of peace to conclude the prayer, the late comer under discussion, would thereby
 stand up to perform one more rakaat in lieu of the rakaat missed at the beginning.
-www.islambasics.com
 
 ß
 
@@ -1952,7 +1910,6 @@ A mature woman (who have reached the age of puberty) passing too close in front 
 praying male person who has no" Sutra", has the effect of invalidating the prayer, except
 when the prayer is being done in the grand mosque of Makkah.
 
-www.islambasics.com
 
 Other Important Notes Regarding Prayer
 ß
@@ -2006,7 +1963,6 @@ count the second rakaat as his first rakaat. Thereafter, the congregation sits f
 the fourth rakaat up to the second and final "At-Tashahud". After the Imam reads the
 words of peace to conclude the prayer, the late comer under discussion, would thereby
 stand up to perform one more rakaat in lieu of the rakaat missed at the beginning.
-www.islambasics.com
 
 ß
 
@@ -2039,7 +1995,6 @@ A mature woman (who have reached the age of puberty) passing too close in front 
 praying male person who has no" Sutra", has the effect of invalidating the prayer, except
 when the prayer is being done in the grand mosque of Makkah.
 
-www.islambasics.com
 
 Congregational Prayer
 !!!!!!!!!!! Performance of the prayer together with the other Muslims in congregation at
@@ -2092,14 +2047,12 @@ come to them. However, it is preferable for women to perform prayers at their ho
 The Prophet (peace be upon him) says: “Do not prohibit women to attend prayer at
 mosque, but prayer at their homes is better for them” (Reported by Imam Ahmad).
 
-www.islambasics.com
 
 !!!!!!!!!!! If, however, women decide to go out for prayer at the mosques, they should
 neither dress nor perfume themselves in a manner that may attract the attention of men.
 At the mosques, it is an established tradition that women perform their prayers preferably
 in their own partition behind the rows of men.
 
-www.islambasics.com
 
 Purpose of the Congregational Prayer
 !!!!!!!!!!! Performance of the prayer in congregation is a great Islamic practice through
@@ -2145,7 +2098,6 @@ among you” (Reported by Imam Bukhari).
 as usual and the congregation would follow suit. The congregation would then proceed to
 complete the prayer as discussed in detail earlier.
 
-www.islambasics.com
 
 The Prayer Of A Travelling Person (Musafir)
 !!!!!!!!!!! Islam is a religion full of mercy and because of the hardships and inconveniences
@@ -2200,7 +2152,6 @@ V.
 The person would then perform the Asr prayer also shortened to two rakaats only.
 Note: A traveler may lead the prayer as an "IMAM" of the residents of the place he is
 
-www.islambasics.com
 
 visiting. And in such a case, he (being an Imam), may perform only two rakaats for the
 Dhuhr or Asr, and/or Isha prayers while, the residents he is leading, shall upon his
@@ -2212,7 +2163,6 @@ On the other hand, if the traveler has to pray behind an Imam who is a resident 
 place he is visiting, then in such case, the traveler shall pray with the Imam all the four
 (4) rakaats as usual.
 
-www.islambasics.com
 
 Performance Of The Prayer By One Who Is Sick
 !!!!!!!!!!! A sick person has to perform the prayer in accordance with the person's
@@ -2246,7 +2196,6 @@ the necessary postures for the prayer.
 Such is the importance of the Prayer in Islam that a person must perform it no matter
 what his/her condition.
 
-www.islambasics.com
 
 Voluntary Prayers
 !!!!!!!!!!! Besides the prescribed obligatory prayers, a person may come up with as many
@@ -2293,7 +2242,6 @@ four optional rakaats before Asr (Afternoon) prayer, and two before Isha (Evenin
 prayer, because these were also reported to have been practiced by the Prophet (peace be
 upon him).
 
-www.islambasics.com
 
 Times When Performance of Voluntary Prayers is Prohibited
 !!!!!!!!!!! There are certain times when voluntary prayers are not allwoed to be performed
@@ -2315,7 +2263,6 @@ coincide with one of the above stated timings. This is accordance with the follo
 Prophetic (peace and blessings of Allah be upon him) saying: “Anyone of you entering a
 mosque, should not sit until after perfoming two rakaats” (Reported by Imam AlBhukari).
 
-www.islambasics.com
 
 Juma'h Prayer (Friday Con- Gregational Prayer)
 !!!!!!!!!!! Besides the five obligatory prayers, Allah (subhanahu wa ta'ala) has also ordained
@@ -2351,7 +2298,6 @@ insights.
 Muslim jurists and scholars are of the opinion that it is permissible to perform it before
 the sun reaches its zenith.
 
-www.islambasics.com
 
 !!!!!!!!!!! Much importance and reward has been attached by Islam to the timings of going
 to the Friday Prayer as can be noted from the following saying of the Prophet (peace be
@@ -2401,7 +2347,6 @@ Prophet (peace be upon him) says in this regard: “He who performs ablution pro
 and comes to the Jumah prayer and listens to the sermon attentively, will have his sins
 from the previous Friday plus three more days forgiven and he who occupies himself
 
-www.islambasics.com
 
 with pebbles during the sermon has performed badly” (Reported by Imam Muslim).
 !!!!!!!!!!! Upon completion of the first part of the sermon, the Imam sits down for a brief
@@ -2414,7 +2359,6 @@ which if done at the Mosque consists of four rakaats (each two rakaats performed
 separately) but if, done at home (upon one's return from the mosque), consists only of
 two rakaats as the Prophet (peace be upon him), used to do.
 
-www.islambasics.com
 
 The Prayers Of The Two Feasts
 !!!!!!!!!!! These are:
@@ -2478,7 +2422,6 @@ After completing the recitations of the words of greatness which total up to sev
 Imam would then seek the protection of Allah (subhanahu wa ta'ala) from the cursed
 satan in a low voice by saying "AUTHU B'LJBILLAHI MINASH SHAYTANIRRRAJIIM". He would thereafter silently invoke Allah's name by saying: "BISMILLAHIR-RAHMANI-R--RAHIIM" and then recite "AL-FATIHAH" (the opening chapter of the
 Holy Qur'an) in a loud voice. The followers (congregation) would then say "Ameen"
-www.islambasics.com
 
 together loudly after the Imam completes reciting the "Al Fatihah". Each follower would
 then recite "Al-Fatihah" silently. It is recommended that the Imam thereafter recites the
@@ -2528,7 +2471,6 @@ Idul-Adha Prayer
 12th month of Islamic "Hijra" Calendar and is performed exactly in the same manner as
 enumerated and discussed above for the 'Idul Fitr Prayer.
 
-www.islambasics.com
 
 Salatul-Istisqua (Rain Seeking Prayer)
 !!!!!!!!!!! Drought is a natural calamity which when it befalls causes undue hardships and
@@ -2555,7 +2497,6 @@ prior notice to the Muslim community of the need to perform "Salatul-Istisqua" a
 certain future date. This is to enable as large a congregation as is possible to attend the
 prayer.
 
-www.islambasics.com
 
 Eclipse Prayer (Salatul-Kusoof)
 !!!!!!!!!!! The eclipse of the Sun and the Moon are two natural phenomena which, when
@@ -2611,7 +2552,6 @@ the manifestations of the eclipse. He draws the attention of the unmindful to th
 of Allah (subhanahu wa ta'ala) and that He possesses unrestricted power to act in any way
 He wishes with His creations.
 
-www.islambasics.com
 
 The Witr (Odd Number) Prayer
 !!!!!!!!!!! The "Witr" (Odd Number Prayer) is a voluntary prayer traditionally practiced by
@@ -2654,7 +2594,6 @@ HADEYTA, WA'AFINII FIMAN 'AFEYTA, WATAWALANII FIMAN
 TAWALEYTA, WABARIKLII FIMA A'DEYTA, WAQINII SHARA MAA
 QADHEYTA, FA INNAKA TAQDII WALAA YUQDAA ALEYK, INNAHU LAA
 
-www.islambasics.com
 
 YADDILU MAN WALEYTA WALAA YA'IZU MAN A'ADEYTA, TABARAKTA
 RABBANA - WATA'ALEYTA " which means: "O Lord, lead me to true faith with those
@@ -2675,7 +2614,6 @@ continuously without break. After rukuu in the third rakaat, the person would re
 Qunuut supplication as discussed above and would then proceed to prostration, then
 recites At- Tashahud and concludes the prayer with the Tasleem.
 
-www.islambasics.com
 
 Tarawih Prayer
 !!!!!!!!!!! The Islamic Fasting Month of Ramadan is a blessed month in which Muslims are
@@ -2710,7 +2648,6 @@ rewarded as if he prayed the whole night” (Reported by Imams Ahmad and Tirmidh
 which is always prayed oddly as one. It is confirmed that the Prophet (peace be upon
 him) used to perform eleven rakaats when praying Tarawih.
 
-www.islambasics.com
 
 Salatul-Isstikhara (Prayer To Seek Allah's Guidance)
 !!!!!!!!!!! It is natural that in his day-to-day affairs a Muslim is confronted with important
@@ -2753,7 +2690,6 @@ it".
 affairs and in the meantime awaiting the due response from Allah (subhanahu wa ta'ala)
 which could appear to the person by way of feelings in the person's heart of either
 
-www.islambasics.com
 
 confidence or otherwise. Thus, where the person feels in his/her heart a sense of vigor,
 optimism and satisfaction about the intended undertaking, then the person may construe
@@ -2770,7 +2706,6 @@ Allah (subhanahu wa ta'ala) also says: “And if anyone puts his trust in Allah,
 is Allah for him, for Allah surely accomplishes His purpose: Verily, for all things has
 Allah appointed a due proportion” (Qur'an 65:3).
 
-www.islambasics.com
 
 Salatul-Janaza (Funeral Prayer)
 !!!!!!!!!!! Islam has set certain rules and regulations with regard to attending to a deceased
@@ -2827,7 +2762,6 @@ deceased person is only given a dry ablution (AT-Tayammum) by rubbing the earth 
 his/her face and hands. Because in such cases, complete bath is impossible. Proper
 funeral prayer is then performed over the deceased and thereafter buried accordingly.
 
-www.islambasics.com
 
 8.
 
@@ -2888,7 +2822,6 @@ MUHAMMADIN, KAMAA BARAKTA 'ALAA IBRAHIMA WA 'ALAA AALI
 IBRAHIMA INNAKA HA'MIDUN MAJIDUN", which means: "O Lord give peace and
 blessings to Muhammad and his family like You blessed Abraham and his family and
 
-www.islambasics.com
 
 shower Your blessings on Muhammad and his family like You showered on Abraham
 and his family in the two worlds, You are the Most praised, the Most wonderful".
@@ -2940,7 +2873,6 @@ MIN ZOWJIHA, WAD-KHILHA JANNATA, WA - AIDHA MIN-ADABIL-QABRI
 WA ADHABI-NAAR, WAAFSAH LAHA FII QABRIHA, WANAWAR LAHA FIIHI "
 which means: " O Allah forgive those of us who are still alive and those who have passed
 away, those present (at this congregation) and those who are absent, and our young and
-www.islambasics.com
 
 our elderly, our male and female lots. O Allah, whomever Thou wishes to keep alive
 from amongst us make him live according to Islam and whomever Thou wishes to die
@@ -2999,7 +2931,6 @@ iii.
 If a person is unable to pray over a deceased person before burial, then, it is permitted
 for him to pray over the deceased's grave.
 
-www.islambasics.com
 
 iv.
 
@@ -3013,7 +2944,6 @@ Funeral prayer is also recommended over a baby born dead after completing four
 months inside the mother's womb. However, no funeral prayer is required over a baby
 born dead before completing four months inside the mother's womb.
 
-www.islambasics.com
 
 A Summary Of The Different Types Of Prayers
 !!!!!!!!!!! We shall now summarize the most common different types of prayer which a
@@ -3081,4 +3011,3 @@ H.
 
 The Funeral Prayer.
 
-www.islambasics.com

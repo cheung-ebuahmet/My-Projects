@@ -1,12 +1,9 @@
 # Islam and Democracy
 
-> 来源: Islam and Democracy.pdf
-
 Islam and Democracy
 
 This page intentionally left blank
 
-Islam and Democracy
 
 JOHN L. ESPOSITO
 JOHN O. VOLL
@@ -100,7 +97,6 @@ Index 224
 
 This page intentionally left blank
 
-Islam and Democracy
 
 This page intentionally left blank
 
@@ -214,7 +210,6 @@ articulation of ideologies such as Islamic socialism.
 
 6
 
-ISLAM AND DEMOCRACY
 
 There were also important institutional adaptations. When Libya was created
 as an independent state in 1951-1952, it was established as a monarchy, and the head
@@ -287,7 +282,6 @@ movement spreads beyond national boundaries. In specific cases such as the Mus-
 
 8
 
-ISLAM AND DEMOCRACY
 
 lim Brotherhood, which originated in Egypt, but in which the name and some
 sense of a shared tradition extend beyond the boundaries of a single state, it is possible, and necessary, to speak of the Egyptian Muslim Brotherhood, the Sudanese
@@ -363,7 +357,6 @@ restricted. In Turkey, it is illegal to use Islam as a formal basis for identify
 
 10
 
-ISLAM AND DEMOCRACY
 
 cess in recent years. However, two of the most important and visible cases of the
 new-style Islamic organizations operating, at least at times illegally, are in Algeria
@@ -389,7 +382,6 @@ democratization in the last years of the twentieth century.
 
 ONE
 
-Islam and Democracy
 Heritage and Global Context
 
 The resurgence of Islam and the desire for democratization in the Muslim world
@@ -450,7 +442,6 @@ so large that they are uncontrollable. In the early 19705, some analysts had alr
 noted that, parallel to the globalization of human life, there were strong currents
 for asserting the validity of small-scale, communal ties. Zbigniew Brzezinski viewed
 
-Islam and Democracy
 
 13
 
@@ -519,7 +510,6 @@ authentic communities. The assertion of the authenticity and legitimacy of commu
 it is the affirmation of the validity of a religious message or tradition and is manifested as part of the current global resurgence of religion. In the broadest sense,
 these movements all represent the refutation of the old assumptions that the
 
-Islam and Democracy
 
 15
 
@@ -555,7 +545,6 @@ of Islam. This affirmation of faith and identity is a powerful force in all aspe
 
 16
 
-ISLAM AND DEMOCRACY
 
 human life and is reflected in clothing, changing social lifestyles, and the arts, as
 well as the more visible arena of politics and political power. Concurrent with this
@@ -700,7 +689,6 @@ of the particular standard to whether or not it is appropriate to adopt a "forei
 
 20
 
-ISLAM AND DEMOCRACY
 
 model." The impact of this in terms of democratization debates in the Islamic
 world can be seen in one analysis of President Clinton's possible foreign policy perspectives. Recalling that Clinton had been a Rhodes Scholar, the analyst noted that
@@ -730,7 +718,6 @@ the holding of freely contested and fair elections. Such elections are widely he
 to be the single most important part of an authentically democratic system. However, historically, formal elections were not always an essential part of a democratic system. In Athens, for example, representatives of the people were selected
 by lot, thus avoiding control by the powerful and persuasive. In the debates concerning reforms necessary in Western democratic systems, many different proposals have been made. One Australian scholar, for example, states, "In order to
 
-Islam and Democracy
 
 21
 
@@ -770,7 +757,6 @@ which to move towards modern democracy. This, however, was certainly not a path
 
 22
 
-ISLAM AND DEMOCRACY
 
 the founders intended to explore."28 At the much broader level of the history of
 Western philosophy and political theory,
@@ -802,7 +788,6 @@ the modern era to create the potentialities (and obstacles) for modern democrati
 experienced in Western societies and is experienced in other societies as well.
 Because of its very nature, each experience will be different, since indigenous foun-
 
-Islam and Democracy
 
 23
 
@@ -840,7 +825,6 @@ the worldview of tawhid. Mawdudi explained what these structures would be:
 
 24
 
-ISLAM AND DEMOCRACY
 A more apt name for the Islamic polity would be the 'kingdom of God' which
 is described in English as a 'theocracy'. But Islamic theocracy is something
 altogether different from the theocracy of which Europe has had bitter experience— The theocracy built up by Islam is not ruled by any particular religious class but by the whole community of Muslims including the rank and
@@ -876,7 +860,6 @@ experts for the choice of the Islamic Leadership Council, you must take part.
 bazaaris, farmers, workers and government employees, are responsible for the
 destiny of the country and Islam.39
 
-Islam and Democracy
 
 25
 
@@ -918,7 +901,6 @@ Abbasids (750-1258), but disappeared as an actual imperial system with the Mongo
 
 26
 
-ISLAM AND DEMOCRACY
 
 The title of "caliph" remained a concept of religio-political leadership, and in
 the nineteenth century the sultans (the title of the imperial leadership that emerged
@@ -958,7 +940,6 @@ Islamic terms. The Pakistani Islamist leader, Khurshid Ahmad, for example, noted
 that "secular democracy, as it has evolved in the post-Enlightenment era, is based
 upon the principle of the sovereignty of man, conceptually speaking. Islam, on the
 
-Islam and Democracy
 
 27
 
@@ -1000,7 +981,6 @@ down the principle of shura to guide the community's decision-making process,"
 
 28
 
-ISLAM AND DEMOCRACY
 
 the classical doctrine of shurah, as it developed, was in error. It viewed consultation
 as the process of one person, the ruler, asking other people for advice, whereas the
@@ -1037,7 +1017,6 @@ structure in the Quran, the "legitimacy of the state... depends upon the extent 
 which state organization and power reflect the will of the ummah, for as classical
 jurists have insisted, the legitimacy of state institutions is not derived from textual
 
-Islam and Democracy
 
 29
 
@@ -1081,7 +1060,6 @@ Ijtihadhas always been a controversial concept because of the danger of its misu
 
 3o
 
-ISLAM AND DEMOCRACY
 
 cated by the secularists and non-religious Muslims, which is to fling open the door
 of ijtihad as wide as possible, and interpret ijtihad in such a way that it can be used
@@ -1152,7 +1130,6 @@ time when the national political leaders in the United States are actively attem
 
 32
 
-ISLAM AND DEMOCRACY
 
 tary system, and significant changes are taking place elsewhere, it is clear that there
 is no universally accepted or clearly defined model of democracy, even of Western
@@ -1207,7 +1184,6 @@ and one of the major tasks of a political system is to find ways of balancing go
 
 34
 
-ISLAM AND DEMOCRACY
 
 ernment and opposition. At the same time, the "idea of organized political opposition as a normal and beneficial component of a polity is... a surprising one, and
 seems quite out of accord with the traditional concern of political speculation: the
@@ -1285,7 +1261,6 @@ including the opposition, accept as legitimate. The emergence of the idea of con
 
 36
 
-ISLAM AND DEMOCRACY
 
 stitutional government is an important element in the development of the modern state, but it is a relatively recent development in the West. The concept of "an
 impersonal and privileged legal or constitutional order" is frequently tied to the
@@ -1318,7 +1293,6 @@ the common good which is found in some communitarians is antithetical to
 the pluralism that defines liberal democracy as a new political form of society. Radical democrats agree on the need to recover such ideas as 'common
 good,' 'civic virtue' and 'political community,' but they believe they must be
 
-State and Opposition in Islamic History
 
 37
 
@@ -1353,7 +1327,6 @@ successful. In its most sanitized version in the context of liberal democracy, t
 
 38
 
-ISLAM AND DEMOCRACY
 
 is an insistence that the "cornerstone of democratic governance is the right to conduct free and fair elections," that these elections "should be open to multiple parties," and that the "winning party should be able to form a government capable of
 fulfilling its mandate. It should also be willing to relinquish power if subsequent
@@ -1383,7 +1356,6 @@ not necessary that all societies become successful liberal societies, merely tha
 end their ideological pretensions of representing different and higher forms of
 human society."17
 
-State and Opposition in Islamic History
 
 39
 
@@ -1426,7 +1398,6 @@ for Islamic concepts of opposition that are part of the heritage available to co
 
 4o
 
-ISLAM AND DEMOCRACY
 
 temporary Muslims. Because of the specific experiences and historical development of the Islamic community (or ummah), Muslims have concepts and teachings that apply to many different contexts for opposition.
 The ummah began as a persecuted minority in the seventh-century Arabian
@@ -1463,7 +1434,6 @@ order above the rulers and governments, by which those leaders could be judged.
 Islamic law, in this sense, represented a "constitutional" order for Muslim societies.
 It was a set of fundamental precepts that most people within the political society
 
-State and Opposition in Islamic History
 
 41
 
@@ -1500,7 +1470,6 @@ disagreement and opposition. These arefitnah, or civil disorder, and ikhtilaf, o
 
 42
 
-ISLAM AND DEMOCRACY
 
 are also concepts defining the roles and rights of minorities, especially nonMuslim minorities, within Islamic society, and concepts of limitations on the
 power of rulers through special recognition of "constitutional" rules beyond the
@@ -1541,7 +1510,6 @@ easily get out of hand and unleash unforeseen forces and conflicts which would
 destroy the entire social fabric and thus precipitate Fitna
 It was with a view to
 
-State and Opposition in Islamic History
 
 43
 
@@ -1584,7 +1552,6 @@ non-Muslims in relation to Muslims in society.
 
 44
 
-ISLAM AND DEMOCRACY
 
 Ikhtilaf is a relatively obscure technical term in the study of Islamic jurisprudence, but it reflects an important, broader attitude toward diversity of views in the
 Islamic heritage. Islamic law did not develop as a single, monolithic corpus.
@@ -1653,7 +1620,6 @@ madhhabs [schools of law]."42 Turabi added that the extreme case is that of apos
 
 46
 
-ISLAM AND DEMOCRACY
 
 to be more than just intellectual apostasy. It would have to translate into not only
 sedition but actually insurrection against society."43 In the notorious case of Mahmud Muhammad Taha, who was executed in 1985 by the regime of Jafar Numayri,
@@ -1688,7 +1654,6 @@ defined, the rights and place of non-Muslims became more clearly defined in law
 but showed great diversity in different areas in terms of practice. The fundamental concept was that there was a dhimmah, or "indefinitely renewed contract
 through which the Muslim community accords hospitality and protection to members of other revealed religions, on condition of their acknowledging the domina-
 
-State and Opposition in Islamic History
 
 47
 
@@ -1724,7 +1689,6 @@ a "church" did not emerge in Islamic societies, and therefore, at least in that 
 
 48
 
-ISLAM AND DEMOCRACY
 
 there is no issue of separation of "church" and "state" in Islamic history. However,
 the development of state institutions and institutions of social order relating to
@@ -1761,7 +1725,6 @@ Islamic law. Although this power was exercised infrequently, it actually was exe
 (1730), and Selim III (1807). In these formal actions, the historic check on the power
 of the ruler formed by the fact that the ulama were the representatives of the "con-
 
-State and Opposition in Islamic History
 
 49
 
@@ -1806,7 +1769,6 @@ absolute. In the case of a law passed by the assembly allowing women to claim
 
 50
 
-ISLAM AND DEMOCRACY
 
 wages in cash from husbands who file for divorce, for example, the Council of
 Guardians rejected the law, but the Council of Expediency, led by the president,
@@ -1931,7 +1893,6 @@ during the Pahlavi period.7 It also established a strong precedent for Shii Isla
 
 54
 
-ISLAM AND DEMOCRACY
 
 be reinterpreted to provide an ideology of protest and opposition and for the
 ulama, who historically were both apolitical and political, to assert their role as protectors of Islam and of the Shii community/nation vis-a-vis the absolutism and
@@ -2007,7 +1968,6 @@ will not permit Israeli goods to be sold in Iran—in fact, to be sold duty free
 
 56
 
-ISLAM AND DEMOCRACY
 ... Are we to be trampled underfoot by the boots of America simply because
 we are a weak nation and have no dollars? America is worse than Britain;
 Britain is worse than America. The Soviet Union is worse than both of them.
@@ -2084,7 +2044,6 @@ National Front of Mohammad Mossadeq, which reflected the importance and
 
 58
 
-ISLAM AND DEMOCRACY
 
 power at that time of modern, more secular nationalism. The Islamic groups
 became a part of the opposition that was basically led by Mossadeq.
@@ -2157,7 +2116,6 @@ the United States with another $12 billion on order:
 
 60
 
-ISLAM AND DEMOCRACY
 The shah dreamed of making Iran one of the five conventional military powers of the world, and Washington fueled his ambitions to some extent by
 anointing his regime the policeman of the Persian Gulf. Many Iranians saw
 this surrogacy of the shah's regime as a sign of Iran's complete subservience
@@ -2235,7 +2193,6 @@ Russia, and later America, challenged the right of rulers to sell concessions an
 
 6i
 
-ISLAM AND DEMOCRACY
 
 tribute to foreign penetration and dependence, and attempted to limit the powers
 of the monarchy. Shii Islam had been the state religion, and the clergy had on occasion joined with other sectors of society in nationalist causes such as the Tobacco
@@ -2313,7 +2270,6 @@ all legislation complied with Islamic law and the constitution. Its scope was
 
 64
 
-ISLAM AND DEMOCRACY
 
 reflected in the Iranian constitution's article 96, which declared that the Council of
 Guardians had veto power over all laws passed by parliament that it judged unIslamic. A Supreme Judicial Council dominated by mujtahids (Islamic jurists) was
@@ -2381,7 +2337,6 @@ government used media censorship and its own "Islamic programming" to promote it
 
 66
 
-ISLAM AND DEMOCRACY
 OPPOSITION AND DISSENT
 
 From its inception, the government of the new Islamic Republic of Iran contained
@@ -2458,7 +2413,6 @@ Women in particular felt the impact of the new Islamic order. Many, secularly
 
 68
 
-ISLAM AND DEMOCRACY
 
 as well as Islamically oriented, had been part of the revolution, and donned the
 chador as a symbol of protest and because it provided anonymity. Although the
@@ -2531,7 +2485,6 @@ which the fate of individuals personally and professionally was dependent on roy
 
 70
 
-ISLAM AND DEMOCRACY
 
 favor. Critics demanded political participation; basic freedoms of speech, assembly, and association; and a free press.
 The purges and repression in the early 19805 and again in the late 19805 disabused many of its supporters and well-wishers of the advantages of Iran's version
@@ -2603,7 +2556,6 @@ an end to a system that could be called an Islamic Republic.
 
 72
 
-ISLAM AND DEMOCRACY
 
 The potential effectiveness of this kind of opposition is illustrated in the development of population policy under the republic.
 The development of population policy in Iran indicates that, contrary to its
@@ -2672,7 +2624,6 @@ During the early years after the revolution, the Bahai again were persecuted.
 
 74
 
-ISLAM AND DEMOCRACY
 
 They were declared illegal and forbidden to hold government positions; many were
 arrested and imprisoned; hundreds were executed.52 However, the government
@@ -2748,7 +2699,6 @@ in the Middle East, states: "A transformed Iran has emerged after the appropriat
 
 76
 
-ISLAM AND DEMOCRACY
 
 of political power by the theocrats and their flock Judging by its record over a
 decade, it is a revolutionary state with cunning to match its ferocity, a state capable of organizing great campaigns and retreats and adjusting to things that can and
@@ -2880,7 +2830,6 @@ terms. All central governments since the early nineteenth century had made simil
 
 8o
 
-ISLAM AND DEMOCRACY
 
 different ways. It is the new style of Islamic renewal advocated by the National
 Islamic Front (NIF) that makes the political system established in 1989 distinctive,
@@ -2957,7 +2906,6 @@ mechanisms of participation were defined in the framework of a basically Muslim
 
 82
 
-ISLAM AND DEMOCRACY
 
 society, and Islamic themes were of importance in this situation. For the first three
 decades of British control, the imperial rulers relied consciously and explicitly on
@@ -3026,7 +2974,6 @@ For all practical purposes, the Muslim organizations made a popular parliamentar
 
 84
 
-ISLAM AND DEMOCRACY
 ISLAM AND INDEPENDENT CENTRAL GOVERNMENTS
 
 The new parliamentary state in the independent Sudan had many problems and
@@ -3098,7 +3045,6 @@ political arena.
 
 86
 
-ISLAM AND DEMOCRACY
 
 The elite nature and gradual decline of the Communist Party and the evolution
 of the NUP meant that there was no civilian secular political organization to compete with the mass organization and appeal of the sectarian parties. Military rulers
@@ -3171,7 +3117,6 @@ began to form a group which, when they came to the university in Khartoum (then
 
 88
 
-ISLAM AND DEMOCRACY
 
 called Gordon Memorial College), became formally organized as the Islamic Liberation Movement (ILM).15
 By the early 1950$, these two tendencies represented a number of overlapping
@@ -3247,7 +3192,6 @@ groups. Although they had been important in driving Abboud from power, in the
 
 90
 
-ISLAM AND DEMOCRACY
 
 transition to the second parliamentary era, it became clear that the old political
 organizations remained powerful. The PDF—the explicitly Khatmiyyah party—
@@ -3322,7 +3266,6 @@ experience in the 19708: the dramatic reorganization of the structure of the Ikh
 
 92
 
-ISLAM AND DEMOCRACY
 
 itself. This involved "sweeping internal reforms" that resulted in the "complete
 democratization of the structures of the movement," giving increased power to the
@@ -3401,7 +3344,6 @@ to the two previous experiences. The major parties continued to be the old secta
 
 94
 
-ISLAM AND DEMOCRACY
 
 ian parties, the Ummah and the DUP, who together won about 70 percent of the
 votes in northern Sudan in the 1986 elections. (Elections were not held in most
@@ -3476,7 +3418,6 @@ demand for a secular state by the SPLA and the absolute commitment to an Islamic
 
 96
 
-ISLAM AND DEMOCRACY
 
 The development of Islamist ideology in Sudan since independence did not
 provide a significant, readily available foundation for policies of national unity in
@@ -3549,7 +3490,6 @@ affirmed the rights of adherents of all believers to practice their faiths, but 
 
 98
 
-ISLAM AND DEMOCRACY
 
 nized that Islam was the faith of the majority of the Sudanese, which gave it a special place. The charter also stated that "none shall be legally barred from any public office only because of his adherence to any religious affiliation."43 This meant
 that, in principle, the head of state could be a non-Muslim.
@@ -3623,7 +3563,6 @@ organizations on which they are based have also been suppressed. Properties of t
 
 ioo
 
-ISLAM AND DEMOCRACY
 
 Khatmiyyah and of the Mirghani family have been confiscated, for example, and
 events of the order, such as the commemoration in May, 1994, of the anniversary
@@ -3814,7 +3753,6 @@ and instead advocated a more limited "guided" or "basic" democracy—guided by
 
 io6
 
-ISLAM AND DEMOCRACY
 
 the hand of the military through the morass and chaos created by the politicians.
 Despite his reservations about democracy, Ayub was a Western-oriented modernist
@@ -3898,7 +3836,6 @@ they can see that this too does not work they have started calling it Islamic
 
 io8
 
-ISLAM AND DEMOCRACY
 
 equality (musawat) and Muhammadi musawat. The object is the same—
 pure socialism.10
@@ -4179,7 +4116,6 @@ a PPP victory. The IJI claimed the banner of Islamization and included the Jamaa
 
 n6
 
-ISLAM AND DEMOCRACY
 
 i Islami, the Muslim League, and the Jamiat-i-Ulama-i-Islam. The manifestos of
 the political parties, as well as the Islamic title chosen by the member parties of the
@@ -4323,7 +4259,6 @@ the resentment of many in Sind and Baluchistan, who regarded the Punjabis as "a
 
 120
 
-ISLAM AND DEMOCRACY
 
 rapacious ruling elite that has acquired a stranglehold over national resources
 through its domination of politics and the bureaucracy".32 Pakistan is a country
@@ -4394,7 +4329,6 @@ many may be leery of the manipulation of religion by clerics or governments. How
 
 122
 
-ISLAM AND DEMOCRACY
 
 suppositions (although they will differ widely in their understanding or interpretations): Pakistan was founded to be a Muslim (which many would simply understand as "Islamic") state; thus, Pakistan is an Islamic Republic; Pakistan's national
 ideology is a Muslim, not simply secular, nationalism; Islamic law should play an
@@ -4504,7 +4438,6 @@ Malays enjoyed special privileges that included a system of Malay quotas in educ
 
 126
 
-ISLAM AND DEMOCRACY
 
 the federation and each of its states, and the sultans were recognized as the head
 of religion in their states, that is, as the defenders and protectors of Malay religion
@@ -4570,7 +4503,6 @@ by exposure to students from other Muslim countries and to the writing and think
 
 128
 
-ISLAM AND DEMOCRACY
 
 ferences, all proclaimed an Islamic alternative—a common reassertion of Islam
 as a total way of life and a God-ordained alternative to the excesses of capitalism
@@ -4641,7 +4573,6 @@ from training a suicide squad in Thailand (where Ashaari lived in exile) to havi
 
 130
 
-ISLAM AND DEMOCRACY
 
 conspired to overthrow the Malaysian government in 1986. In fact, Arqam's growth
 and prosperity, as well as the movement's transformation from an apolitical to a
@@ -4788,7 +4719,6 @@ PAS tended to advocate the implementation and enforcement of traditional or
 
 134
 
-ISLAM AND DEMOCRACY
 
 classical Islamic law rather than acknowledging, as did ABIM, the need for its
 reform. Moreover, although it insisted that non-Muslims had nothing to fear from
@@ -4865,7 +4795,6 @@ and the Jamaat-i Islami, the Islamic Republic group, like all campus dakwah orga
 
 136
 
-ISLAM AND DEMOCRACY
 
 support groups that emphasized religious and political activism. The strength and
 success of usrah groups lay in the high level of ideological commitment and organization that often enables a minority to influence or dominate the majority. Students were organized into small cells, separated by sex, which met regularly to study
@@ -5009,7 +4938,6 @@ party and led to the formation of an opposition party, Semangat (Spirit) of '46,
 
 140
 
-ISLAM AND DEMOCRACY
 
 Mahathir demonstrated his remarkable political skills, weathered the storm, and
 by the early 19908 enjoyed solid control of the government and its ruling party.
@@ -5086,7 +5014,6 @@ If democracy means the right to carry guns, to flaunt homosexuality, to disregar
 
 142
 
-ISLAM AND DEMOCRACY
 community in the name of individual rights, to destroy a particular faith, to
 have privileged institutions which are sacrosanct even if they indulge in lies
 and instigations which undermine society, the economy and international
@@ -5160,7 +5087,6 @@ party, PAS, by declaring that Islam is not merely personal piety and ritual, but
 
 144
 
-ISLAM AND DEMOCRACY
 
 social and civilizational in its scope and impact. At the same time, the Malaysian
 government has both supported its own development plans and countered the
@@ -5233,7 +5159,6 @@ government and of Islamic law mean? The example of PAS in Kelantan, with its
 
 146
 
-ISLAM AND DEMOCRACY
 
 proposal to enforce the hudood on Muslims and non-Muslims alike, is, for many,
 cause for concern. These concerns are reinforced by the statements of some PAS
@@ -5309,7 +5234,6 @@ reformism of ABIM proved to be a catalyst for Prime Minister Mahathir's govern-
 
 148
 
-ISLAM AND DEMOCRACY
 
 ment-sponsored Islamization program and the incorporation of Anwar Ibrahim
 and other ABIM members into the government. At the same time, a more pronounced turn to Islam included the more strident voices of a new PAS, which tried
@@ -5582,7 +5506,6 @@ people proved ready recruits, exchanging idleness and boredom for a sense of
 
 156
 
-ISLAM AND DEMOCRACY
 
 direction and hope as they swelled the crowds at mosques and engaged in political action.
 The living conditions of many in 1991 stood in stark contrast to the lifestyles of
@@ -5736,7 +5659,6 @@ As in politics, so too in economics. The FIS agenda attempted to balance individ
 
 160
 
-ISLAM AND DEMOCRACY
 
 ployment and the maldistribution of wealth. The FIS did not offer a blueprint for
 economic reform. It did, however, reject the discredited socialist system of the past
@@ -5814,7 +5736,6 @@ implanted in the heart of the Muslim Arab country and reinforced by colonial mas
 
 i6i
 
-ISLAM AND DEMOCRACY
 
 of French occupation]."28 Rulers' fears of the election's international impact and
 implications were fed by Islamists who declared:
@@ -5884,7 +5805,6 @@ were tried before a military court and sentenced to twelve years in prison, char
 
 164
 
-ISLAM AND DEMOCRACY
 
 with conspiracy against the state. If some charged that the FIS was challenging the
 system and undermining state security, others noted that "the FIS demonstrations
@@ -5959,7 +5879,6 @@ Africa during the Cold War.
 
 166
 
-ISLAM AND DEMOCRACY
 MILITARY INTERVENTION: DEMOCRACY ABORTED
 
 On January 12,1992, the Algerian military, disregarding the majority of voters,
@@ -6035,7 +5954,6 @@ responding to state repression and violence, moved from a defensive to an offens
 
 168
 
-ISLAM AND DEMOCRACY
 
 In a scenario somewhat reminiscent of Egypt's Muslim Brotherhood during the
 rule of Gamal Abdel Nasser in the 19605, the FIS split into moderate and more militant factions. Repression and torture spawned extremist guerilla groups, drawn
@@ -6115,7 +6033,6 @@ commitment to new elections.
 
 170
 
-ISLAM AND DEMOCRACY
 FROM RECONCILIATION TO ERADICATION
 
 1994 saw a dramatic increase in the level of violence and terrorism, as well as signs
@@ -6232,7 +6149,6 @@ the revolution of 1952 and the subsequent emergence and rule from 1952 to 1971 o
 
 174
 
-ISLAM AND DEMOCRACY
 
 Gamal Abdel Nasser. Nasser redefined the nature of Egyptian nationalism and promoted Arab nationalism and socialism both at home and abroad. He centralized
 and refined the apparatus of an authoritarian, "security" state and projected himself as a regional and world leader.
@@ -6298,7 +6214,6 @@ declaring the separation of religion and politics, tightening the reins on the B
 
 176
 
-ISLAM AND DEMOCRACY
 
 mosques. During the 19708, the number of private mosques had doubled from
 approximately 20,000 to 40,000. Sadat's early policy encouraged the building of
@@ -6368,7 +6283,6 @@ completely covered their face and bodies and withdrew from public life, most pre
 
 178
 
-ISLAM AND DEMOCRACY
 
 transportation and the workplace were frowned upon. If wearing Islamic dress was
 a source of curiosity in the 19705, by the 19808 it had become so widespread and
@@ -6437,7 +6351,6 @@ capitalist West, with its emphasis on secularism, individualism, and materialism
 
 i8o
 
-ISLAM AND DEMOCRACY
 
 and a communist/socialist, atheistic East marked by dictatorship and tyranny.5
 Both alternatives, which possessed systems of political participation, were judged
@@ -6585,7 +6498,6 @@ many other Muslim countries, have received support from a broad spectrum of
 
 184
 
-ISLAM AND DEMOCRACY
 
 governments (Libya, Saudi Arabia, the Gulf, Iran, and Sudan). In the aftermath of
 the Gulf War, in which Islamists generally sided against Saudi Arabia and Kuwait,
@@ -6657,7 +6569,6 @@ gas and arrested thirty-three lawyers, who were charged with inciting violence. 
 
 186
 
-ISLAM AND DEMOCRACY
 
 government denied allegations of torture, returned the body in a sealed coffin, and
 refused to permit an autopsy. Although the public prosecutor subsequently conceded on May 12 that Medani's death was due to foul play and authorized a suit
@@ -6727,7 +6638,6 @@ rise of Islam and its spread to Egypt, and who in large part share a common lang
 
 188
 
-ISLAM AND DEMOCRACY
 
 While some tensions have existed between the majority Sunni Muslim and
 minority Coptic Christian community, like other minorities, Copts have generally
@@ -6804,7 +6714,6 @@ diversity, its many faces and postures, have long been overshadowed by its equa-
 
 190
 
-ISLAM AND DEMOCRACY
 
 tion with a monolithic radical fundamentalist threat. The broader significance and
 impact of Islamists can be seen by the extent to which they have gained cultural

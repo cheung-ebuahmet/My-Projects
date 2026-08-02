@@ -1,8 +1,5 @@
 # Forty Hadith
 
-> 来源: Forty Hadith.pdf
-> 提取于: iSlam/圣训和圣行/Forty Hadith.pdf
-
 Published on Books on Islam and Muslims | Al-Islam.org (http://www.al-islam.org)
 Home > Forty Hadith: The Noble Qur'an
 

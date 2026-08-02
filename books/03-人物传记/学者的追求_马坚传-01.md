@@ -10,7 +10,6 @@ processed: full (thresholding+deskew+denoise+psm6+repair)
 # 中国伊斯兰史存稿
 
 > 白寿彝 著 | 宁夏人民出版社 1983年
-> 由扫描版 PDF 识别整理，按章节结构编排
 
 ---
 

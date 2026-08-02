@@ -1,7 +1,5 @@
 # Islamic Guide to Sexual Relations
 
-> 来源: Islamic Guide to Sexual Relations.pdf
-
 Islamic Guide To
 Sexual Relations
 
@@ -310,7 +308,6 @@ dietary laws, inheritance and other issues. The same pattern is found
 in many badith collections where the majority of the work consists of
 matters other than the pure devotional worship.
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 The implication of this is that a Muslim who confines his practice of
 Islam to purely devotional worship is omitting a great portion of the
@@ -405,7 +402,6 @@ Messenger of Allah ~ himself explained this subject in considerable
 
 3
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 detail. Severall).adiths describe how the Messenger of Allah ~ taught
 men and women matters relating to sex, many of which will be explored
@@ -477,7 +473,6 @@ truth" (Qur'an 33:53, Sal}'il} al-Bukhiin 130 and Sunanlbn Miijah 1924).
 Whatever is discussed in this book is based directly on the Qur'an,
 5
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Sunna, sayings of the Companions ~. works of classical scholars,
 reference works in each of the four Sunni Schools of Islamic law, and
@@ -540,9 +535,7 @@ pious offspring who will serve Islam.
 
 7
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
-Allah Most High says:
 
 "So now have relations with them [your wives] and seek what
 Allah has ordained for you." (Qur'an 2:187)
@@ -660,7 +653,6 @@ reader is advised to keep this in mind whilst reading the book.
 
 9
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 when engaging in sexual relations with one's spouse. Sex is not a dirty
 act, but rather something that has been practised by countless Prophets
@@ -750,7 +742,6 @@ in excellence and fostering the marital relationship ... " (Badii 'i al-Sanii 'i
 2:331)
 12
 
-SEX AS A RIGHT OF BOTH SPOUSES
 
 Despite the fact that each spouse is religiously obliged to fulfil the
 sexual needs of the other, there is a slight legal difference between
@@ -788,7 +779,6 @@ many l)adiths:
 Sayyiduna Abu I:Iurayra ~ relates that the Messenger of Allah (j.
 said:
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 ''When a man calls his wife to his bed and she refuses, and then
 he sleeps being angry, the angels curse her until morning." ( Sal],"il},
@@ -832,7 +822,6 @@ to seek permission from their husbands before observing a voluntary
 fast, since the husband may desire to fulfil his sexual needs whilst she
 is fasting. He ~ said:
 
-SEX AS A RIGHT OF BOTH SPOUSES
 
 "A woman must not fast [i.e. optional fasts] whilst her husband
 is staying with her except with his permission." ( Salii/:t al-Bukhiir'i
@@ -858,7 +847,6 @@ obligated to comply with her husband's demands for sex. Rather, the
 husband is required to show her sympathy by understanding that she
 may be unable to have sex. But, simply "not feeling up to it" is not a
 justified reason.
-Allah Most High says:
 
 "On no soul does Allah place a burden greater than it can bear."
 (Qur'an 2:286)
@@ -869,7 +857,6 @@ divorce, and support their behaviour by quoting the above }J.adiths! It
 is important to understand that if the wife is not in a state to engage in
 sexual activity and has a genuine and Islamically valid reason, but the
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 husband forces her, then he will be sinful. Muslim husbands need to
 realise that their wives are also human beings, and not machines that
@@ -989,7 +976,6 @@ _,,
 :J~' ~~ ~ -ji ~ :~ J~' ~;~J ~;~ :J~' ~~ ~ -ji
 16
 
-SEX AS A RIGHT OF BOTH SPOUSES
 
 "'
 
@@ -1236,7 +1222,6 @@ r.J
 
 ...
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 "The Messenger of Allah~ said to me, "Have I not been informed
 that you fast all day and pray all night?" I said, "Yes, 0 Messenger
@@ -1317,7 +1302,6 @@ and endurance.
 
 18
 
-SEX AS A RIGHT OF BOTH SPOUSES
 '
 
 '
@@ -1389,7 +1373,6 @@ al-Khulafii' P: 161)
 
 19
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 In light of this, Imam Ghazali's view is that a man must fulfil his
 wife's sexual needs once every four nights, since he is permitted to
@@ -1434,7 +1417,6 @@ truth." So she gestured with her hand indicating three months, and
 if that is not possible, then four months. Hence 'Umar !& declared
 20
 
-SEX AS A RIGHT OF BOTH SPOUSES
 
 that armies must not be kept on service for more than four months."
 (Tiinkh al-Khulafii' P: 161-162) 3
@@ -1479,7 +1461,6 @@ husband who was asking. (Al-lfiidiit al-Yawmiyya min al-lfiidi'it al-Qawmiyya 2:
 
 21
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 ill or weak to engage in any sexual activity or fears that having sex with
 
@@ -1520,7 +1501,6 @@ one be concerned about one's personal situation.
 
 23
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Some scholars recommend having sex once a week and consider
 this to fall within the ambit of moderation. They base their position on
@@ -1567,7 +1547,6 @@ Allah.
 
 25
 
-SELECTING A TIME FOR SEXUAL RELATIONS
 
 GENERALLY, THE SHARI'A does not specify any particular time
 for engaging in or desisting from sexual activity. Married couples may
@@ -1598,7 +1577,6 @@ it deserves, but at the same time, one should n9t consider what some
 books mention about preferable times for having sex and times to
 avoid sex as baseless. These recommendations are based on experience
 
-SELECTING A TIME FOR SEXUAL RELATIONS
 
 and personal judgment and this is the context in which the terms
 "preferred" and "disliked" should be read in the coming sections.
@@ -1677,7 +1655,6 @@ impurity, he would [merely] perform ablution, the ablution for
 prayer and then offer two Rak'iits [Sunna of Fajr]." (Salti/:t Muslim
 739)
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 For those who find it difficult to wait for the end of the night, a
 practical solution is to eat a light meal in the early part of the evening.
@@ -1715,7 +1692,6 @@ There is no difference of opinion between the scholars that it is
 permitted for a couple to have sex whilst the wife is pregnant. Likewise,
 it is permitted to have sex during the period of breastfeeding.
 
-SELECTING A TIME FOR SEXUAL RELATIONS
 
 Sayyiduna Sa'd ibn Waqqa(l ~relates that:
 "" .....
@@ -1852,7 +1828,6 @@ oneself.
 
 29
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Having said the above, scholars recommend that couples should
 seek reliable medical advice before having sex during both pregnancy
@@ -1903,7 +1878,6 @@ r-.. ..r.
 
 .....
 
-SELECTING A TIME FOR SEXUAL RELATIONS
 
 "Among the Jews, when a woman menstruated, they did not eat
 with her, nor did they live with menstruating women in their
@@ -1936,7 +1910,6 @@ does it forgetfully ( nisyan), or without knowing that the woman was
 menstruating, or is ignorant of its prohibition, or was compelled, then
 no sin was committed and he is not required to expiate for it. However,
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 if he has sex with her deliberately, knowing that she is menstruating,
 knowing of its prohibition and with a free choice, then he has certainly
@@ -1975,7 +1948,6 @@ The husband may touch any area of the wife's body from above the
 navel and below the knees with his hands, his penis or any other part
 of his body. It is also permitted for the wife to masturbate her husband,
 
-SELECTING A TIME FOR SEXUAL RELATIONS
 
 since the husband is not touching any area that is in between her navel
 and knees. Shaykh Abu I:Iamid al-Isfira'In'i and many others relate a
@@ -2041,7 +2013,6 @@ clothing] is permissible. Therefore, it is permitted for the husband to
 
 33
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 rub his private parts against his wife's private parts if there is some sort
 of clothing in between that prevents the transfer of body-heat. This
@@ -2203,7 +2174,6 @@ we came back to Madina, we intended to enter our houses. So
 he~ said, ''Wait until we enter in the latter part of the evening
 35
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 so that a woman with dishevelled hair can comb her hair, and
 a woman whose husband has been absent can shave her pubic
@@ -2255,7 +2225,6 @@ Allah /!r. said:
 
 "Purity is half of faith ... " (Sa/Ji/J Muslim 223)
 
-PREPARING FOR SEXUAL RELATIONS
 
 As such, a Muslim must remain pure and clean at all times, and even
 more so when it comes to marriage.
@@ -2304,7 +2273,6 @@ ate onion and garlic and leek- should not approach our Mosque,
 
 37
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 for the angels are harmed by the same things as the children of
 Adam." (SaQ:i}j, Muslim 564)
@@ -2341,7 +2309,6 @@ herself for her husband. In this way, the husband will also be saved
 from casting lustful glances at other women.
 Unfortunately, some Muslims consider that it is inappropriate for a
 
-PREPARING FOR SEXUAL RELATIONS
 
 practising Muslim woman to adorn herself in a captivating manner for
 her husband. This is far from the truth. Not only is it permissible for a
@@ -2506,7 +2473,6 @@ j
 
 .
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 'The Messenger of Allah /!r. received some jewels presented by
 Negus (najashi) as a gift to him. They contained a gold ring
@@ -2548,7 +2514,6 @@ However, a condition is stipulated that her nakedness ( awra) is
 not exposed, even in front of Muslim women. A Muslim woman's
 nakedness ( awra) in front of other Muslim women is from her navel
 
-PREPARING FOR SEXUAL RELATIONS
 
 up to and including her knees. As such, it is not permitted for a woman
 to expose the area in between the navel and knees for hair-removal,
@@ -2600,7 +2565,6 @@ perfume, using a tooth-stick (siwak) and marriage." (Sunan alTirmidhi 1080)
 The beloved Messenger of Allah ~ also loved perfume, and
 encouraged it. Sayyiduna Anas _;:&. relates that:
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 "The Messenger of Allah~ would not refuse perfume."
 ($a/JJIJ, al-Bukhiin 5585)
@@ -2637,7 +2601,6 @@ dates, such as Ethyl alcohol, thus making the perfume unlawful to use.
 Other names given to Ethyl Alcohol are: Ethanol and Methylated Spirits.
 Products containing these ingredients are therefore prohibited.
 
-PREPARING FOR SEXUAL RELATIONS
 
 Secondly, it is not permitted for women to go out wearing perfume, as
 the Messenger of Allah /b firmly forbade it in rigorously authenticated
@@ -2701,7 +2664,6 @@ As part of her psychological preparation for sexual relations, a woman
 must realise that what attracts her husband towards her is her softness,
 43
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 gentleness and generally her feminine behaviour, and that roughness
 and masculine traits are normally a "turn off'' for men. 4
@@ -2779,7 +2741,6 @@ when it is intentional. ('Umdat al-Qiiri Shar}J fia}JZ}J al-Bukhiiri 15:85)
 
 44
 
-PREPARING FOR SEXUAL RELATIONS
 PREPARATION OF THE HUSBAND
 
 What has been mentioned above in regard to a wife's psychological
@@ -2816,7 +2777,6 @@ The Messenger of Allah~ mentioned ten matters from the pure,
 
 45
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 primordial and natural disposition of a man known as .fitra, which
 are from the ways of all the Prophets of Allah, particularly Sayyiduna
@@ -2903,7 +2863,6 @@ that." (Sunan al-Tirmidhi 19)
 The hands should be washed thoroughly after one relieves oneself,
 preferably using soap until all traces of ritual impurity (najiisa) are
 
-PREPARING FOR SEXUAL RELATIONS
 
 removed. Mter urinating, a man is required to ensure that drops of
 urine are completely removed from his urine passage ( isti!Jra).
@@ -2977,7 +2936,6 @@ it can kill the passion and desire of the spouse.
 
 47
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 c) The husband should also pay attention to his attire and external
 appearance by dressing neatly and wearing clean and ironed clothes,
@@ -3065,7 +3023,6 @@ nice, and his shoes to be nice. He~ said, ''Verily, Allah is beautiful
 and loves beauty. Pride is to reject the truth [out of arrogance] and
 have con tempt for the people." ( SaiJ,i/.1. Muslim 91)
 
-PREPARING FOR SEXUAL RELATIONS
 
 As such, the Sunna is to remain clean, wearing neat clothing and
 smelling good. A man should dress neatly, even with friends and
@@ -3160,7 +3117,6 @@ and beard. Sayyiduna Anas ibn Malik~ relates:
 ..::.~~_; ~j ;~
 49
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 'The Messenger of Allah /§. would often oil his hair, comb his
 beard and frequently use Qjna' [a cloth placed on the head to
@@ -3197,7 +3153,6 @@ important for a husband, since a long moustache may prove to be
 uncomfortable, to say the least, when couples kiss one another.
 After agreeing that a man must shorten his moustache, scholars
 
-PREPARING FOR SEXUAL RELATIONS
 
 have disagreed about the extent to which the moustache should be
 trimmed. Is it better to completely remove one's moustache, or is it
@@ -3246,7 +3201,6 @@ _}
 ( Sunan al-Tirmidh'i 2 761 and Musnad AIJ,mad. Imam Tirmidhi said
 that this is a rigorously authenticated l).adith)
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Those who have a habit of keeping long moustaches must take heed
 from this. It is wrong to leave the moustaches long and thick, since the
@@ -3298,7 +3252,6 @@ in sexual relations. Allah Most High says:
 
 52
 
-PREPARING FOR SEXUAL RELATIONS
 
 "Live with them on a footing of kindness and equity. If you take a
 dislike to them it may be that you dislike a thing, and Allah brings
@@ -3361,7 +3314,6 @@ behind the words. It is all about how his words make her feel. It's a set
 
 53
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 of actions, and every small thing the husband does matters, and will
 help contribute to a healthy sexual encounter.
@@ -3405,7 +3357,6 @@ of the bedroom, fail to treat their women with warmth and affection,
 but when it comes to sex, all of a sudden, they become caring and
 54
 
-PREPARING FOR SEXUAL RELATIONS
 
 compassionate. Not only is this selfish, it also shows what the wife
 actually means to the husband.
@@ -3514,7 +3465,6 @@ dust."
 
 57
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Imam Ibn al-Qayyim al:Jawziyya mentions that Sayyiduna Jibir ibn
 'Abdillah ~ is reported to have said, ''The Messenger of Allah ~
@@ -3636,7 +3586,6 @@ al-Majhud ji IJ,al Am Diiwild 11 :202-203)
 
 59
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 behind the ear or suck on the earlobe, the eyelid, back of the neck,
 palm of the hand, fingers, wrist, forearm, waist, stomach, navel, chest
@@ -3736,7 +3685,6 @@ foster-brother is, for suckling is only valid if it takes place in the
 suckling period." (!$a}Ji}J al-Bukhiir'i 2504 & Sa/J'i}J Muslim 1455,
 the wording is of Bukhiir'i )
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Based on this l).adith, all four Sunni schools of Islamic law agree that
 suckling and milk given to an adult is of no significance and does not
@@ -3833,7 +3781,6 @@ masturbate with the hand of one's wife." (Radd al-Mul}tiir 'alii 'l-Durr
 al-Mukhtiir 2:399)
 Imam Ibn 'Abidin details the difference between this and masturbating with one's own hand, which is clearly forbidden. In the former
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 case, one is satisfying oneself with that which is permissible to gain satisfaction from, namely a part of one's spouse, and one is entitled to seek
 sexual satisfaction from her entire body, whereas in the latter case, one
@@ -3935,7 +3882,6 @@ the scholars of badith, such as Imam Ibn I:libban and Imam Ibn alJawzi." (Mughni
 The Maliki and I:Ianbali schools also agree with the I:Ianafi and
 Shafi'i position on the permissibility of looking at the private parts of
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 one's spouse. (Al-Mughni 7:458 for the I;Ianbali School, and lfiishiya
 al-Dasuqi 'ala'l-Shar}J, al-Kabir 2:341 for the Maliki School)
@@ -4017,7 +3963,6 @@ them.
 A sex aid is an object used to trigger or enhance sexual arousal or
 orgasm that a couple can use in masturbation or other sexual activity.
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Some of the most common are dildos, vibrators, clitoral stimulators,
 extension condoms, vaginal balls and various creams and lotions.
@@ -4128,7 +4073,6 @@ and sinful if accompanied by music. Listening to mainstream music is
 
 6g
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 decisively prohibited according to all four Sunni schools oflslamic law,
 and results in many personal and societal ills.
@@ -4309,7 +4253,6 @@ Muslim P: 1618)
 Moreover, Sayyiduna Abu Sa'id al-Khudri ~ relates that the
 Messenger of Allah ~ said:
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 "A man must not look at the nakedness of another man, and a
 woman must not look at the nakedness of another woman ... "
@@ -4422,7 +4365,6 @@ be blamed. (Fat/J al-Biir'i Shar/J Sa/Ji/J al-Bukhtir'i 10:409)
 
 73
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 It is clear from the above that it is sinful to intentionally dress like
 the opposite gender or to assume the character traits of the opposite
@@ -4560,7 +4502,6 @@ Secondly, sexual relations are to be kept private between the two
 people involved. Islam prohibits the husband and wife from discussing
 77
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 the details of their sexual behaviour with others. A l).adith in this regard
 was quoted earlier in which the Messenger of Allah /!. said: 'The most
@@ -4593,7 +4534,6 @@ family members. Islam is very clear when it comes to public display
 of affection. It prohibits the display of intimacy and other sexual acts
 such as kissing, hugging and caressing before others, including young
 children.
-Allah Most High says:
 
 _;i ~ r[1 1;(; 2~~ ~41 ~ ~~\ ~~~ 1;i ~\ ~ ~
 '
@@ -4650,7 +4590,6 @@ atmosphere.
 
 79
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 The Messenger of Allah ~ was a practical example of modesty and
 bashfulness. Sayyiduna Abii Sa'id al-Khudri ~relates:
@@ -4740,7 +4679,6 @@ able to harm it." (SaWJ al-Bukhiir'i 141 & Sa/J,i/J, Muslim 1434, the
 wording is of Muslim)
 81
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Thus, it is recommended prior to penetration for both spouses to
 first pronounce the name of Allah Most High saying:
@@ -4752,7 +4690,6 @@ Translation:
 In the name of Allah
 Or
 
-Transliteration:
 Bismilliih ar-ra}J,miin ar-ra}J,im
 
 Translation:
@@ -4765,7 +4702,6 @@ I O
 
 :
 
-Transliteration:
 Allahumma jannibnash-shaytiin, wa jannibish-shaytiina ma razaqtana
 
 Translation:
@@ -4821,7 +4757,6 @@ method of having sex to be more comfortable and pleasurable, whilst
 another couple may feel at ease with a different position altogether. As
 such, it is left to the couple to decide on the position most suited to them,
 taking into account physical comfort, satisfaction and enjoyment.
-Allah Most High says:
 Ill
 
 '
@@ -4850,7 +4785,6 @@ _,,
 
 f-?.'i ~~J 1:=·-:" Jl ~:,; 1;\:t rsJ 6:,; rsr~
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 ''Your wives are tillage for you to cultivate. So approach your
 tillage from where you wish, but do some good act for yourselves
@@ -5147,7 +5081,6 @@ Quraysh were accustomed to], but she objected and said, "We
 were only approached on one side [i.e. laying on the back],
 so do that otherwise stay away from me." This matter of theirs
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 spread widely, and reached the Messenger of Allah ~- So Allah
 Most High revealed: ''Your wives are tillage for you to cultivate. So
@@ -5258,7 +5191,6 @@ legs and thighs. This seems to refer to the position in which the wife,
 while on her back, folds her knees and the husband enters her in almost
 a sitting posture, so that her thighs and calves form the "four parts".
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 There are many other forms of the man-on-top position, mostly with
 minor differences. Scholars and experts alike mention that the manan-top position is the most effective in terms of the wife conceiving. It
@@ -5343,7 +5275,6 @@ sexual relationships with other than one's spouse. Allah Most High says:
 
 8g
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 -
 
 ) tJ
@@ -5429,7 +5360,6 @@ before her, then it is disliked ( makrilh) for him to withdraw before she
 achieves sexual climax, because of what Anas ibn Malik ~ related that
 91
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 the Messenger of Allah~ said, ''When a man has sex with his wife, he
 should strive to satisfy her. Then when he fulfils his need, he should
@@ -5501,7 +5431,6 @@ Sayyiduna 'Abdullah ibn Mas'ud ~:
 .. 6:'
 '_)) u. v·lk:.!.u ..r-:
 
-Transliteration:
 '
 ' '
 Alliihumma la taf alli ash-shaytiini fimii razaqtanii na!jiban
@@ -5541,7 +5470,6 @@ whose nature has been distorted to prefer that which is filthy to that
 which is pure. Not only is anal sex sinful and harmful, it also violates
 the right of the wife, who is entitled to having offspring through vaginal
 sex with her spouse.
-Allah Most High says:
 
 ~
 
@@ -5591,7 +5519,6 @@ said:
 
 95
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 The meaning of "being cursed ( mafun)" is that one is distant from
 Divine Mercy, and an object of Divine Dislike. The Messenger of Allah
@@ -5712,7 +5639,6 @@ other parts of the body and so permitted, but disliked, as placing one's
 mouth on one's spouse's genitalia is against religious propriety.
 97
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 The famous I;Ianafi Fiqh reference work, Al-Fatawa al-Hindiyya,
 states: "If a man inserts his penis into his wife's mouth, it has been said
@@ -5888,7 +5814,6 @@ semen to be pure. However, all the Schools agree that the emission of
 semen necessitates a ritual bath (ghusl) for both the man and the woman.
 101
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 (TaiJ,tii:w'i'alii Mariiqi al-Falii}], P: 96 and Radd al-Mul],tan:312-314 for the
 I:Ianafi School, Al-Majmil' Shari), al-Muhadhdhab 1:395-396 for the Shafi'l
@@ -6042,7 +5967,6 @@ In regards to the emission of semen without sex being a cause of
 Janiiba, the following Prophetic narration is reported:
 Sayyiduna 'Ali ~ relates:
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 ,}
 
@@ -6277,7 +6201,6 @@ Janiiba as soon as possible, as it releases one from the restrictions of
 ritual impurity.
 I05
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Sayyiduna 'Ali ~ relates that the Messenger of Allah ~ said:
 
@@ -6403,7 +6326,6 @@ such as Dawfld al-Zahiri and Ibn al-l:labib al-Maliki, the general body
 of scholars (jumhilr) hold that performing ablution before going to
 107
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 sleep is recommended, not obligatory. In other words, one would be
 rewarded for performing ablution but not sinful for omitting it.
@@ -6547,7 +6469,6 @@ necessary.
 
 109
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 Sayyiduna Abu Sa'id al-Khudri ~ relates that the Messenger of Allah
 ~said:
@@ -6677,7 +6598,6 @@ be talking [with others] about what goes on between him and his
 wife, and may a woman be talking [with others] about what she
 111
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 does with her husband?" The people remained quiet and did not
 answer. So I said, ''Yes, by Allah, 0 Messenger of Allah! The men
@@ -6733,7 +6653,6 @@ during sexual relations.
 
 113
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 11) Reciting the various supplications.
 12) The husband waiting for the wife to achieve sexual climax.
@@ -6815,7 +6734,6 @@ u6
 
 ETTIQUETTES AND FIQH OF THE FIRST NIGHT OF MARRIAGE
 
-Transliteration:
 Alliihumma inni as'aluka khayraha wa khayra mii jabaltaha 'alayhi wa
 a'udhu bika min sharriha wa sham mil jabaltaha 'alayh.
 Translation:
@@ -6831,7 +6749,6 @@ may also recite the supplication when she sees her husband for the first
 time, but the wording will be slightly changed to accommodate the
 male gender, as follows:
 
-Transliteration:
 Alliihumma inni as'aluka khayrahu wa khayra mil jabaltahu 'alayhi wa
 a'ildhu bika min sharrihi wa sharri mil jabaltahu 'alayh.
 Translation:
@@ -6849,7 +6766,6 @@ evil in one's spouse, be that the husband or wife.
 
 117
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 2) Offering Prayers
 Abu Wa'il relates that a man once came to Sayyiduna 'Abdullah ibn
@@ -6935,7 +6851,6 @@ being presently known about her. This is because virginity is something
 of great social weight in Islamic society, and to stain her honour for a
 119
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 past sin, from which the woman has presumably repented, would be
 wrong. (Radd al-Mul)tar)
@@ -6999,7 +6914,6 @@ Cairo: Maktaba wa Matba'a Mu~tafa al-Babi al-I:Ialabi wa Awladuhu,
 
 123
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 _ _ Kaff al-Rifa 'an Mu/J,arramiit al-Lahw wa 'l-Samii' [printed with
 Haytami's Al-Zawajir an Iqtiraf al-Kaba'ir, and Al-I'lam bi Qawati' atIslam]. 2 vols. Cairo: Maktaba wa Matba'a Mustafa al-Babi al-Halabi wa
@@ -7077,7 +6991,6 @@ Muslim ibn al-/faJjiij printed below it]. Edited by Mul)ammad Fu'ad
 'Abd al-Baqi. Beirut: Dar Ibn I:Iazm, 1423/2002.
 125
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 al-Muttaqi, 'Ala al-Din 'Ali ibnHusam al-Din al-Hindi. Kanz al-'Ummiilfi
 Sunan al-Aqwiil wa 'l-Af ill.
@@ -7152,7 +7065,6 @@ with commentary by Mmad Mul).ammad Shakir. 5 vols. Beirut: Dar
 ll).ya' al-Turath al-Arabi.
 127
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 _ _ Shamii 'il al-Nalii. Edited by Mahir Yasin Fahl. Beirut: Dar al-
 
@@ -7246,7 +7158,6 @@ genitals
 fondling, of one's spouse, 63
 129
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 looking at, 64
 al-Ghazali, Imam Abu I:Iamid
@@ -7432,7 +7343,6 @@ menstruation, prohibition of
 during, 30-32
 moderation in, 23
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 nakedness during, 66
 orgasm, 91-93
@@ -7519,7 +7429,6 @@ right to sexual fulfilment, 12-13,
 voice of, appeal of, 44
 al-Zabidi, 'Allama Murtaqa', 93
 
-ISLAMIC GUIDE TO SEXUAL RELATIONS
 
 ABOUT THE AUTHOR
 

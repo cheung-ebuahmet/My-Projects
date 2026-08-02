@@ -1,7 +1,5 @@
 # Deeper Into Dhikr - A Companion Guide
 
-> 来源: Deeper Into Dhikr - A Companion Guide.pdf
-
 into
 A companion guide
 
@@ -299,10 +297,8 @@ mubarakan feeh
 All praise is due to Allah, plentiful,
 pure, with blessings in it.
 
-Building a habit for
 alhamdulillah
 
-I will say this dhikr during:
 
 َ ً
 ُ ْ
@@ -638,10 +634,8 @@ There is no god but Allah, alone, without
 partners. His is the dominion. His is the
 praise. He has power over everything.
 
-Building a habit for
 la ilaha illa Allah
 
-I will say this dhikr during:
 
 َّ َ َ
 َ
@@ -933,10 +927,8 @@ be to Allah, and glorified be Allah at
 the beginning and end of the day.
 Allah is the Greatest.
 
-Building a habit for
 Allahu Akbar
 
-I will say this dhikr during:
 
 َ‫أ‬
 َ ُ ْ
@@ -1103,10 +1095,8 @@ Magnificent, whom there is no god
 but Him, the Ever-Living, the Sustainer,
 and I repent to Him.
 
-Building a habit for
 astaghfirullah
 
-I will say this dhikr during:
 
 َّ
 �
@@ -1314,11 +1304,9 @@ al-‘Aliyyi al-‘Adheem
 There is no might nor power except with
 Allah, the Most High, the Magnificent.
 
-Building a habit for
 la hawla wa la
 quwwata illa billah
 
-I will say this dhikr during:
 
 َّ َ ُ‫َ َ َ ق‬
 ِ‫لا �ح َْول َولا � َّوة �إِ لا �ِب الله‬
@@ -1437,7 +1425,6 @@ Building a habit
 for saying
 the salawat
 
-I will say this dhikr during:
 
 When?
 
@@ -1590,10 +1577,8 @@ min sharri ma khalaq
 I seek refuge in Allah’s perfect words
 from the evil of that which He created.
 
-Building a habit for
 a’oodhu billah
 
-I will say this dhikr during:
 
 َ ُ‫أ َ ذ‬
 ��
@@ -1772,7 +1757,6 @@ when you sleep in the evening, and with each step in between.
 Highlighted
 dhikr
 
-Building a habit for
 bismillah
 
 In the Name of Allah, I place my trust
@@ -1786,7 +1770,6 @@ except with Allah.
 َّ َ �‫َ ح� َ َ ق‬
 ِ‫َولا َْول َولا � َُّـوة �إِ لا �ِب الَّله‬
 
-I will say this dhikr during:
 
 When?
 

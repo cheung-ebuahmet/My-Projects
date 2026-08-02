@@ -1,7 +1,5 @@
 # Ramadan
 
-> 来源: Ramadan.pdf
-
 Arabic text translates as: In the Name of Allâh,
 the Most Beneficent, the Most Merciful
 
@@ -79,8 +77,6 @@ Waning crescent
 
 The Lunar calendar is 11-12 days shorter than Gregorian
 calendar… therefore, Ramadan is 10-11 days earlier every year.
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 3
 
@@ -109,8 +105,6 @@ New moon is 24 hrs old
 Alireza Mehrani
 
 Ammar Tahir
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 4
 
@@ -129,8 +123,6 @@ prayer, Increased charity.
 Ends with the festival of Eid-ul-Fitr: Day of celebration
 and gratitude.
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 5
 
@@ -173,8 +165,6 @@ financially able.
 Ramadan evening prayer at the Holy
 Mosque, Makkah, Saudi Arabia
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 6
 
@@ -201,8 +191,6 @@ All Muslims except: children, unhealthy adults (mentally or physically),
 adults travelling long distances, and women who are menstruating, in
 post-childbirth care, pregnant or breast-feeding.
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 7
 
@@ -233,8 +221,6 @@ character.
 
 Trains the person to do praiseworthy acts e.g. charity, kindness,
 generosity, patience, forgiveness.
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 8
 
@@ -254,8 +240,6 @@ physical abstentions.
 
 Physiological effects include lowering of blood sugar,
 cholesterol and systolic blood pressure.
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 9
 
@@ -295,8 +279,6 @@ prayer of the day.
 night (20-21hrs*)
 
 * for 2005 only
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 10
 
@@ -378,8 +360,6 @@ way to cross into a new cultures.
 
 If invited to share Iftar, try to make it… it will be fun!
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 12
 
@@ -407,8 +387,6 @@ Working hours in some companies end earlier during Ramadan
 Being in a Muslim country during Ramadan is a great experience…
 There should not be any worries.
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 13
 
@@ -435,14 +413,10 @@ Be considerate of and supportive to the Muslims around
 you
 
 Ramadan Mubarak TO ALL!
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 14
 
 Send a Ramadan Greeting Card
 
-Shell Diversity & Inclusivness
-Middle East & North Africa Network
 
 15

@@ -1,8 +1,5 @@
 # Financial Performance of Malaysian Founder Islamic Banks Versus Conventional Banks
 
-> 来源: Financial Performance of Malaysian Founder Islamic Banks Versus Conventional Banks.pdf
-> 提取于: iSlam/伊斯兰金融/Financial Performance of Malaysian Founder Islamic Banks Versus Conventional Banks.pdf
-
 Journal of Business and Policy Research
 Vol. 6. No. 2. September 2011. Special Issue. Pp.67-79
 
@@ -101,7 +98,6 @@ Envelopment Analysis (DEA).
 
 68
 
-Masruki, Ibrahim, Osman & Wahab
 The existing literature in this area can be classified into two area of study. Studies
 concerning Malaysia specifically have adopted two approaches. The first area of study is
 investigating the performance of Islamic banks over a certain time frame, and then
@@ -135,7 +131,6 @@ performance.
 
 69
 
-Masruki, Ibrahim, Osman & Wahab
 4. Results and Discussions
 4.1 Comparative Performance between Selected Islamic Banksi and Conventional
 Bank
@@ -176,7 +171,6 @@ Islamic banks are more liquid than conventional banks.
 
 70
 
-Masruki, Ibrahim, Osman & Wahab
 The ratio of deposit run off for Islamic banks is 45.1% which is better compared to
 conventional banks (30.4%). This shows that Islamic banks have larger margin of safety
 to cover its short-term debts than conventional banks.
@@ -219,7 +213,6 @@ higher value of E/L for CB delineates that CB can provide better equity buffer a
 claim on liabilities compared with IB. The same pattern also portrayed for equity over
 71
 
-Masruki, Ibrahim, Osman & Wahab
 short term funding (ESTF). The CB documents 9% of ESTF while the IB illustrates 5.5%.
 This large disparity shows that the equity owner’s fund for CB is better protecting the
 depositors fund. So, we can say that the CB is better than IB when it comes to the
@@ -253,7 +246,6 @@ demonstrated by high value of ETA and ENF relative with Islamic banks. The high 
 and ENL provide better buffer for protecting the assets, minimizing the volume of credit
 72
 
-Masruki, Ibrahim, Osman & Wahab
 default and reduces the capital reliance over liabilities. From our view, in order to
 minimizing the credit risk withstands by Islamic banks, bank can control their credit
 creation. Besides that, the IB should boost level of equity to reduce the over reliance
@@ -285,7 +277,6 @@ that justifies the high NFIM for IB is that implementation of profit and loss sh
 principle in their operations. In equity investment financing contract (such mudharabah
 73
 
-Masruki, Ibrahim, Osman & Wahab
 and musyarakah), the islamic banks act as rabb-ul mal and during the sluggish
 performance of the project, they have to bear huge pecuniary losses. This condition
 makes Islamic banks to mandates higher profit rate which indirectly elevates NFIM and
@@ -301,7 +292,6 @@ but with cheaper funding.
 
 74
 
-Masruki, Ibrahim, Osman & Wahab
 Table 1: Financial Ratios (Islamic Banks vs. Conventional Banks)
 FINANCIAL RATIOS
 Assets Quality
@@ -466,7 +456,6 @@ So far, we have done descriptive and ratio analyses to meet the objective of our
 The cornerstone objective of our study is to compare two founders of Islamic bank’s
 75
 
-Masruki, Ibrahim, Osman & Wahab
 performance (Bank Islam and Bank Muamalat) and compared it with benchmark of
 conventional bank.
 From the findings on profitability and liquidity, Bank Muamalat is more profitable and
@@ -510,7 +499,6 @@ BIMB and Bank Muamalat. We found that BIMB is much more profit efficient than BM
 sense that they managed to earn higher profit rate (NFRA) and profit margin (NFIM)
 76
 
-Masruki, Ibrahim, Osman & Wahab
 relative to average assets. For rivals between Islamic banks and conventional banks, we
 found significant difference where Islamic banks become the champion with higher
 NFIM and NIRA. The higher profit margin might be benefits most to the liability
@@ -568,7 +556,6 @@ ii
 
 77
 
-Masruki, Ibrahim, Osman & Wahab
 References
 Alkassim, FA 2005, ‘The profitability of Islamic and conventional banking in the GCC
 countries: a comparative study’, Dubai.
@@ -626,7 +613,6 @@ vol. 14, no. 2, pp. 147-175.
 
 78
 
-Masruki, Ibrahim, Osman & Wahab
 Sufian, F 2007. ‘The efficiency of Islamic banking industry: a non-parametric analysis
 with non-discretionary input variable’. Islamic Economic Studies, vol. 14, no. 2,
 pp. 53-87.

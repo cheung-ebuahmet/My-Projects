@@ -1,7 +1,5 @@
 # This is Islam
 
-> 来源: This is Islam.pdf
-
 ‫‪这就是伊斯兰‬‬
 
 ‫‪3‬‬

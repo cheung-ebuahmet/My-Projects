@@ -1,8 +1,5 @@
 # An Islamic Perspective of Sex and Sexuality
 
-> 来源: An Islamic Perspective of Sex and Sexuality.pdf
-> 提取于: iSlam/伊斯兰法学（教法）/An Islamic Perspective of Sex and Sexuality.pdf
-
 IOSR Journal Of Humanities And Social Science (IOSR-JHSS)
 Volume 12, Issue 2 (May. - Jun. 2013), PP 20-28
 e-ISSN: 2279-0837, p-ISSN: 2279-0845.
@@ -128,11 +125,9 @@ The goals of marriage based on the teachings of the Glorious Qur‟an and the Ha
 summarized as follows:
 (a)
 Procreation of the human species, who may in turn worship Allah.
-www.iosrjournals.org
 
 21 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 (b)
 (c)
 
@@ -199,11 +194,9 @@ to steps leading toward it. A passionate look at an unknown woman is the first o
 following Hadith, prohibits thus:
 “Even to look at an unknown woman with passionate eye) is also a sin”. (Ahmed)
 Also the prophet in the following words prohibits other steps towards adultery:
-www.iosrjournals.org
 
 22 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 The adultery of leg is walking (with bad intention towards a woman who is not lawful for a
 man) and the adultery of the hands is touching and pitting (such a woman) and the adultery
 of eye is casting passionate glances at her (Muslim)
@@ -267,11 +260,9 @@ but not the second (Al-Sijistani, Abu Dawud Sulayman ibn al-As[ab. N.D. Hadith n
 tantamount to zina (adultery) of the eyes. The eyes also commit zina, and its zina is the (lustful) look (Ibid.
 Hadith no. 2152, pp. 246-247) At this juncture, let us consider the Biblical and Qur‟anic commandments which
 pertain to adultery. The injunction of the Old Testament as enumerated in the Ten Commandments is: “Thou
-www.iosrjournals.org
 
 23 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 shalt not commit adultery”. and that of the Glorious Qur‟an is: (The Bible – The Revised Standard Version.
 Exodus 20:14)
 “Do not come near to adultery. It is a shameful deed, an evil, opening the way to other evils” (Qur‟an,
@@ -331,11 +322,9 @@ cases in the United States are found in homosexual men which is a clear indicati
 intravenous illicit drugs, genital lesions and men that have not been circumcised are among other risk factors for
 AIDS (Farouq, 2003 and Farhad, 2011). The prepuce acts as a natural reservoir for secretions and germs and
 facilitates infection. Other important dimension of infection protection is preserving ecological balances. The
-www.iosrjournals.org
 
 24 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 destruction of nature and the disorder of relations between creatures bring to order forgotten diseases from the
 past and bring forward new unknown diseases. Just as there is a balance between creatures, there is a balance
 that exists between chemical elements and molecules. Disrupting the natural conformation of foods and
@@ -393,11 +382,9 @@ not use perfume and they do not go to their women?! Whereas I eat meat, use perf
 Therefore whosoever dislikes my tradition, then he is not from me. (Sahih al-Bukhari.) Ibn Abu 'Umar quotes
 that Sikkin an-Nakha'i had devoted himself to prayers and abstinence from women and delicious food. Then he
 wrote a letter to Imam Ja'far as-Sadiq seeking clarification about his actions. The Imam wrote, "As for what you
-www.iosrjournals.org
 
 25 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 have said about abstaining from women, you surely know how many women the Prophet had! As for food, the
 Prophet used to eat meat and honey." (Sahih al-Bukhari.) The Imam is obviously condemning the holier-thanthou attitude of his companion.
 Imam 'Ali narrates that some companions of the Prophet had vowed to abstain from sexual relations
@@ -456,11 +443,9 @@ Therefore, one should note that the objective in this verse is faithfulness to e
 affection and mercy which are the real commenting factor of marriage couple with all the necessary fear of
 Allah which serves as a great barrier against HIV/AIDS
 Islam also bans a woman to refuse her husband‟s request, he may be led to evil thoughts searching for
-www.iosrjournals.org
 
 26 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 unlawful satisfaction, or else, develops mental pressure. Such situations are detrimental both physically and
 mentally to marriage. In Islam, therefore insists on this issue as the Prophet is reported to have said
 If‟ a man calls his wife to sleep with him and She does not respond, causing him
@@ -520,11 +505,9 @@ does not treat it as a distasteful, filthy or heinous act of man. It also, consi
 also as an act, which opens the gate for many other shameful acts, which destroys the very basis of the family,
 leads to quarrels, murders, ruins reputation/ properties and also spreads numerous diseases, both physical and
 spiritual. It is recommended that, Muslim should marry as early as they are able. Muslims should not fear
-www.iosrjournals.org
 
 27 | Page
 
-An Islamic Perspective Of Sex And Sexuality: A Lesson For Contemporary Muslim
 poverty nor should they apprehend increase of family members as a result of marriage, and thus, because of that,
 stay away from marriage. Also, in Islam modesty is part of the faith and it revealed some of the Islamic
 guidelines which could assist Muslims to uphold sexual morality such as: early marriage, lowering of the gaze
@@ -603,6 +586,5 @@ Sulaiman, K.O. (2006): Islamic Position towards the HIV/AIDS prevention. Nationa
 Religion, Education, Languages and General- Studies, Pp, 145-148
 Yusuf Al-Qardawi. (1998); The Lawful and the Prohibited In Islam,. Lagos. A-Tawheed Publishing, Co, P.199
 
-www.iosrjournals.org
 
 28 | Page

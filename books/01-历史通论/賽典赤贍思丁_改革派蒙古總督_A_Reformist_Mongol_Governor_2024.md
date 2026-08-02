@@ -1,7 +1,5 @@
 # 賽典赤贍思丁_改革派蒙古總督_A_Reformist_Mongol_Governor_2024
 
-> 来源: 賽典赤贍思丁_改革派蒙古總督_A_Reformist_Mongol_Governor_2024.pdf
-
 A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari
 (607-678 / 1211-1279)1
 Çin’de Reformist Bir Moğol Valisi: Seyyid Ecel Şemseddin Ömer
@@ -114,7 +112,6 @@ that one of these statesmen is Sayyid Ajall Shams al-Din Omar, who, by serving a
 
 32
 
-Journal of Universal History Studies (JUHIS) • 7(1) • June • 2024 • pp. 30-42
 
 Introduction
 The founder of the Mongols, Genghis Khan, captured Bukhara on 4 Zilhicce 616/10 February 1220
@@ -156,7 +153,6 @@ hardships (Ceylan, 2016, p. 43).
 
 33
 
-A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari (607-678 / 1211-1279)
 
 Derya COŞKUN
 
@@ -202,7 +198,6 @@ expeditions (Saunders, 1359, p. 242). Throughout his time serving the Mongols, S
 referred to as Saidianchi and could no longer use his own name (Xu, 2008, p. 3564). While being with the
 34
 
-Journal of Universal History Studies (JUHIS) • 7(1) • June • 2024 • pp. 30-42
 
 Mongols, Shams al-Din Omar had the opportunity to visit many countries and even traveled to China (Lane,
 2011, p. 2).
@@ -248,7 +243,6 @@ title given to individuals dealing with civil affairs. For detailed information,
 
 35
 
-A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari (607-678 / 1211-1279)
 
 Derya COŞKUN
 
@@ -300,7 +294,6 @@ For further information on the subject, see: (Armijo, 1997; For literature in Ch
 
 36
 
-Journal of Universal History Studies (JUHIS) • 7(1) • June • 2024 • pp. 30-42
 
 rebellion, the reckless attacks on the town by some commanders led to the punishment of these soldiers. Upon
 hearing about his benevolent treatment, the rebels decided to surrender. Thus, as a success of goodwill and
@@ -343,7 +336,6 @@ the acquired territories, put an end to the arbitrary practices of the soldiers 
 monopoly. Giving importance and support to education, he made significant strides in employment by opening
 37
 
-A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari (607-678 / 1211-1279)
 
 Derya COŞKUN
 
@@ -366,7 +358,6 @@ Yuan Dynasty.
 
 38
 
-Journal of Universal History Studies (JUHIS) • 7(1) • June • 2024 • pp. 30-42
 
 References
 [1] Âkâcerî, Seyyid Hâşim–Rezevî, Seyyid Ebulfazl (1382 hş.), “İlel Nâkârkerdî Pûl-i Kâgızî Der İktisâd
@@ -410,7 +401,6 @@ Zagazig University. (An Unpublished Master Thesis)
 İllustrated History, Continuum, Bloomsbury Publishing.
 39
 
-A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari (607-678 / 1211-1279)
 
 Derya COŞKUN
 
@@ -456,7 +446,6 @@ Technology, Part 3, Civil Engineering and Nautics, Cambridge University Press, C
 
 40
 
-Journal of Universal History Studies (JUHIS) • 7(1) • June • 2024 • pp. 30-42
 
 [38] Qiu Shusen (邱 树 森) (1996), Zhongguo Huizushi (中 国 回 族 史) Yinchuan: Ningxia Renmin
 Chubanshe (银川：宁夏人民出版社). (238-242)
@@ -495,7 +484,6 @@ University. (Unpublished Ph. D. Diss)
 
 41
 
-A Reformist Mongol Governor in China: Sayyid Ajall Shams al-Din Omar Bukhari (607-678 / 1211-1279)
 
 Derya COŞKUN
 

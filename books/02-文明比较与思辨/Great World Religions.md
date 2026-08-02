@@ -1,7 +1,5 @@
 # Great World Religions
 
-> 来源: Great World Religions.pdf
-
 Great World Religions:
 Islam
 Professor John L. Esposito
@@ -71,7 +69,6 @@ Bibliography....................................................................
 
 ii
 
-©2003 The Teaching Company Limited Partnership
 
 Great World Religions: Islam
 Scope:
@@ -116,7 +113,6 @@ dealings with other religions and communities, as well as the conduct of war and
 maintenance of peace.
 Lecture Five traces the stunning growth of the Muslim community, which within
 100 years of Muhammad’s death, became a vast, dynamic, and creative Islamic
-©2003 The Teaching Company Limited Partnership
 
 1
 
@@ -165,7 +161,6 @@ Islam and the West and Islam in the West in the 21st century.
 
 2
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture One
 Islam Yesterday, Today, and Tomorrow
@@ -211,7 +206,6 @@ include many peoples, races, languages, ethnic groups, tribes, and
 cultures.
 1. Only 20 percent of the world’s Muslims are Arab.
 2. The majority of Muslims live in Asian and African societies.
-©2003 The Teaching Company Limited Partnership
 
 3
 
@@ -262,7 +256,6 @@ B. In contrast to a separation of church and state, for many Muslims,
 religion and society, faith and power, are closely intertwined.
 4
 
-©2003 The Teaching Company Limited Partnership
 
 1.
 
@@ -309,7 +302,6 @@ Crusades, Inquisition, European colonialism, and American neocolonialism.
 B. Such perceptions lead both sides to foresee an impending clash of
 civilizations.
 
-©2003 The Teaching Company Limited Partnership
 
 5
 
@@ -326,7 +318,6 @@ Questions to Consider:
 
 6
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Two
 The Five Pillars of Islam
@@ -372,7 +363,6 @@ revelation, the Quran.
 2. Like Jesus Christ, Muhammad serves as the preeminent role model
 through his life example. The believer’s effort to follow
 
-©2003 The Teaching Company Limited Partnership
 
 7
 
@@ -420,7 +410,6 @@ B. Many go to the mosque for the evening prayer, followed by special
 prayers recited only during Ramadan.
 8
 
-©2003 The Teaching Company Limited Partnership
 
 C. Near the end of Ramadan (the 27th day) Muslims commemorate the
 “Night of Power” when Muhammad first received God’s revelation.
@@ -453,15 +442,12 @@ throughout history.
 D. As we shall see, the Five Pillars and the concept of jihad became
 integral parts of Islamic law and have remained central throughout
 Islamic history to what it means to be a Muslim.
-Supplementary Reading:
 Vincent J. Cornell, “The Fruit of the Tree,” The Oxford History of Islam, chp. 2.
 John L. Esposito, Islam: The Straight Path, chapter 3.
 Michael Wolfe, Hadj: An American’s Pilgrimage to Mecca.
-Questions to Consider:
 1. How do the Five Pillars reflect Islam’s emphasis on practice and action?
 2. What are the multiple meanings of jihad?
 
-©2003 The Teaching Company Limited Partnership
 
 9
 
@@ -511,7 +497,6 @@ A. Pre-Islamic Arabian religion was polytheistic, reflecting the tribal
 nature and social structure of society.
 10
 
-©2003 The Teaching Company Limited Partnership
 
 1.
 
@@ -557,7 +542,6 @@ communicated by an intermediary, the Angel Gabriel.
 years, until his death in 632 C.E. These would later be collected and
 compiled into the Quran.
 
-©2003 The Teaching Company Limited Partnership
 
 11
 
@@ -604,7 +588,6 @@ A. The Constitution or Charter of Medina established by Muhammad,
 which sets out the rights and duties of all citizens and the relationship
 12
 
-©2003 The Teaching Company Limited Partnership
 
 B.
 
@@ -648,14 +631,11 @@ After establishing his leadership in Medina, Muhammad and his
 followers subdued Mecca and consolidated Muslim rule over the rest of
 Arabia through a combination of diplomatic and military means.
 
-Supplementary Reading:
 Karen Armstrong, Muhammad.
 John L. Esposito, Islam: The Straight Path, chapter 1.
-Questions to Consider:
 1. In what ways is Muhammad the model for Muslim life?
 2. To what extent was Muhammad a religious reformer?
 
-©2003 The Teaching Company Limited Partnership
 
 13
 
@@ -705,7 +685,6 @@ Quranic passages are central to Muslim prayer five times each day.
 3. The Quran was central to the development of Arabic linguistics,
 grammar, vocabulary, and syntax.
 
-©2003 The Teaching Company Limited Partnership
 
 4.
 
@@ -752,7 +731,6 @@ C. The obligation of Muslims to be God’s servants and to spread God’s
 message is both an individual and a community obligation.
 D. All believers are equal before God in Islam.
 
-©2003 The Teaching Company Limited Partnership
 
 15
 
@@ -800,7 +778,6 @@ intolerance of Islamic groups who believe that they alone possess the
 
 16
 
-©2003 The Teaching Company Limited Partnership
 
 “true” interpretation of Islam and attempt to impose it on other
 Muslims and non-Muslims alike.
@@ -846,7 +823,6 @@ and political contexts in which they were revealed. It is not surprising
 that the Quran, like the Hebrew scriptures or Old Testament, has verses
 that address fighting and the conduct of war.
 
-©2003 The Teaching Company Limited Partnership
 
 17
 
@@ -866,10 +842,8 @@ believers in every age look for inspiration and guidance. As we shall
 see throughout this course, because it is interpreted by human beings in
 diverse historical and social contexts, the Word of God has yielded
 multiple and diverse meanings, doctrines, and practices.
-Supplementary Reading:
 Akbar Ahmed, Islam Today, chapter 2.
 John Alden Williams, The Word of Islam, chapter 1.
-Questions to Consider:
 1. What Quranic beliefs and values are similar to those found in other
 religions, notably Judaism and Christianity?
 2. Why do Muslims believe that their faith requires action in the public
@@ -877,7 +851,6 @@ sphere?
 
 18
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Five
 The Muslim CommunityFaith and Politics
@@ -923,7 +896,6 @@ community.
 B. A minority of the Muslim community, the Shiis, or “Party of Ali,”
 opposed the selection of Abu Bakr as caliph, believing that succession
 should be hereditary within the Prophet’s family and that Ali,
-©2003 The Teaching Company Limited Partnership
 
 19
 
@@ -974,7 +946,6 @@ status and pay a poll tax, or (3) face battle or the sword, if they
 rejected the first two options.
 20
 
-©2003 The Teaching Company Limited Partnership
 
 IV. The period of Muhammad and the Rightly Guided Caliphs (632–661 C.E.) is
 regarded as the normative period of Sunni Islam and serves as the idealized
@@ -1017,7 +988,6 @@ illegitimate usurpation of the caliphate.
 C. The Umayyad caliphate came to an end in 750 C.E., after a revolt led by
 an Abbasid slave that led to the foundation of the Abbasid caliphate.
 
-©2003 The Teaching Company Limited Partnership
 
 21
 
@@ -1064,7 +1034,6 @@ Dynasty and the Crusades.
 
 22
 
-©2003 The Teaching Company Limited Partnership
 
 IX. The Crusades (1095–1453) established a paradigm of confrontation
 between Islam and Christianity and Islam and the West, the legacy of which
@@ -1097,7 +1066,6 @@ B. By the turn of the 18th century, the power and prosperity of the
 sultanates were in serious decline. This decline coincided with the
 Industrial Revolution and modernization in the West, leading to clashes
 in the era of European colonialism.
-Supplementary Reading:
 Akbar Ahmed, Islam Today, chapter 5.
 Jonathan Bloom and Sheila Blair, Islam: A Thousand Years of Faith and Power,
 chapters 5 and 8.
@@ -1105,8 +1073,6 @@ Fred M. Donner, “Muhammad and the Caliphate” and “Science, Medicine, and
 Technology,” The Oxford History of Islam, chapters 1 and 4.
 John L. Esposito, Islam: The Straight Path, chapter 2.
 
-Questions to Consider:
-©2003 The Teaching Company Limited Partnership
 
 23
 
@@ -1119,7 +1085,6 @@ How did Islam influence the development of Muslim empires, from
 political institutions to social structures?
 What were some of the major achievements of Islamic civilization?
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Six
 Paths to GodIslamic Law and Mysticism
@@ -1165,7 +1130,6 @@ orthodoxy (“correct belief”), Islam emphasizes orthopraxy
 D. Though they overlap, the distinction between Shariah and fiqh is
 critical to understanding the meaning and dynamic nature of Islamic
 law and its possibilities for reinterpretation and reform today.
-©2003 The Teaching Company Limited Partnership
 
 25
 
@@ -1218,7 +1182,6 @@ or interpretations (fatwas) rendered by legal experts (muftis) who
 advise judges and litigants.
 26
 
-©2003 The Teaching Company Limited Partnership
 
 3.
 4.
@@ -1269,7 +1232,6 @@ networks of lodges or monasteries that transformed Sufism into a mass
 movement.
 1. Sufi leaders enjoyed great influence, both spiritual and material.
 
-©2003 The Teaching Company Limited Partnership
 
 27
 
@@ -1285,18 +1247,15 @@ music and dance to induce states of mystic communication.
 III. Today, Sufism remains a strong spiritual presence and force in Muslim
 societies, in both private and public life, and enjoys a wide following in
 Europe and America, attracting many converts to Islam.
-Supplementary Reading:
 John L. Esposito, Islam: The Straight Path, chapters 2–3.
 Mohammad Hashim Kamali, “Law and Society,” The Oxford History of Islam,
 chapter 3.
 Martin Lings, What Is Sufism?
-Questions to Consider:
 1. What are the sources of Islamic law?
 2. What is Sufism and what role did it play in the spread of Islam?
 
 28
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Seven
 Islamic RevivalismRenewal and Reform
@@ -1338,7 +1297,6 @@ the Quran and Sunna, and both call for a return to these sources.
 throughout Islamic history have claimed the right to function as
 mujtahids in order to purify and revitalize their societies.
 
-©2003 The Teaching Company Limited Partnership
 
 29
 
@@ -1388,7 +1346,6 @@ claimed to be a divinely appointed representative of God. He
 justified holy war against other Muslims by pronouncing them
 30
 
-©2003 The Teaching Company Limited Partnership
 
 blasphemers. His movement reformed Sufism; alcohol,
 prostitution, gambling, and music were outlawed as foreign
@@ -1432,7 +1389,6 @@ concepts, such as democracy and parliamentary government.
 2. He emphasized the ideal of an Islamic community that transcended
 ethnic, racial, and national ties.
 
-©2003 The Teaching Company Limited Partnership
 
 31
 
@@ -1485,7 +1441,6 @@ neo-revivalist Islamic organizations that linked religion to activism.
 1. Both movements emerged in the shadow of British colonialism in
 societies where anticolonial national independence movements
 were active.
-©2003 The Teaching Company Limited Partnership
 
 2.
 
@@ -1525,14 +1480,11 @@ justice, political and social activism, were critical components of
 the neo-revivalist message. They did not simply propagate religion
 but called on Muslims to become better and more involved in
 society.
-Supplementary Reading:
 John L. Esposito, Islam: The Straight Path, chapter 4.
 ———, The Islamic Threat: Myth or Reality?, chapter 3.
 John O. Voll, “Foundations for Renewal and Reform,” The Oxford History of
 Islam, chapter 12.
-Questions to Consider:
 1. What were the causes for and responses of revival/reform movements?
-©2003 The Teaching Company Limited Partnership
 
 33
 
@@ -1545,7 +1497,6 @@ what new ideas and methods have they implemented?
 
 34
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Eight
 The Contemporary Resurgence of Islam
@@ -1592,7 +1543,6 @@ creations.
 2. Moreover, European education, culture, and values permeated the
 urban areas and strongly influenced the elites in most states and
 societies.
-©2003 The Teaching Company Limited Partnership
 
 35
 
@@ -1645,7 +1595,6 @@ economies, high unemployment, and malapportionment of wealth)
 
 36
 
-©2003 The Teaching Company Limited Partnership
 
 5.
 
@@ -1692,7 +1641,6 @@ Muhammad, specifically by reintroducing Islamic rather than Western
 laws.
 D. Modern development must be guided by Islamic values rather than the
 Westernization and secularization of society.
-©2003 The Teaching Company Limited Partnership
 
 37
 
@@ -1743,7 +1691,6 @@ professional organizations (doctors, lawyers, engineers).
 
 38
 
-©2003 The Teaching Company Limited Partnership
 
 3.
 
@@ -1755,17 +1702,14 @@ acts, such as the bombing of New York’s World Trade Center in 1993,
 of the American barracks in Saudi Arabia in 1995, and of American
 embassies in Africa in 1998, leading some governments and analysts to
 identify “Islamic fundamentalism” as a major threat to global stability.
-Supplementary Reading:
 John L. Esposito, “Contemporary Islam: Reformation or Revolution?,” The
 Oxford History of Islam.
 ———, Unholy War: Terror in the Name of Islam, chapter 4.
 John O. Voll, Islam: Continuity and Change in the Muslim World, chapters 6–7.
-Questions to Consider:
 1. What were the major catalysts for contemporary Islamic revivalism?
 2. Compare and contrast the worldviews and strategies of mainstream and
 extremists movements.
 
-©2003 The Teaching Company Limited Partnership
 
 39
 
@@ -1816,7 +1760,6 @@ reforms from above through legislation.
 1. In more recent decades, the debate over the Shariah has become a
 contentious issue. Does Islamization of law mean the wholesale
 reintroduction of classical law as formulated in the early Islamic
-©2003 The Teaching Company Limited Partnership
 
 centuries? Or does it mean the development of new laws derived
 from the Quran and Sunnah of the Prophet and the inclusion of
@@ -1861,7 +1804,6 @@ from Islamic social and political activism working within society
 (creating schools and hospitals, providing social services, participating
 in elections) in Egypt, Turkey, and Jordan to violent revolutions that try
 
-©2003 The Teaching Company Limited Partnership
 
 41
 
@@ -1919,7 +1861,6 @@ debate over their function in society.
 alleviated the situation of Muslim women. Women have often
 become a “quick fix” for those who wish to Islamize society. This
 
-©2003 The Teaching Company Limited Partnership
 
 has often meant dismissing modern reforms or paradigms as
 simply Westernization.
@@ -1951,16 +1892,13 @@ pluralistic world.
 minds who can interpret the old in terms of the new as regards
 substance and turn the new into the service of the old as regards
 ideals”(Rahman, p. 139).
-Supplementary Reading:
 Akbar Ahmed, Islam Today, chapter 4.
 John L. Esposito, Unholy War: Terror in the Name of Islam, chapter 4.
-Questions to Consider:
 1. How have Muslims answered the question “Who has the authority to
 interpret Islam and what is the best method for reform?
 2. What are some of the major debates and areas of reform in Muslim societies
 today?
 
-©2003 The Teaching Company Limited Partnership
 
 43
 
@@ -2011,7 +1949,6 @@ respect as individuals, rather than sex objects.
 3. Islamic dress is also used as sign of protest and liberation. It has
 developed political overtones, becoming a source of national pride
 
-©2003 The Teaching Company Limited Partnership
 
 and resistance to Western cultural and political dominance and to
 authoritarian regimes.
@@ -2056,7 +1993,6 @@ wealth [for the support of women].”
 scholars have noted that the “priority” referred to in this verse is
 based on men’s socioeconomic responsibilities for women. It does
 not say women are incapable of managing their own affairs.
-©2003 The Teaching Company Limited Partnership
 
 45
 
@@ -2109,7 +2045,6 @@ the modern age, jurists relied primarily on prophetic traditions, as
 well as the belief that women are a source of temptation for men.
 46
 
-©2003 The Teaching Company Limited Partnership
 
 3.
 
@@ -2145,17 +2080,14 @@ Muslim women in many societies, from Egypt and Syria to
 Malaysia and Indonesia, have greater access to education and
 employment and are forging new paths for themselves and the next
 generation.
-Supplementary Reading:
 Akbar Ahmed, Women and Gender in Islam.
 Yvonne Y. Haddad and John L. Esposito, Islam, Gender and Social Change.
 Amina Wadud, Quran and Women.
-Questions to Consider:
 1. What are the major obstacles that have contributed to the low status of
 women in many societies and that continue to impede progress today?
 2. What are some of the major issues that women have confronted in
 redefining and reforming their status and roles?
 
-©2003 The Teaching Company Limited Partnership
 
 47
 
@@ -2204,7 +2136,6 @@ study in the United States, and many well-educated professionals and
 
 48
 
-©2003 The Teaching Company Limited Partnership
 
 intellectuals have come from South and Southeast Asia, as well as from the
 Middle East, for political and economic reasons.
@@ -2249,7 +2180,6 @@ VI. The problems the growing Muslim community faces in the United States
 start with the fact that only a few decades ago, Muslims were mostly
 invisible in the West.
 
-©2003 The Teaching Company Limited Partnership
 
 49
 
@@ -2298,7 +2228,6 @@ VII. Estimates of the number of Muslims living in Western Europe range from
 12 to 15 million. The ethnic diversity of Muslims in Europe represents most
 50
 
-©2003 The Teaching Company Limited Partnership
 
 of the major ethnic groups of the Muslim world. Most numerous are Turks,
 Algerians, Moroccans, and Pakistanis. Because of this great diversity and
@@ -2343,7 +2272,6 @@ right to wear a headscarf (hijab). Some request segregated athletics
 classes and are concerned about coeducation, sex education,
 homosexuality, and secularism in the schools.
 
-©2003 The Teaching Company Limited Partnership
 
 51
 
@@ -2366,14 +2294,12 @@ B. All are challenged to move beyond stereotypes and established patterns
 of behavior to a more inclusive and pluralistic vision informed by a
 multidimensional dialogue, to build a future based on mutual
 understanding and respect.
-Supplementary Reading:
 Yvonne Y. Haddad, “The Globalization of Islam,” The Oxford History of Islam,
 chapter 14.
 Yvonne Y. Haddad and John L. Esposito, Muslims on the Americanization
 Path?
 Jane Smith, Islam in America.
 Shireen Hunter, Islam: Europe’s Second Religion.
-Questions to Consider:
 1. What are some of the challenges facing Muslims as religious minorities in
 the West?
 2. Why and how did the Nation of Islam develop and how did it become
@@ -2381,7 +2307,6 @@ integrated with the mainstream Islamic community?
 
 52
 
-©2003 The Teaching Company Limited Partnership
 
 Lecture Twelve
 The Future of Islam
@@ -2429,7 +2354,6 @@ C. In the latter half of the 20th century, an Islamic resurgence, as we have
 seen, has challenged all expectations and predictions. However, this
 revitalization of Islam in Muslim life and society, which sometimes
 
-©2003 The Teaching Company Limited Partnership
 
 53
 
@@ -2477,7 +2401,6 @@ though used by rulers, was in fact, separate from the state.
 
 54
 
-©2003 The Teaching Company Limited Partnership
 
 1.
 
@@ -2527,7 +2450,6 @@ responses.
 standard bearers of Islam. Increasingly, reformers are lay men and
 women with modern education and Islamic orientation, who assert
 their competence to address issues as diverse as bioethics and
-©2003 The Teaching Company Limited Partnership
 
 55
 
@@ -2575,7 +2497,6 @@ legitimate their acts of violence and terror.
 
 56
 
-©2003 The Teaching Company Limited Partnership
 
 5.
 
@@ -2625,7 +2546,6 @@ Muslims who believe it is incompatible with democracy, from the
 conservative monarchy of King Fahd of Saudi Arabia to radical
 extremist organizations.
 
-©2003 The Teaching Company Limited Partnership
 
 57
 
@@ -2677,7 +2597,6 @@ tradition and the realities of modern life.
 
 58
 
-©2003 The Teaching Company Limited Partnership
 
 VII. A primary area of substantial change is the status of Muslim minorities.
 There are more Muslim minority communities globally now than at any
@@ -2723,7 +2642,6 @@ realities of contemporary life.
 C. The struggle for reform will be religious, intellectual, spiritual, and
 moral. But it must be a more rapid and widespread program of Islamic
 
-©2003 The Teaching Company Limited Partnership
 
 59
 
@@ -2734,21 +2652,18 @@ their belief in the one, true God; the Quran; and the example of the
 Prophet Muhammad as they too seek to follow “the straight path, the
 way of God, to whom belongs all that is in the heavens and all that is in
 the earth” (42:52–53).
-Supplementary Reading:
 Akbar Ahmed, Islam Today.
 John L. Esposito, Islam: The Straight Path, chapters 5–6.
 ———, “Contemporary Islam: Reformation or Revolution?” The Oxford
 History of Islam, chapter 15.
 Yvonne Y. Haddad and John L. Esposito, Muslims on the Americanization
 Path?
-Questions to Consider:
 1. What are the differing ways in which Muslims have responded to modern
 reform?
 2. Identify and discuss two major issues faced by contemporary Muslims.
 
 60
 
-©2003 The Teaching Company Limited Partnership
 
 Timeline
 c. 570 .............................................. Birth of Muhammad
@@ -2785,7 +2700,6 @@ establish Latin Kingdom
 12th century ..................................... Rise of Sufi orders
 1187 ................................................ Saladin recovers Jerusalem for Muslims
 1281–1924 ...................................... Ottoman Empire
-©2003 The Teaching Company Limited Partnership
 
 61
 
@@ -2828,7 +2742,6 @@ in the public sphere
 
 62
 
-©2003 The Teaching Company Limited Partnership
 
 1947 ................................................ Foundation of Pakistan as homeland for
 Muslims
@@ -2869,7 +2782,6 @@ society, and human rights) to Iranian society
 2000 ................................................ Warith Deen Muhammad, head of American
 Muslim Mission, offers prayer at opening of
 U.S. Congress
-©2003 The Teaching Company Limited Partnership
 
 63
 
@@ -2881,7 +2793,6 @@ Pentagon by terrorists in the name of Islam
 
 64
 
-©2003 The Teaching Company Limited Partnership
 
 Glossary
 Abrahamic tradition: Belief in Abraham as the first monotheist and common
@@ -2917,7 +2828,6 @@ minaret: Tower of a mosque from which the call to prayer is issued.
 mosque: Muslim house of worship.
 muezzin: Person issuing the call to prayer.
 
-©2003 The Teaching Company Limited Partnership
 
 65
 
@@ -2948,7 +2858,6 @@ income) given for the poor.
 
 66
 
-©2003 The Teaching Company Limited Partnership
 
 Biographical Notes
 Ali ibn Abu Talib (r. 656–660): Cousin and son-in-law of Muhammad, husband
@@ -2992,7 +2901,6 @@ Fatimah: The daughter and only child of Muhammad to survive into adulthood,
 Fatimah was the wife of Ali and mother of Hasan and Husayn. Shiis trace the
 lineage of the imams through her. Popularly believed to be the perfect example
 of Muslim womanhood and motherhood. Shiis further believe that she was
-©2003 The Teaching Company Limited Partnership
 
 67
 
@@ -3041,7 +2949,6 @@ major supporter and encourager.
 
 68
 
-©2003 The Teaching Company Limited Partnership
 
 Mawlana Mawdudi (1903–1979): Ideologue and founder of Pakistani Jamaat-i
 Islami. A revivalist who called for purification and restoration of Islam to
@@ -3077,7 +2984,6 @@ under his reign. Uthman was believed to be personally pious but lacked the
 character to prevent his relatives from amassing political power. Discontent with
 his reign ended in his murder by opponents.
 
-©2003 The Teaching Company Limited Partnership
 
 69
 
@@ -3125,7 +3031,6 @@ with the present, then connects current realities to past history and tradition.
 
 70
 
-©2003 The Teaching Company Limited Partnership
 
 Yvonne Y. Haddad and John L. Esposito, Islam, Gender and Social Change
 (New York: Oxford University Press, 1998). A collection of case studies from
@@ -3168,6 +3073,5 @@ encounters.
 Web site:
 http://www.islam-online.net/english/index.shtml
 
-©2003 The Teaching Company Limited Partnership
 
 71

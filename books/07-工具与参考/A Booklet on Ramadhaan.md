@@ -1,7 +1,5 @@
 # A Booklet on Ramadhaan
 
-> 来源: A Booklet on Ramadhaan.pdf
-
 A Booklet on
 Ramadhaan
 
@@ -33,7 +31,6 @@ based on five (pillars): Testifying that there is none worthy of
 worship except Allaah and that Muhammad is His Slave and
 Messenger; performing prayer; the payment of Zakaah (obligatory
 
-English.islamweb.net/emainpage
 
 Page 2
 
@@ -59,7 +56,6 @@ observe fasting?'' So they will stand up and proceed towards it.
 When the last of them will have entered, the gate will be closed and
 then no one will enter through that gate.'' [Muslim]
 
-English.islamweb.net/emainpage
 
 Page 3
 
@@ -89,7 +85,6 @@ Prophet, sallallaahu „alayhi wa sallam, said:
 "Allaah the Exalted Said: `Every deed the son of Aadam does is for
 him, except the fast, which is (exclusively) for Me, and I will reward
 
-English.islamweb.net/emainpage
 
 Page 4
 
@@ -115,7 +110,6 @@ tidings of the advent of Ramadhaan to his Companions. Abu
 Hurayrah, may Allaah be pleased with him, said, “The Prophet,
 sallallaahu „alayhi wa sallam, used to tell his Companions the good
 
-English.islamweb.net/emainpage
 
 Page 5
 
@@ -139,7 +133,6 @@ the recitation of the Quran following the example of the Prophet,
 sallallaahu „alayhi wa sallam, who used to review the Quran with
 Jibreel, may Allaah exalt his mention, during this month.
 
-English.islamweb.net/emainpage
 
 Page 6
 
@@ -165,7 +158,6 @@ It is common knowledge that the actual preparation for Ramadhaan
 starts with making a purified and good intention – and there is no time
 like the present. Thus, if we reach the month of Ramadhaan by the
 
-English.islamweb.net/emainpage
 
 Page 7
 
@@ -178,7 +170,6 @@ We supplicate to Allaah The Almighty to guide us and to lengthen our
 lives until we reach this blessed month. We also ask Him to help us
 fast and perform the night prayer during it in the best manner possible.
 
-English.islamweb.net/emainpage
 
 Page 8
 
@@ -202,7 +193,6 @@ the obligation of fasting.
 illness or old age, as Allaah The Exalted Says (what means): {And
 upon those who are able [to fast, but with hardship] - a ransom [as
 
-English.islamweb.net/emainpage
 
 Page 9
 
@@ -227,7 +217,6 @@ sallallaahu „alayhi wa sallam, said: “There is no (valid) fast for the
 person who did not intend to fast from the night before.” [Abu
 Daawood and An-Nasaa‟i]
 
-English.islamweb.net/emainpage
 
 Page 10
 
@@ -248,7 +237,6 @@ associate [anything] with Allaah, your work would surely become
 worthless, and you would surely be among the losers} [Quran
 398:65]
 
-English.islamweb.net/emainpage
 
 Page 11
 
@@ -265,7 +253,6 @@ Prophet, sallallaahu „alayhi wa sallam, and we were ordered to make
 up for the [missed] fast [days], but we were [never] ordered to make
 up for the [missed] prayers.”
 
-English.islamweb.net/emainpage
 
 Page 12
 
@@ -291,7 +278,6 @@ woman breaks her fast only for fear that her baby may suffer harm,
 then she is required to make up for the missed fast days in addition to
 offering expiation for every missed day.
 
-English.islamweb.net/emainpage
 
 Page 13
 
@@ -315,7 +301,6 @@ overcome by vomiting is not to make up the day. Whoever vomits
 intentionally must make up the day." [Ahmad, Abu Daawood, At-Tirmithi
 and others]
 
-English.islamweb.net/emainpage
 
 Page 14
 
@@ -339,7 +324,6 @@ stimulation of the genital organs by hand or in any way such as
 foreplay with one’s wife. The scholars unanimously agree that
 masturbation nullifies the fast if it leads to ejaculation.
 
-English.islamweb.net/emainpage
 
 Page 15
 
@@ -353,7 +337,6 @@ judged and considered according to the intentions…” [Al-Bukhaari
 and Muslim]
 ___________________
 
-English.islamweb.net/emainpage
 
 Page 16
 
@@ -373,9 +356,7 @@ fast. Similarly, if one swallows or drinks anything that is not
 considered food or drink, his fast will be nullified because he does
 something similar to eating or drinking.
 Allaah knows best.
-___________________
 
-English.islamweb.net/emainpage
 
 Page 17
 
@@ -400,14 +381,10 @@ stopped doing that because of weakness.” [This tradition was narrated
 as Mawsool by Abdurrazaaq on the authority of Ma‘mar from AzZuhri, from Saalim from his father. This was mentioned by Al-Haafith
 in Al-Fat-h.]
 
-English.islamweb.net/emainpage
 
 Page 18
 
-Allaah knows best.
-___________________
 
-English.islamweb.net/emainpage
 
 Page 19
 
@@ -430,7 +407,6 @@ ripe dates; otherwise, one should break his fast with water. Anas, may
 Allaah be pleased with him, reported that the Prophet, sallallaahu
 „alayhi wa sallam, “[…] used to break his fast with fresh dates before
 
-English.islamweb.net/emainpage
 
 Page 20
 
@@ -451,9 +427,7 @@ great act of Sunnah. The Prophet, sallallaahu „alayhi wa sallam, said:
 
 ‎Ramadhaan out of faith and with the hope of reward, all his
 ‎previous sins will be ‎forgiven.” [Al-Bukhaari and Muslim]
-___________________
 
-English.islamweb.net/emainpage
 
 Page 21
 
@@ -479,7 +453,6 @@ They should also keep away from the acts and speech that cause the
 Anger of Allaah The Almighty, especially backbiting, talebearing,
 watching the prohibited pictures of women, films, and TV serials that
 
-English.islamweb.net/emainpage
 
 Page 22
 
@@ -495,10 +468,7 @@ Jaabir ibn „Abdullaah, may Allaah be pleased with him, said,
 “Whenever you fast, your ears, eyes, tongue should fast too. Avoid
 harming your neighbors and maintain staidness and dignity while you
 are fasting. Do not make the day of fasting and not fasting alike.”
-Allaah knows best.
-___________________
 
-English.islamweb.net/emainpage
 
 Page 23
 
@@ -527,7 +497,6 @@ The word Taraaweeh was extracted from the word Tarweehah (ie.e
 rest), because people used to lengthen the prayer very much, and then
 get some rest (Tarweehah) every four Rak„ahs.
 
-English.islamweb.net/emainpage
 
 Page 24
 
@@ -542,10 +511,7 @@ night prayer] with the Imaam until he finishes, it will be counted as
 if he prayed the whole night.” [At-Tirmithi]
 Hence, the Muslim should pay special attention to performing the
 Taraaweeh prayer.
-Allaah knows best.
-___________________
 
-English.islamweb.net/emainpage
 
 Page 25
 
@@ -567,10 +533,8 @@ There is no harm if one eats inside the mosque whether in I„tikaaf or
 otherwise, because the Prophet, sallallaahu „alayhi wa sallam, used to
 send food to the people of As-Suffah, the poorest Companions, who
 used to live in the mosque, as they were too poor to own a house.
-Allaah knows best.
 _________________
 
-English.islamweb.net/emainpage
 
 Page 26
 
@@ -594,7 +558,6 @@ sallam, said: “Do those deeds which you can do easily, as Allaah will
 not get tired (of giving rewards) until you get bored and tired (of
 performing religious deeds)."
 
-English.islamweb.net/emainpage
 
 Page 27
 
@@ -617,7 +580,6 @@ Allaah The Almighty are, “Subhaan-Allaahi wa bihamdihi,
 Subhaan-Allaahil-„Atheem [Glory be to Allaah and His is the
 praise, (and) Allaah, the Greatest is free from imperfection)'.”
 
-English.islamweb.net/emainpage
 
 Page 28
 
@@ -625,10 +587,8 @@ Page 28
 one's gaze, because refraining from committing sins is better than
 going through the rigours of repentance.
 May Allaah The Almighty accept our fast and night prayer.
-Allaah knows best.
 ______________
 
-English.islamweb.net/emainpage
 
 Page 29
 
@@ -654,7 +614,6 @@ that the body needs in order to perform the biological functions
 efficiently. These studies also show that fasting is very important for
 the body just like eating, breathing, movement, and sleep.
 
-English.islamweb.net/emainpage
 
 Page 30
 
@@ -679,7 +638,6 @@ overweight and high blood pressure.
 represents a good chance for the pancreas to get some rest. It is known
 that the pancreas produces insulin, which transforms the sugar into
 
-English.islamweb.net/emainpage
 
 Page 31
 
@@ -700,7 +658,6 @@ Undoubtedly, there are numerous other unknown benefits that will be
 known in the future.‎
 ______________
 
-English.islamweb.net/emainpage
 
 Page 32
 
@@ -720,7 +677,6 @@ food all at once harms the digestive system after the rest it has taken
 during the fast.
 ______________
 
-English.islamweb.net/emainpage
 
 Page 33
 
@@ -744,7 +700,6 @@ there are some tips that should be considered in the Suhoor meal:
  It should be low in fats
  One should refrain from sleeping immediately after having Suhoor
 
-English.islamweb.net/emainpage
 
 Page 34
 
@@ -763,9 +718,7 @@ We recommend that you have Suhoor as late as possible, and drink
 plenty of water and eat dates besides salads, milk, fresh foods, fruits,
 vegetables. You should also avoid fats, salts, spices, peppers and
 preservatives.
-___________________
 
-English.islamweb.net/emainpage
 
 Page 35
 
@@ -791,7 +744,6 @@ has committed countless sins. Listen to Him as He invites you Saying
 (what means): {"O My slaves who have transgressed against
 themselves [by sinning], do not despair of the Mercy of Allaah.
 
-English.islamweb.net/emainpage
 
 Page 36
 
@@ -816,7 +768,6 @@ good deeds added to your record. What great Divine bounty and
 generosity! Allaah The Almighty Says (what means): {Except for
 those who repent, believe and do righteous work. For them Allaah
 
-English.islamweb.net/emainpage
 
 Page 37
 
@@ -841,7 +792,6 @@ Befriend the people whose faces are bright due to ablution,
 accompany whoever guides you to Allaah The Almighty and keep
 away from the liars, sinners, debauched and dishonest people.
 
-English.islamweb.net/emainpage
 
 Page 38
 
@@ -865,7 +815,6 @@ We specially recommend you to observe the obligatory prayers as
 much as you can in the mosques, as Allaah The Almighty Says (what
 means):
 
-English.islamweb.net/emainpage
 
 Page 39
 
@@ -892,7 +841,6 @@ supplication.”
 We ask Allaah The Almighty to guide you, open your heart, pardon
 you, forgive your sins, purify your heart and protect your chastity.
 
-English.islamweb.net/emainpage
 
 Page 40
 
@@ -912,7 +860,6 @@ blessed month as much as you can, hoping that He answers your
 supplications that would lead to prosperity in this world and the
 Hereafter.
 
-English.islamweb.net/emainpage
 
 Page 41
 
@@ -925,7 +872,6 @@ Allaah let this moon appear on us with security and faith; with
 safety and Islam. (O moon!) Your Lord and mine is Allaah.”
 [Ahmad and At-Tirmithi]
 
-English.islamweb.net/emainpage
 
 Page 42
 
@@ -946,7 +892,6 @@ my Iftaar ‎ (break the fast), the thirst has gone; the veins have
 become wet and the reward (of ‎the fast) has, Allaah-willing, been
 established.” [Abu Daawood, Ad-‎Daaraqutni and others] ‎
 
-English.islamweb.net/emainpage
 
 Page 43
 
@@ -961,7 +906,6 @@ Akal Ta„aamakum Al-Abraar wa Tanazzalat „alaykum AlMalaa‟ikah”
 the Mercy (of Allaah) cover you and may the dutiful and pious eat
 your food, and may the angels descend upon you.” [Ahmad]
 
-English.islamweb.net/emainpage
 
 Page 44
 
@@ -976,7 +920,6 @@ Saheeh)]
 Meaning, O Allaah do not punish me because of my sins, cover my
 misdeeds, and protect me against your torment.
 
-English.islamweb.net/emainpage
 
 Page 45
 
@@ -1000,7 +943,6 @@ Maghram.”
 “O Allaah! I seek refuge with You from the affliction of the Fire
 and from the punishment of the Fire and from the affliction of the
 
-English.islamweb.net/emainpage
 
 Page 46
 
@@ -1024,7 +966,6 @@ Thanaa‟an „alayka anta kama athnayta „ala Nafsik”
 “O Allaah! I seek protection in Your pleasure against Your wrath. I
 seek protection in Your pardon against Your chastisement; I seek
 
-English.islamweb.net/emainpage
 
 Page 47
 
@@ -1048,7 +989,6 @@ affairs. None has the right to be worshipped except You.” ‎[Abu
 Daawood]‎
 7- “ Allaahumma rabbana Aatina fid-dunya hasanah wa filaakhirati hasanah wa qina „athaab An-naar”
 
-English.islamweb.net/emainpage
 
 Page 48
 
@@ -1074,7 +1014,6 @@ every deed or speech that will be a means of drawing near to it; and
 I seek refuge in You from the Fire and from every deed or speech
 that will be a means of drawing near to it; and I ask You that You
 
-English.islamweb.net/emainpage
 
 Page 49
 
@@ -1098,7 +1037,6 @@ ceasing and the coolness of my eye (i.e. pleasure) that never ends. I
 ask You for pleasure after Your Judgment and I ask You for a life of
 coolness after death. I ask You for the delight of gazing upon Your
 
-English.islamweb.net/emainpage
 
 Page 50
 
@@ -1106,6 +1044,5 @@ Page 50
 trials befalling me. O Allaah, dress us with the beauty of faith, and
 make us guides who are upon (correct) guidance.” ‎[An-Nasaa‟i]‎
 
-English.islamweb.net/emainpage
 
 Page 51
