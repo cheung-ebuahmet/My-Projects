@@ -2,6 +2,7 @@
 venv/
 _reading/
 audio/
+video/
 books/
 data/
 .git/
