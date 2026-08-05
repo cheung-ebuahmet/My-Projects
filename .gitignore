@@ -55,3 +55,10 @@ __pycache__
 data/
 tools/g2pW/
 audio/*.mp3
+
+# Video assets (binary files, keep text docs)
+video/*.mp3
+video/*.mp4
+video/**/*.mp3
+video/**/*.mp4
+video/**/*.png
